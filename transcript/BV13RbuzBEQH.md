@@ -9,1447 +9,1447 @@
 
 ## 时间顺序对话（含说话人）
 
-- [00:00:01] **speaker_0**：滴滴滴滴滴滴滴哎，开过哎呀哎。
-- [00:00:13] **speaker_0**：开播开播开播开播嗯，大家晚上好啊。
-- [00:00:23] **speaker_0**：哎呀嗯哼哼哼哼哼哼哼嗯。
-- [00:00:34] **speaker_0**：呃呃，是他妈放过来了。嗯哼哼哼哼哼嗯。
-- [00:00:50] **speaker_0**：。
-- [00:01:00] **speaker_0**：大家晚上好啊，这我在这呢吗？听不到我声音吗嗯。
-- [00:01:13] **speaker_0**：嗯嗯。
-- [00:01:24] **speaker_0**：嗯听到就好，我还以为没声音了。哎呀。
-- [00:01:37] **speaker_0**：哎呀，OK完事。
-- [00:01:47] **speaker_0**：然后把声音打开呀，听了就卡，不至于吧。
-- [00:01:59] **speaker_0**：至于金额就卡吗，我这显示都是正常，看看哈。
-- [00:02:12] **speaker_0**：哇嗯啊这可还行。
-- [00:02:25] **speaker_0**：行吧，哎喂喂喂哎呀，兄弟们呐，你们可是不知道啊。
-- [00:02:34] **speaker_0**：哎呀啊像唱片跳针一样卡，卡的还挺有节奏的。我头一回听说像是唱片跳针一样卡。
-- [00:02:49] **speaker_0**：我头一回见到这种形容，我填行吗？这样就好，刷新一下，不会吧，我这显示都正常啊。
-- [00:03:03] **speaker_0**：今天有亲身经历吗？有的是亲身经历是吧？
-- [00:03:10] **speaker_0**：哎呀，傻逼嘛，在那个那个在美国这个社会遇上傻逼不是比国内还正常的事情。你别看美国只有3亿多人啊，和中国14亿比差，就只是中国一个零头，但是我傻逼的比例，那可比中国高多了。
-- [00:03:28] **speaker_0**：兄弟们，光之不似人形，的逆天有的是要多少有多少哎。
-- [00:03:40] **speaker_0**：真的，这也也算是赶上好时候了，是吧？赶上这个正在堕过向下的美国，让我看见了人人间人间各种奇景。
-- [00:03:50] **speaker_0**：我能说什么呢？我前女友那种算不算算啊，本身就是我遇到的最大的奇葩之一，好吧。
-- [00:04:05] **speaker_0**：嗯，正常啊正常啊，不出几个傻逼，你以为你活在你以为你活在梦里是吧？
-- [00:04:18] **speaker_0**：只要你备主的人够多。
-- [00:04:33] **speaker_0**：就能遇见个股煞逼。对对对对，泪人群星闪耀之时，知道吧？一点不开玩笑的说。
-- [00:04:47] **speaker_0**：为人群星闪耀之时，对，各物神仙，斗志和耐性更是技精四座。我告诉你。
-- [00:05:01] **speaker_0**：老精彩了，兄弟们真的不开玩笑的，哎呀。
-- [00:05:12] **speaker_0**：这个有剑圣老哥点的视频啊，先放一下，剑圣老哥提前点好了，来放一下。
-- [00:05:22] **speaker_0**：那也是美国美国的相关视频，两个先看头一个吧，我看看。
-- [00:05:31] **speaker_0**：直播间啊，行在直播间人还差不多，哎要先放一下吧。哎呀，什么情况？
-- [00:05:44] **speaker_0**：You know, I think the only thing worse than not having health insurance is having health insurance.
-- [00:05:53] **speaker_0**：对的，呃，在美国很多人认为有医疗保险比没有还糟糕。 Like we live in a country with the best healthcare care in the world.
-- [00:06:05] **speaker_0**：美国啊那什么跟大家说一下，美国有3分之1的人没有任何形式的以往。跟大家说一下啊，美国今天有差不多3分之1到4分之1的人，或者说4分之1到3分之1的人，没有任何形式的那个那个以往，好吧。
-- [00:06:29] **speaker_0**：but you cant use it对就是美国人为什么不买医保呢？就是他们看见了美国医保的太多狠活，就是这也不保，那他妈的也不保，什么鸡毛也不保，就不如不买好吧。
-- [00:06:46] **speaker_0**：嗯，感谢老哥打赏，我看一下哪位老哥嗯，感谢退坑的幕红人老哥打赏，我看一下。
-- [00:06:59] **speaker_0**：嗯，看看那些啊那些找你要秋天第一杯奶茶的傻逼们，群要我给他发这张图就行。
-- [00:07:10] **speaker_0**：呃秋茶不是秋茶这个一开始不是秋茶这个暗梗，不是91上的暗梗吗？
-- [00:07:23] **speaker_0**：怎么还有怎么还有傻逼洗，有有的女的还喜欢这个梗呢，要奶茶呢。嗯，感谢我哥打赏，各位麻烦看一下QQ私信啊，感谢贵物中的贵物哥打赏，看一下。
-- [00:07:37] **speaker_0**：啊，放下这个，这不会又是另一个版本的小白猫之类的吧。感谢陈重的蚂蚱老哥大赏是吧？这个视频能不能放？
-- [00:07:49] **speaker_0**：我没看着老哥，你发啥了，这个陈重蚂长老哥，你把你要发你要你要你要放那个视频发我。
-- [00:08:01] **speaker_0**：还是你要发的东西被屏蔽了，看不见。
-- [00:08:08] **speaker_0**：So我先把这个视频放完视频放 unless you're, you know, whatever Joe Rogan and you're a millionaire and you're you know, oh I got this regenerative therapy I'ma disc in my back and it's only $6000 is like you have to have done because your health insurance is going to cover it.
-- [00:08:25] **speaker_0**：I'll tell you what happened to me, its I'm going to try and make it short it's kind of a long story, but this is how screwed up like having health insurance is so if we go back a year.
-- [00:08:36] **speaker_0**：My son turned a year old and got dropped off Medicaid now we had a appointment scheduled for him to have tubes put in sea.
-- [00:08:47] **speaker_0**：As he was getting constant ear infections, okay, that surgery costs like $11,000 and.
-- [00:08:53] **speaker_0**：he was dropped off Medicaid.我跟大家说一下，美国有经常有这种事情，就是在你要进行什么重大医疗手术的时候，保险公司还有那种医疗部门核算了一下，他们觉得你会用医疗补助的总额超额，他就直接给你取消了。
-- [00:09:17] **speaker_0**：对你没听错，就是他觉得你会额外多花钱，他就把你的资格给取消了。尤其是在你要做手术的时候。
-- [00:09:33] **speaker_0**：Like a week before the surgery was非常精准非常的精准。美国有好多人为什么不再买医保了？就是因为这种情况特别多。
-- [00:09:44] **speaker_0**：他可能原来有医保是经历过这种事情，你们想象一下，他还可能要医保吗？懂吗？有人说纯住生。对呀，纯住着schedule and。
-- [00:10:00] **speaker_0**：The thing was we had to schedule that appointment like seven months out ass early as they could get him in so if we were to my有些行 me schedule the appointment who knows how long we would have had to wait at least another six seven months and in that amount of time I didn't have time to like find health insurance and all this stuff beforehand because it was literally scheduled for a week later so we paid cash price the cash price was.
-- [00:10:31] **speaker_0**：Less than half of the cost of the surgery if you had health insurance to like $11,000 I ended up paying like 5,000 now the only thing about doing that was you had to pay half the price up front so I had to come up with $2500 bucks.
-- [00:10:49] **speaker_0**：Half the price, the day of the surgery, which I did, drained my savings and.
-- [00:10:58] **speaker_0**：配我跟大家讲，2500美元是绝大多数美国人拿不出来的，400美元都拿不出来，别说2500了。
-- [00:11:08] **speaker_0**：啊，2500美元几乎是要他的命了。
-- [00:11:17] **speaker_0**：Dme on it collections, I don't really care, but it gets worse because I got health insurance after that and now neither one of our employers offer health insurance.
-- [00:11:32] **speaker_0**：er offers insurance for me just the employee and it's expensive and so I don'tI don't have that I don't even have their health insurance so we got a private康 from United Health.
-- [00:11:46] **speaker_0**：Right before那个联合健康联合健康就是那个就是那个被路易矶崩的那个。
-- [00:11:57] **speaker_0**：啊，他就买了他们家的保险。
-- [00:12:01] **speaker_0**：Th happened to him right that I can't say on TikTok So then I start finding out how terrible Uniteded healthcareca is because of that news story right and they start talking about how they deny all these claims and all this stuff which is great because that's what we had and it's literally like the next cheapest option was like at least $300 more a month than what we were paying with them which跟大家一下.
-- [00:12:21] **speaker_0**：就是如果你一次性出不起的话，你也可以买医疗贷啊。银行提供高额高息医疗贷，就是你差不多他这种每周还300美元的算是不错的。
-- [00:12:35] **speaker_0**：啊，每周还300美元算是呃从总额度上来说，甚至算是不错的这么一个一个贷款。 can afford I can't even afford to pay them alone and pay more then。
-- [00:12:50] **speaker_0**：Like a month ago, my wife had to have her goalllbladder taken out and it was pretty urgent like it had to come out soon so they scheduled an appointment for like a week later and I decided to call the health insurance to make sure that it was got to be covered and to see what it would cost and all this stuff now our insurance broker that we went through,
-- [00:13:05] **speaker_0**：Told us that we had a $5,000 deductible this was freedom life insurance is a broker I guess that we went through the Fo health insurance plan our agent told us we had $5,000 deductible with our plan.
-- [00:13:14] **speaker_0**：Turns out that's not the case the to get a $5,000 deductible would cost an extra $6500 a month to have a plan that came with a $5,000 deductible.
-- [00:13:25] **speaker_0**：So for the low price of $1180 a month, you would get the privilege of only owing $5000就是你每个月要额外交1150美元才能最后再做手术的时候再交5000美元.
-- [00:13:40] **speaker_0**：比说黑哥每个月还多少？黑哥每个月还4000多，但是他卖蘑菇，你就不要和他比了，好吧，黑黑哥每次每个月还4000多美元，好吧。
-- [00:13:54] **speaker_0**：啊，400七八百，反正将近5000多美元，但是他是卖那什么的对吧？他是卖蘑菇的，你你你你你就不要想象说正常人能和他比划。
-- [00:14:05] **speaker_0**：Oh did you use it so our insurance brokers.
-- [00:14:10] **speaker_0**：Suggestion was to go ahead and have a surgery done And that, you know, you could file for financial aid and the hospital might write off some of the bills and all this stuff. Okay, that surgery cost $15000. then she had to stay of the night at the hospital because vacation. Okay, so far, I've gotten another $12000 almost in bills from that overnight stay.
-- [00:14:28] **speaker_0**：we're looking at like感谢我哥打赏。OK感谢李晨光辉Q名夏末小生向啊。
-- [00:14:37] **speaker_0**：向老真与邢海老哥在社会讨问题道歉，但是也请具体问题具体分析啊，抱歉，老OK你这又又讨论啥呀，我天27000 that we owe now. And so far the insurance has covered $900 of it。
-- [00:14:54] **speaker_0**：Like two months of my premium, that's all they're paying towards it, even though I've paid on it for a year and I've paid them over $6,000 in insurance premiums.
-- [00:15:03] **speaker_0**：They covered $900 of the total bill I mean, is that not a scam, I mean, imagine any other business model where they said, okay, you just pay us like an entire paycheck every month and we might cover.
-- [00:15:14] **speaker_0**：Something, you know, and even if we do cover, you're still going to owe us like a bunch more money on the debt so the conclusion I made was that I paid these people $6,000 a year for the premium and that doesn't even come with the duckpot I have to pay $100 a month to get the duckpot right?
-- [00:15:28] **speaker_0**：If I pay them like $6,000 a year to not even have the duck, why wouldn'tI just put that $6000 in like a high yield savings account?
-- [00:15:36] **speaker_0**：use it if you need to have something done啊。还有啊我跟大家讲，就是你在美国说你如果不买这个医疗保险，他给了你一份相对而言比你有保险更低的账单。你把这个钱付了以后，你就会进入一个系统，就是什么系统呢？就是你虽然没有医疗保险，但是付得起费的这么一个系统，就是你会被医院特殊标记。
-- [00:16:06] **speaker_0**：就是什么叫你会被医院特殊标记呢？就是你一旦进了这个系统，就是你只要有一次成功性的在保险之外付了钱。
-- [00:16:18] **speaker_0**：你几乎就是终生会被进入打入这个系统。在这个系统里面，你被医疗集团处理处理你的疾病的时候，你会被排在最后面。
-- [00:16:30] **speaker_0**：就是有保险的人先来，你排在后面。仅如此，从此以后，你的医疗品的价格。
-- [00:16:40] **speaker_0**：更高会更高是你被当成凯子。
-- [00:16:55] **speaker_0**：原种档啊，对你也可以理解为原种档案啊，人傻钱多送还差不多差不多，他 just pay the cash price because the cash price is like half of what it is if you run your insurance。
-- [00:17:06] **speaker_0**：Which by the way is what I was going to do for my wife's surgery, I was going to, well, we does not even use the insurance, we' just cancel it and I'll just pay the self pay price, turns out I can't do that because the hospital will sue you and they find out you have health insurance.
-- [00:17:17] **speaker_0**：Because they make more money if they charge your health insurance I mean who wrote that law, we have to ensure her that you're getting screwed, there's no way out of it so it's fun because you know, we're want to try to move soon try to save up money for that so we can have another kid people wonder to why the birth rate is so low.
-- [00:17:31] **speaker_0**：Which honestly, I'm not going pay any of this bill either jail I will start paying你看不看这老哥，他准备直接搬家，然后不付钱了.
-- [00:17:41] **speaker_0**：这种会让你至于更危险的情况。兄弟，就是我我我坚决不建议你学他哈，就是我不打算付钱了啊，我觉得这个钱不合理。美国法律有规定，就是你觉得这个钱不合理，你可以不付账。
-- [00:18:00] **speaker_0**：啊，这个也是很多直人拿出来说的这么一个东西。但是我要跟大家表明，就是这种我觉得不合理，我搬家了，我也不付钱，你千万多加小心，你别落在他手里。
-- [00:18:18] **speaker_0**：你比如说你出过车祸或者病危了，那医院很有可能不抢救你直接把你器官给你摘了，然后弥补他们的损失，你懂我意思不？
-- [00:18:34] **speaker_0**：比说这些医院也不挨着呀，美国八成以上的医院都属于那么极少数几个医疗财团，所以说你跑不掉，你懂我意思不？
-- [00:18:46] **speaker_0**：就是你最好祈祷你这辈子都不要再生病了， if they can design a system that actually works。
-- [00:18:55] **speaker_0**：Doesn't discourage scare everybody over you number one cause for bankruptcy is medical debt why is it that人那如果你不是 donor就是美国那个做身份证的时候，他问你是不是 donor就是捐赠者就是你说你如果不是 donor的话他能摘吗？
-- [00:19:11] **speaker_0**：他也能摘，兄弟，他强制摘，你欠他钱懂吗？对，就O得这么说，就是。
-- [00:19:22] **speaker_0**：但是那医疗财团之间是串通的我这么说，美国前四大医疗财团有两个半呃前四大医疗财团有两个半都和黑石有关系，你懂我意思不？你跑不掉的。
-- [00:19:40] **speaker_0**：懂不懂你不要想说什么，我跑到另一个医疗财团的地盘上就没有这些问题了。你觉得他们之间互相沟合的概率大，还是还是把你放走的概率大？
-- [00:19:54] **speaker_0**：Because that's all any of this. it's all a scam, it's all designed to screw with you over and take your money the people that have no money gift billion billionaires.
-- [00:20:04] **speaker_0**：他他起家跑到东大开工市场的主要主要的起家资金，就是因为他爹当年攒钱，然后花了很大一笔钱在黑石比较糟糕的一次金融危机的。
-- [00:20:17] **speaker_0**：这个这个之后最低点购买了大量的黑股票，感谢重庆南京哥打赏是吧？点首哥，我看一下。
-- [00:20:35] **speaker_0**：行，我看我等会儿等会儿放啊，先先先放这。
-- [00:20:41] **speaker_0**：呃，感谢追老哥打赏。老魏，我想点播两个视频，以及还有个问题。老伟偏远乡村一般基层和家庭医生工作者的压力，是不是有一个视频老说的这么困难？是啊，第二个视频也算和今天晚题主要，就是有点瞎眼和社暴了。
-- [00:20:58] **speaker_0**：等会儿这啥呀，等会儿我先先先先把这个视频放一下，等会儿还没我这个还没放完呢。
-- [00:21:08] **speaker_0**：This is regarding student loans ift还有那个老哥就是放一个视频，放一个视频，我收一次SC的钱，你要放俩视频就收两次SC的钱。老哥。
-- [00:21:20] **speaker_0**：Both student loans you can just be on your way I have been paying on my student loan since 2008, I have never been delinquent, I have never missed a payment and I've always made the payment that is requested and even I've made additional payments or sometimes more than my payment.
-- [00:21:38] **speaker_0**：I have been in the forgiveness plan since 200我刚才说这个 forgiveness就是所谓的就是宽恕计划或者饶束计划.
-- [00:21:48] **speaker_0**：就是理论上能让你还的学贷更少。听好啊，理论上啊。
-- [00:21:58] **speaker_0**：Now when I graduated college with my degree in education, I left with a little under 28000看着啊2008年有28000美元的 student loans.
-- [00:22:12] **speaker_0**：I've paid37到了2025年他已经付过37000 back since 2008.
-- [00:22:21] **speaker_0**：But I still owe他还欠58000，就是2008年贷了多少钱呢？2008年贷了28000。
-- [00:22:32] **speaker_0**：再还了17年以后，到了2025年，再还个38000的情况下，还欠58000哎。
-- [00:22:46] **speaker_0**：兄弟们你们想想 the math isn't nothing I'm not great at math, but the math isn't math there so I've actually paid off my student loanss I was rolled over to the save plan and if you aren't aware Sa plan currently is in litigation and it has been in forbearance, which means.
-- [00:22:59] **speaker_0**：That you do not have to make any payments and there's no interest accruing however a lovely government has now decided that starting August 1 less than30 days notice interest is going to start accruing on your student loans so yes think about that your loan is in forbearance it's in the middle of litigation law of students.
-- [00:23:14] **speaker_0**：But now interest has been approved which means it's just basically going to drive every balance Can you make payments towards just the interest yes of course you can but I've been seeing a lot on TikTok people are like you need to find a way to get out of the save plan Okay let's go see I applied back in January was told I wasn't eligible.
-- [00:23:28] **speaker_0**：They would then consider me for some other type of plan Okay well here to is July 10th and I contacted my servicer advantage and they said they don't know they directed me back to student aid because its been more six months they told me to submit an application working on my application it now tells me my repayment plan option Yes my payments are going to double and I'm looking at about 900贷再还17年学贷以后告知自己的学贷每个月翻番要付多少钱要付900美元.
-- [00:23:57] **speaker_0**：900兄弟们，你们知不知道900美元什么概念？一个普通美国人，一个月就是4000多出头，税后就是3000多。
-- [00:24:07] **speaker_0**：你租房子可能也就1千二三1千四五，现在还学贷要额外还900，你就想想这日子吧。
-- [00:24:17] **speaker_0**：恐 it's an estimate the problem I have with this is as of today in the save plan, my forgiveness is now January of 2028 prior to the litigation and everything going in for abearance my forgiveness was January of 2027.
-- [00:24:34] **speaker_0**：I still make payments even though I'm not required and those payments do not count towards my payoff, they're just payments if I opt according to the studentai.gov, if I opt to go into the only payment plan.
-- [00:24:46] **speaker_0**：I'm given my student loan forgiveness starts over according to this says I will now start again for 25 years, so 300 months, which means my forgiveness now would take effect of May of 2032.
-- [00:25:03] **speaker_0**：Make this make sense, make make this make sense to me like I am almost there, so do I just sit in the save plan and pay the interest until the government who has already said they're getting rid of the save plan and then I get forced into something else.
-- [00:25:17] **speaker_0**：But then I lose my forgiveness like this administration is really.
-- [00:25:23] **speaker_0**：有人说这个这个宽恕计划每个会怎么样？就是他会把你这17年中欠的所有利息在接下来的7年当中都收回来。请听好，就是他是追及数过往的，就是你之前17年没有交过那部分。
-- [00:25:41] **speaker_0**：利息他要追回来，甚至还要有罚息，你懂不懂什么概念？这宽恕计划本身是为了减低利息的？
-- [00:25:52] **speaker_0**：但是宽恕计划被取消了。那么在这期间里，他所有享受到的减息都要重新在接下来的几年内翻着背，翻着背的给回来，你懂我意思不？
-- [00:26:08] **speaker_0**：I'm sorry, but they're trying, they don't want to have an education, they don't want to help you get out of this like I've been paying on my student loan since 2008 with 20 year forgiveness and I am almost there.
-- [00:26:19] **speaker_0**：Now they're trying to tell me if I get out of the save plan I start over like there's anybody out there in the world of student loans that's feeling this, frustration, anger, like need anybody need a degree in early childhood education, I will Photoshop my name off and push on there and you can gladly have it.
-- [00:26:36] **speaker_0**：这已经是西藏这已经是这个什么封建奴隶是什.
-- [00:26:49] **speaker_0**：Donn my time I have paid off my at就最变态的是，他甚至不是哈耶克神 but the is me think this makes sense.
-- [00:26:58] **speaker_0**：Like make this make sense so anybody has any advice, can you comment, drop me a message if anything I am at a?
-- [00:27:09] **speaker_0**：I don't regret going to school and getting my education and my degree, I don't really use it, the world of teachers is suffering and I lost my job as a teacher to budget cuts.
-- [00:27:18] **speaker_0**：我天真这个女的还失业吧，我天服了，行吧。
-- [00:27:29] **speaker_0**：50元等然后把歌放去。
-- [00:27:38] **speaker_0**：感谢我哥打赏是，我看看还有好好几个视频。
-- [00:27:52] **speaker_0**：一收看30元啊，感谢我哥大。昨天去我看过南京照相馆，感觉需要对着来一场真正的审判和革命来介告慰世界各地受日本军国主义的受害者，来一首神圣的战争。
-- [00:28:11] **speaker_0**：啊，我要问一个问题，中国患者去经去看病故上被人搞到情绪崩溃，导致人伤残怎么算？
-- [00:28:24] **speaker_0**：这个我还真不知道这个我还真是不知道我这这这个我还我还真不知道怎么办这个的事情。
-- [00:28:38] **speaker_0**：哦，我要讲个地域笑话了，刚才看到弹幕有人说外校呃，是这样的，我之前我在我在那个东大这边的一个一个大学里碰到一个外校，就是那个外校刚好是。
-- [00:28:52] **speaker_0**：他甚至不是西大人啊，我先说明下，他甚至不是西大人，他是英国人，他叫josey啊，然后呢。
-- [00:29:00] **speaker_0**：他有一个比较搞笑，就是他尽管现在已经42岁了，他仍然欠着3万多多磅的。
-- [00:29:12] **speaker_0**：欠款就你们知道这是什么概念吗？他现在仍然欠着3万多磅的贷贷款，3万多万，我操。
-- [00:29:25] **speaker_0**：33万多吧，OK啊，出感谢充去奶油啊，放图是吧，等一下啊。
-- [00:29:37] **speaker_0**：我把图放一下，等会儿啊，看看能放能放等会儿，我我都下载下来了，我这里挨个放好吗？
-- [00:29:59] **speaker_0**：啊，这什么雕图战地六可以拖队友，队拖队友会有血迹。好嘛，这这请什么都没用我，太他妈逆天了。
-- [00:30:12] **speaker_0**：啊，感谢风尘剑生明月上老哥大长杨思昌与崇祯听之莫位。代明若如此收睡，还没有闯君与大齐军造反，代明可延续万世。
-- [00:30:31] **speaker_0**：天哪，那真是就你你们要明白，就就算是代明，戴明死了以后，达清还在说疗啥。
-- [00:30:45] **speaker_0**：这个声音是非常地域的啊，还有哈我跟我跟大家说一下啊。
-- [00:31:04] **speaker_0**：就是就是当我们说那个给贷款的时候，美国人他会给你的贷款改利息啊，改一些罚款啊，是不通知你的。
-- [00:31:21] **speaker_0**：他会什么时候他会什么时候告诉你呢？他会在你已经发工资的时候告诉你。
-- [00:31:30] **speaker_0**：什么叫已经发工资的时候告诉你呢？就是比如说你这个月的25号拿到工资，或者说你这个月的十几号拿到paycheck。
-- [00:31:41] **speaker_0**：他大概率会在你拿到payche的前一天或者同一天告诉你你的你的利息变更了，或者是你的那个罚款变更了，你需要额外交一笔钱。
-- [00:31:57] **speaker_0**：这笔钱来这这笔罚款和钱他会来的非常精准，就是恰恰好当你有一笔现金流进来的时候，它会卡在这个东西上面。
-- [00:32:14] **speaker_0**：但是请注意啊，这是额外收过一笔钱，就是不管你对原来对你的工资有什么安排，你几乎是必必须立即马上把这笔新增的钱先交上。不管他收的合不合理。
-- [00:32:30] **speaker_0**：哪怕是他算错了，你也只能事后再追回，还能变吗？能的呀。
-- [00:32:53] **speaker_0**：Oh.
-- [00:33:09] **speaker_0**：有人说这这都行行的呀，行的，兄弟，你没有听错，你没有听错，这是行的兄弟们。
-- [00:33:18] **speaker_0**：啊，很多美国人都是这么被逼疯的啊，那有人说他撑不住怎么办？那他去接赔 their own。
-- [00:33:32] **speaker_0**：就是发薪日贷款，就是你哪怕今天发，那你哪怕今天发薪，甚至要额外贷一笔款才能活过今天。
-- [00:33:47] **speaker_0**：所所以我会说，为什么这也就是为什么希腊现在其实到处都充满了缅军和太平天国军诞生的土壤。
-- [00:33:57] **speaker_0**：只不过他们缺乏一个信念啊，比方说信念崩溃，对吧？更能更容易出现像老真说的那种情况。
-- [00:34:12] **speaker_0**：就我不知道你你们有没有看过一个老电影叫做宋醒师，就是讲演军的啊。
-- [00:34:23] **speaker_0**：至于琴是为什么呢？啊，因为达清要在当地弄一个团练，弄一批团练啊，然后这批团练是干嘛的呢？
-- [00:34:34] **speaker_0**：答镇压汉人，然后呢向当地汉人征税，结果汉人本来都没钱了。
-- [00:34:43] **speaker_0**：兴还要跟当地汉人跟百姓争税，那大家过不下去了嘛，那大家只能去山东发盐了嘛。
-- [00:34:53] **speaker_0**：是吧哦，山东祖传啊贸易行贸易产业研发，大家只能学黄朝了嘛嗯。
-- [00:35:04] **speaker_0**：感谢风生剑圣明学胜老哥打赏，老我给红脖子老哥看看，他交的税都让唐螂干这个去，还搞得这么丑。这个伞为什么像像像那什么呢？是我的错觉吗？
-- [00:35:17] **speaker_0**：这是这是特朗普搞的啊，我的天哪，我我啊，然后放下这个。
-- [00:35:30] **speaker_0**：贵物中的贵物哥点的歌声吗又是小麦猫，我感觉我放一下吧，就美式仰望星空。
-- [00:35:43] **speaker_0**：我不知道这玩意儿花我多少钱，你别问我，我哪知道啊，这玩意抽象个一匹，好吧。
-- [00:35:55] **speaker_0**：我哪知道啊，我们放哪我们放点南崩新闻是吧？
-- [00:36:08] **speaker_0**：我们看看斯拉夫抽象大区的新最新狠活啊，普京授予美国中情局官员讲，其儿子为俄罗斯战斗牺牲。
-- [00:36:21] **speaker_0**：我他妈的啊。
-- [00:36:30] **speaker_0**：我他妈真是难不，我操，我我我他妈感觉我第一时间读到这个读到这个新闻的时候，我是他妈大脑升级的。
-- [00:36:42] **speaker_0**：啊，老布，其实我觉得挺正常，因为你想希腊有都不做人啊，那确实就虽然发列宁奖章这个事儿就大就俄罗斯发列宁奖章这个事儿已经是一种低于笑话。
-- [00:37:01] **speaker_0**：虽然虽然我们知道这个地域笑话，但是他给一个希腊人发列宁奖然后这又是另一种地域笑话呃，他甚至取得了一加一大于是二的效果啊哼。
-- [00:37:13] **speaker_0**：俄罗斯的父亲拉里格沃斯是一名伊拉克战争老兵，更他妈地狱。他在接受华盛顿邮报的采访时表示，他和加蒂娜并不知道他们的儿子在乌克兰，也不知道他加入了俄罗斯军队。
-- [00:37:28] **speaker_0**：可能吗？阿里跟沃斯说，在等待他回国的过程中，我们最大的担心就是莫斯科那边某个人会根据事实推测搜出他的母亲是谁，然后利用他作为道具。
-- [00:37:41] **speaker_0**：啊，这他妈逆天，我操啊，这他妈牛逼，我不知道说什么好，你们知道吧？
-- [00:37:58] **speaker_0**：就毛子大区还是一如既往的抽象啊，还有给。
-- [00:38:08] **speaker_0**：大家看点更有意思的。这个新闻有两天了，微信收看20元。
-- [00:38:17] **speaker_0**：感谢我哥打赏啊，感谢ZZP老哥打赏，我看一下老哥，你还没发我，等会我先看看这个苹果CEO给特朗普献上24K金大礼。
-- [00:38:30] **speaker_0**：顾客当场送货量身定制的24K黄金底座纪念品，还是中文吗？兄弟。
-- [00:38:40] **speaker_0**：这还是中文吗？24K纪念品，我的天呐。
-- [00:38:50] **speaker_0**：黄金哪哎。
-- [00:39:04] **speaker_0**：不是懂王什么时候，就是美国什么时候已经沦过到需要这种手段来讨好总统了。
-- [00:39:16] **speaker_0**：这也太他妈抽象了，我真的不是在看我真的不是在看某些非洲军阀吗。
-- [00:39:29] **speaker_0**：嗯啊，感谢ZZP老哥打赏，点首为恶我师服役，那可还行，我们抽象子一匹。
-- [00:39:44] **speaker_0**：我感觉我我我感觉美国这个操作已经是已经是压根儿不是人能想象出来的东西了。
-- [00:40:03] **speaker_0**：然后这是哪个老哥点的视频来着亲哈，你抱我的头柄的决心。
-- [00:40:12] **speaker_0**：问你们全家都放弃美国国籍了吗？这个问题我们已经回答过了，然后其实 Oliver其实这什么电影的预告吗？这是。
-- [00:40:25] **speaker_0**：台湾拍的审问啊，中国的一架预霸侦察机是在今天早上10点越过南海，在东台湾太平洋坠海消失。
-- [00:40:36] **speaker_0**：歼8军就以这种名义出动大批海空军往东海以及南海挺进。目前，大批的海空军形同包围条战。
-- [00:40:49] **speaker_0**：网路段是已经超过24小时，这是台湾拍的什么逆天电影啊，这是假的。
-- [00:41:01] **speaker_0**：微信收看25元，什么逆天东西，老威感老AQQ私信OK看一下明还会保佑我相信X老哥打赏。老威首先就强制社保问题在群内相关讨论向欧人和星海老哥道歉，可能是因为我表述不清玩。
-- [00:41:22] **speaker_0**：等想我之所以说强制社保措施扯着淡了，不是说这个措施本身有什么问题，而是这个政策就目前来看只是简单粗暴规定需要达到效果，而没有严格规范被执行的过程。现实就是任何一个资本家都会毫不犹豫的靠降低工资工人来控制成本，以获得竞价优势。然后就是全行业压榨工人无需内卷，既然和老板斗争，我当然支持，我不反对斗争，但是问题在于斗争，由谁来组织斗争过程中又该应还应该如何为参与斗争的个体提供物质保障来确保斗争的可持续性。这就是我在群里说的，谁来补偿打工人的损失，你不能只在其他低收入工作者，因为强制社保。
-- [00:42:03] **speaker_0**：是大背景下，资本家的不做人行为而遭受实际损失产生的时候，说一句这是必要的牺牲，就打发过去了。我不知道我把这一点指出来，对群友的斗争思想做出补充，怎么成规规吧，或许是我思想境界不够高。
-- [00:42:17] **speaker_0**：好嘛，不真的由横店还他妈有日本人。
-- [00:42:37] **speaker_0**：谁再这离开明德大饭店呢？牛多峰投降，不想把他打死。
-- [00:42:51] **speaker_0**：吓死老A，你等一下，待会儿我会跟那个老罗解释一下，为什么我会骂他是归鬼的这。
-- [00:43:05] **speaker_0**：这会已经开始了。
-- [00:43:27] **speaker_0**：还有别的视频放一下啊，有人点再放一下吧。
-- [00:43:37] **speaker_0**：我他不意看ology thank you so much for coming Did you know there's an elderly gentleman out front sawing wood?
-- [00:43:47] **speaker_0**：Oh yeah that's just Jasper he's building himself a chair I guess he wants to sit down well I'm concerned he's not wearing any safety glasses I know I've told him he said he's fine with safety squints.
-- [00:44:02] **speaker_0**：呃，放完了视频没有老，我问个问题，视频放完了没有放完了，放完了，我还始解释了啊。
-- [00:44:12] **speaker_0**：呃，首先起因是群里下午的时候再聊，有关于这个呃先是聊武大大学生的这个事儿。
-- [00:44:20] **speaker_0**：啊，呃武大大学生这个事儿，我们得出的结论是，从此以后，武大内部大部分男男呃武汉，包括所有的男生都必须做做些警惕，包括。
-- [00:44:34] **speaker_0**：呃，其一开始处理事情的手段都要变化，这是一个主旨。然后呢，就是讨论到一个问题，就是当时邢海老哥说，如果这个男生开始的时候。
-- [00:44:46] **speaker_0**：就使用了断指为视的手段，你也看了，老云，你明白我是什么意思，断指为士是什么意思？它就在文我们的文化里头又是什么东西？
-- [00:44:58] **speaker_0**：以及他在我们的儒文化里，他到底又代表了什么啊啊？我跟大家再做一遍解释什么是断指为氏，断指为饰就是连身体发肤都不太在乎。
-- [00:45:10] **speaker_0**：断指为誓就是一种呃证明你我之间再也没有任何可以妥协的。
-- [00:45:20] **speaker_0**：斡旋的余地啊，这代表着就是你死我活的斗争。啊，这就是我们的汉文化最精髓的部分之一。
-- [00:45:29] **speaker_0**：可惜现已经被丢掉了很多啊，如果如果是使用这种方法，那开始的时候，武大的武大的上层领导根本连碰都不敢碰这个事儿。
-- [00:45:40] **speaker_0**：啊，我们得出的结论是这个，但是当时那个老枪毙枪毙我枪毙我枪毙我，等会儿吧啊，顶这怎么傻等会儿。
-- [00:46:14] **speaker_0**：哎，我跟你说明白，然后差不多之后之后就是那个人说了几句不太好的话，就是说为什么为什么政府会直接选就武大的上层会选择不管，而是而不是。
-- [00:46:32] **speaker_0**：继续派人去把那个人抓起来啊，然后我跟邢海老哥的结论就是因为武大的上层一般都经历过当年的狂野时代。
-- [00:46:45] **speaker_0**：破废管子，哎，刚进了主播去哪了？这被封了吗？被封了一分钟，那咋整？
-- [00:46:56] **speaker_0**：哎，我会这不戳戳某些人的废管了，那咋整啊？对呀，那你说想一想断指为是，的有的人就是受不了，是吧？
-- [00:47:09] **speaker_0**：那我我接着说吧，就是我会说的较隐晦一点。就是这种情况下，如果就在这个前提条件下。
-- [00:47:20] **speaker_0**：如果有人会会问你说，为什么那些上层还会接着去，就你已经跟他说了，如果他真的这么做了的话。
-- [00:47:29] **speaker_0**：啊，那个上层是不会去管的，也不敢去管。这个时候就会就有人啊，就刚才那个发达木那哥们质疑说，为什么他们不要去管，难道他们不会派一帮傻子来管吗？但？
-- [00:47:41] **speaker_0**：但实际上我们都清楚，只要任何一个在社会上工作的人都知道这种情况下，如果一个人已经那样做了。
-- [00:47:50] **speaker_0**：断指为是的啊，都已经不用戴天了，你还去敢阻拦他。那你面临的代价，那那你你一般是要做好。
-- [00:48:00] **speaker_0**：呃，你要牺牲掉你的这条命，你才能够甚至也阻挡不了这种事情的发生。人家会把你当成某一些人的宠物人。
-- [00:48:11] **speaker_0**：呃，在这种情况下，那怎么说呢？这个哥们儿他还认为啊。
-- [00:48:22] **speaker_0**：会有傻子去阻拦这样的人没什么不一样。然后甚至有的老哥说，为什么不去当亚伦布什那尔，为什么不去当亚伦布士那尔？然后当时我们邢海老哥的解答很简单。
-- [00:48:37] **speaker_0**：第一，亚伦不什那尔震撼世界，也只能是在短时间世界死了以后，他可就说不了话了。朋友们。
-- [00:48:47] **speaker_0**：就他在死后，他是说不了话，死人也说不了话。然后他最后重新又变成了一个被塑造成了精神病的人。
-- [00:48:57] **speaker_0**：我们当然我们任何人都清楚他的内核是什么，但是没有关系，他死了以后，他就是会被塑造成一个无害的神像啊。
-- [00:49:08] **speaker_0**：因为他说不了话呀，把自己把自己当柴烧了是吗？对呀，就我们我们我我我再用我再用那一句话来说啊。
-- [00:49:21] **speaker_0**：我记得应该是HA说的，我们无法阻止保尔喝察金燃燃烧自己去开辟革命的道路，对吧？就是这样的。
-- [00:49:33] **speaker_0**：当亚能不施内尔，结果就是你被当成无害的神像。那你说现在医疗保二克拉金啊。
-- [00:49:42] **speaker_0**：都知道他是一个伟大的在文学中出现的一个革命者。但是长话短说咱们长话短说，但是但是但是保尔科查金啊，他后来现在大部分人的概念中，他除了是个伟大的革命者以外，一无一无是处。
-- [00:50:01] **speaker_0**：这是最大的问题，所以必须先活着，活着才能发才能去产生，或者说才能去使用你的力量。
-- [00:50:13] **speaker_0**：对你可以玄武一体，反正是发力改变。，就是这样，所以这也是为什么我们会去说它是规模。
-- [00:50:24] **speaker_0**：为刚开始他居然想的是碰到困难，去想之后会怎么办，而不是去，而不是第一时间去想他妈的老子不干了，老子先干你。
-- [00:50:35] **speaker_0**：如果世界上都是这种人，就没有革命了。不会这么说，那都给自己报了，是吧？
-- [00:50:49] **speaker_0**：Your eyes from high speed projectiles, it's worked all as live, says if it ain't broke, don't fix it, but that's not evidence based medicine oh actually out here it is.
-- [00:51:07] **speaker_0**：Hey, doc Leroy called Deilah headbuted him, her horn got him right in the eye, oh no, can he see anything out of it, no, he says the inside of his eye is now on the outside of his eye.
-- [00:51:20] **speaker_0**：Lroy has an open globe injury and we need to place an eye shield, get a CT scan start IV Moxy foxs and then transport him to the university.
-- [00:51:33] **speaker_0**：He wants to know he can just get a paraized it's okay just tell him we'll come see him in a few minutes I'm frankly appalled by how little this community cares about the health and safety of their eyeballs that's because we have two eyeballs you expect farmers to care when they have a backup ready to go well clearly you need my assistance.
-- [00:51:52] **speaker_0**：Absolutely, we have a lot of people here who need cataract surgery, okay, then just point me in the direction of the slit lamp biomicroscope.
-- [00:52:06] **speaker_0**：We don'texco美国农村地区的医疗跟没有差不多。
-- [00:52:16] **speaker_0**：observatory on the roof of his gas station he did T Mike is quite the star dance I'm sure he could help you out okay, but I need a microscope, not a telescope it'sa scope.
-- [00:52:29] **speaker_0**：not Jonathan you to go to Texco Mike's gas station Observatory and help fashion the slit like biomi.
-- [00:52:41] **speaker_0**：spare telescope parts do you need anything else yes, who do I send my cataract patients to for preoperative cardiac clearance?
-- [00:52:55] **speaker_0**：Your, you're a medical doctor, right, Good morning, you must.
-- [00:53:07] **speaker_0**：真你们下我我得做点规定了，真的，兄弟们，你们下次点歌或者是点视频分开点吧。
-- [00:53:16] **speaker_0**：你发一大段SC，然后又他妈点个歌，然后发视频也是你们先看看视频的时长。兄弟们啊，感谢今天缺学来宝哥打赏。哦乌盟呃欧盟与巫呜在加速成为菜单。
-- [00:53:29] **speaker_0**：不是菜嘛，而是菜单嘛？可还行，那他们属于没救儿啊，我我会跟你直接这么说，他们连菜单都不是。
-- [00:53:41] **speaker_0**：他们甚至指菜单上的原材料，就就是菜单上那些菜的原材料，就是他们就是欧盟和乌克兰，我看看。
-- [00:53:55] **speaker_0**：不参与俄美会谈，基辅当局当不接受两国谈判结果啊，是啊，他接受不了啊。
-- [00:54:05] **speaker_0**：只有让乌克能坐在谈判桌前，尊重我们的主权，不承认占领，才能才能实现可靠持久的和平。停火是必要的，战线并非边界，可还行。
-- [00:54:18] **speaker_0**：英国还能提出这种活呢，哎呦他们将无法取消会谈，只能给特朗普一个百脱不堪危机的机会，将所有成本转嫁给欧盟。
-- [00:54:33] **speaker_0**：挺好的嗯，挺好的，你不能只在俄罗斯有大优势的时候才讲这个。
-- [00:54:44] **speaker_0**：前两年觉着还能维持一下，现在觉着维持不住，我就想谈判，哪有这么好的事儿，我觉得属于想多了。
-- [00:54:55] **speaker_0**：我也不知道为什么，就是欧盟他一副非常自信的样子，你们知道吧？就他觉得他好像还是起就他好像还是谈判桌上的团手。
-- [00:55:07] **speaker_0**：觉着自己在桌上，那我只能说他确实在桌上哎呀。
-- [00:55:23] **speaker_0**：有时候点歌点歌，你直接加微信打微信或者支付宝就行。点歌我上点我上我我往我这点屌图上完是吧？
-- [00:55:35] **speaker_0**：，给大家看看有意思的，这个驱逐软件。
-- [00:55:44] **speaker_0**：我们鼓励所有非法留在美国的外国人使用海关和边境保护局的CBPhome应用程序自我驱逐。通过这个应用程序，你可以免费获得返回原国旗的机票。返回原国籍后还可以获得1000美元的津贴，同时免除所有所有此前因未能离境而而所支付的罚款。
-- [00:56:07] **speaker_0**：就哇，我觉得我觉得这是全美最糖的小软件之一。
-- [00:56:16] **speaker_0**：啊，就就是啊你可以你你是可以买单程票去美国，然后让他们把你送回来。我我我不知道美国人怎么想的，哎我天。
-- [00:56:31] **speaker_0**：哇，那就是找个机会让你滚是吧？有时候终身有效还是一次性的，肯定是一次性的呀。
-- [00:56:41] **speaker_0**：那肯定是一次性的，唉，怎么可能是那怎么可能还有第二次，你如果是这么回国的那他肯定是把你加入黑名单了呀。
-- [00:56:55] **speaker_0**：不可能让你反复刷的。哎，以说这真的不是钓鱼软件吗？
-- [00:57:04] **speaker_0**：那肯定是钓鱼软件，那还用想吗？哎，我又突然想起来福建老乡了，整个东南亚，还有这个呃呃世界各地，只要有华人的地方，基本都比较怕福建人，有有妈祖免签章是吧？
-- [00:57:26] **speaker_0**：大家看看更有意思，更好玩的也是俄乌相关的。说到这不。
-- [00:57:36] **speaker_0**：乌克兰为应征的阿美雇佣兵提供全方位的培训，涵盖所有知识和装备，每月支付高达4200美元。随后发现这些阿美雇佣兵跑回墨西哥卡特尔。
-- [00:57:50] **speaker_0**：全都是毒贩放出钓鱼的兄弟们哦，对我忘我甚至忘了说一件事儿，就是那他们会回到墨西哥以外，他们在离开美国的时候会顺一大笔钱啊，就这个钱他甚至是0元购我。
-- [00:58:07] **speaker_0**：嗯，免费培训是这免费培训免费领取啊嗯，免费拿到啊，免费离开。
-- [00:58:20] **speaker_0**：呃，感谢抖S名奥鼠当这人老哥打赏。老A看一下B站私信，加个联系方式，好打赏。OK啊。
-- [00:58:33] **speaker_0**：等会儿啊，我跟我跟大家说个事儿啊，就是美国卡特尔，就是美墨边境上的卡特尔经常搞这种事情。
-- [00:58:45] **speaker_0**：你们懂吗？就是他们会把自己的人送到军队，送到警察局，先去学知识，这是人家是真正知道知识的重要性的。
-- [00:58:59] **speaker_0**：他们学完了知识还会干嘛呢？他们还会进行理会研究。。对的，你没有听错，就是卡特尔这些毒贩集团，他们也会研究的。
-- [00:59:12] **speaker_0**：他们会把他们从不同地方学过来的知识，学过癌的理论体系综合一下。
-- [00:59:22] **speaker_0**：根据他们所处环境，再量身定制一遍，然后用在自己的帮派战争和对国家的反抗当中。你懂我意思不？人家是有实际、有理论相结合的。
-- [00:59:38] **speaker_0**：军阀集团，你懂我意思吗？就是如果有一天美国真的和墨西哥开打毒品战争，我并不觉得美国人能赢，你知道吧？
-- [00:59:54] **speaker_0**：就我真的不觉得美国的军队会赢，尤其是在那个呃说更地域的，就是甚至他们会派人到希大学习教友军队。
-- [01:00:06] **speaker_0**：教友是怎么建立军队的？他们抄的原汁原味的搬回了墨西哥和南美，是这是真的。
-- [01:00:21] **speaker_0**：而且他们还有钱，就是你们不要忘了，有人说他们学这些东西有用吗？有人有用啊，他们是毒贩集团啊，他有钱的呀，你不要以为他只是学会了，没有装备，不是的，他们能买的。
-- [01:00:37] **speaker_0**：你真的觉得美国的军火商就不会把这些东西卖给他们吗？即便军火商在明面上不能卖CIA不会卖给他们吗？
-- [01:00:54] **speaker_0**：啊，感谢风水燕山冰雪上我多打赏。哎呦，我实在是不明白欧盟在想什么，采取三部原则，不投降、不谈判又不打仗，这不就是纯粹等死吗？
-- [01:01:05] **speaker_0**：这里借皇太极给崇祯一句话，今日不和谈，那么明日你代明爷和和谈的资格都没有，就是没有和谈的资格了呀。
-- [01:01:15] **speaker_0**：就你你知道我想到了什么？啊，肖宝卷在幼年时啊，曾经有两个府政大臣，这两个府中大臣，一个叫姜氏，一个叫姜氏啊。
-- [01:01:28] **speaker_0**：然后呢呃当肖宝铉被这个他手下的李居士等人挑拨，正要御欲图铲除府政大臣的时候啊，姜持和姜氏兄弟呃，是是姜持问姜氏说，我们应该怎么办？姜氏说，正应以境待变啊。
-- [01:01:49] **speaker_0**：就颇有欧蒙县的味道，我只能支付宝到账2嗯，哼哼真的。
-- [01:02:00] **speaker_0**：不好说什么，呃，感谢不知所措的马龙宝哥打赏，我看一下。
-- [01:02:11] **speaker_0**：呃我哥发我红光是谁？
-- [01:02:19] **speaker_0**：啊，那那等一下，欧盟不应该在桌上，而是在桌下一边嘴里叼着欧美，一边给老钟玩寸纸。
-- [01:02:31] **speaker_0**：啊，这啊太他妈恐怖了，兄弟看到了看到，不是好你这个行容让我想起一些本子来。
-- [01:02:40] **speaker_0**：哇，就有有有点太具象化了。是啊，就你们知道你们知道刚才我说的这个故事，它的结尾是什么吗？就在姜赤说正英以性带动呃，正正英以性带变之后啊。
-- [01:03:01] **speaker_0**：神神之后，他们两个就双双殒命了，哼直接被斩杀啊，那那欧盟现在何其相似，我只能是啊不一有不一样的地方，就是欧盟还不知道自己要死了。
-- [01:03:17] **speaker_0**：不，其实姜十跟姜四两个人也知道也不知道自己要死了哎。
-- [01:03:30] **speaker_0**：这是什么自愿联盟，各国无意向乌克兰派兵，而是更倾向于加强乌克兰的军工生产。没人愿意派遣自己的部队在乌克兰送死。
-- [01:03:40] **speaker_0**：哎呀，欧盟就这么支持不可兰啊，这水平也太差了。你就说这种水平。
-- [01:03:52] **speaker_0**：这种水平怎么怎么怎么上桌呢？你就说人说冯寡妇故意的，他不故意的也没啥用啊，你这你不会真觉得欧盟能去救吧。
-- [01:04:07] **speaker_0**：哎，挺好的挺好的啊。
-- [01:04:15] **speaker_0**：给大家看点新新闻是吗？莫牛学生在奥被群殴制重伤。兄弟们，水晶之夜很快就来了，兄弟们。
-- [01:04:26] **speaker_0**：啊，有人问我为什么要在美国组织一群教友来回打架，你要知道我心里的不安全感也是很强的，我自己不组织点兄弟，我他妈哪敢现在在美国混。
-- [01:04:41] **speaker_0**：你们懂吗？未成年人殴打。
-- [01:04:50] **speaker_0**：无端遭当地未成年人殴打，想想吧，而且我告诉你，人家是未成年人，就是殴打你都不用负什么法律责任的，好吧。
-- [01:05:01] **speaker_0**：就怎么说呢？经典英英国为首的呃英联邦国家的tage啊，是逆天极了。就甚至你你在大街上走路，你去商店买的东西，他们会跟你说，你能帮能不能请你帮他们买一点币啊，这就是以英联邦为首的tage者的精神状态啊。
-- [01:05:27] **speaker_0**：那你怎么办吧？太后现代了，朋友，他们那个法律不是说这种会有惩罚吗？不会的，呃，几乎几乎所有英联邦体系下的国家对于teage者的逆天保护程度是超过美国的。
-- [01:05:43] **speaker_0**：是超过美国的，像是这种情节恶劣的，也不会发生什么。基本上就是呃口头警告。兄弟们，你别看他们差点把人打死啊。
-- [01:05:54] **speaker_0**：但是口头警告就差不多了，未成年几乎就是免死福免死金牌啊，未成年未成年畜生保护法，你只能说是。
-- [01:06:09] **speaker_0**：而且还有这种就是越是小年轻的，越容易被煽动。针对中国人的情况就越多哎。
-- [01:06:30] **speaker_0**：有人说有人说他们还会干这种类似的事情，还还就就是是那那那个力度大嘛，很大的兄弟们，我这里说力度大是什么呢？
-- [01:06:42] **speaker_0**：就是美国还有一些英联邦国家的人，他们会有目的的煽动中煽动他们的年轻人，对中国人下死手。
-- [01:06:55] **speaker_0**：人又不用负法律责任是吧，他们还有钱呢。呃，有人有人在弹幕里说，如何让澳大利亚变成一个红区啊，我会这么说。
-- [01:07:08] **speaker_0**：呃，首先你得让澳大利亚缺水呃，你让澳大利亚缺水问题就解决了一半。这种群年罪犯就是解游人教唆我好吧。
-- [01:07:26] **speaker_0**：或者是他们受到的宣传，就是长长期宣传中国如何如何，你挨打是非常正常的。
-- [01:07:34] **speaker_0**：甚至你挨打以后，那个他们把人打死了以后，甚至呃如果被起诉的话，很快就会被保释出来。并且尤其是得到当地社区的保释，而且会是被牧师保证说，或者说那个律师保证说这是一个非常非常虔诚，非常非常非常善良的孩子啊。对，他没有做错任何事情。
-- [01:08:00] **speaker_0**：就像我说的，有一颗金子般的心。对，就是我常说的，他有一颗金子般的心，你懂吗？
-- [01:08:09] **speaker_0**：你不要以为我经常你不要以为我经常说的一些事情是没有原因和道理的，就是你只能选你只能打不过就加入，知道吗？
-- [01:08:22] **speaker_0**：你们不会以为我成天顶着一群叫法兄弟在干什么吧，懂吗？你要么自己也组织一帮人，要么你就你就期盼着你能躲过他们。
-- [01:08:36] **speaker_0**：就反正我的态度就是对方澳大利亚很简单，把他的水利设施全都摧毁掉。嗯啊，就尤其是大部分他们的储水的那些设施。
-- [01:08:49] **speaker_0**：你把它变成洪水，其实澳大利亚就已经废了一半。因为它澳大利亚是一个非常非常非常非常非常严重缺水的国家，以至于导致他们当地的蔬菜和。
-- [01:09:01] **speaker_0**：呃，跟植物相关的任何食品都无比的昂贵，包括生活用品都非常的昂贵。
-- [01:09:17] **speaker_0**：有时候注意安全，我不带人打着他们就不错了。好吧，你以为为什么？你以为为什么我出去打架的时候。
-- [01:09:26] **speaker_0**：啊，都是要戴小白帽的，是吧？拿着经书，你以为我会乱搞吗？吧？
-- [01:09:38] **speaker_0**：我是不会逛岗的，说明我前程。
-- [01:09:49] **speaker_0**：啊，前程啊前程没什么用，兄弟，主要是你要掌握暴力，懂吗？你要掌握暴力，光前程没有什么用。
-- [01:10:00] **speaker_0**：念那个死就是经书也得活用，好吧，不要念死书，懂吗？你拿着本经，不能把对面说死。
-- [01:10:10] **speaker_0**：光毒经没有什么管用，你得打架哎。
-- [01:10:27] **speaker_0**：支付宝到账20元，感谢五安军老哥打赏是吧？我为特朗普作为种族主义标志女星点赞这件事，我本来看了没当回事，国内也没什么波澜。但是最近几天我在美国的思位朋友和一些新加坡马来赞美人士不知道为啥非常恐慌。
-- [01:10:46] **speaker_0**：啥叫现在才非常恐慌，一直都非常恐慌。好吧，我想问一下，这是不是特朗普掀起反华运动的狗哨，类似英特尔CEO事件，难为一个新加坡人展示反华意志，正常啊。
-- [01:10:59] **speaker_0**：太正常了啊啊，感谢不知所措的马农老哥打赏。作为在加拿大生活十年的老流子，想来给昂萨国家的朋友们一点建议，你必须要有和对方抱恶的勇气，不然只能被欺负。记住一点，见法官永远比见法医强，在黑暗森理生活就要遵守黑暗丛林的法则，是啊。
-- [01:11:19] **speaker_0**：否则我为什么组织人呢？啊，哎，我的建议是，你最好和当地的一些地龙蛇有点好的联系啊，是的。
-- [01:11:30] **speaker_0**：就是为什么我在希腊过得比较如鱼得水，是因为我跟当地的一些地头蛇是真的比较有联系的，是，甚至包括犹太人。
-- [01:11:42] **speaker_0**：嗯，这个这就是那个街头广告，是american啊ele挺好挺好挺好。
-- [01:11:53] **speaker_0**：还有这个。
-- [01:12:04] **speaker_0**：不然的话，你就会变成一种呃，我想想该怎么形容，你甚至不是那儿的，你是一种怒啊，是就如果你不做这么做的话，你会变他成怒整。
-- [01:12:15] **speaker_0**：这个这个正好和我今天要讲的关系是强相关的。美国的种美国的白人种族优越论和优越感是极强的兄弟。
-- [01:12:25] **speaker_0**：不是你能想象的强的，懂吗？是非常非常的强，就是强到什么程度呢？就是。
-- [01:12:36] **speaker_0**：他们甚至强调了无时无刻，必须从生理上、心理上以及言语上向其他的种族展示这一点。
-- [01:12:47] **speaker_0**：他们是憋不住的，或者说在他们内心深处是必须张扬的，又开始卡了吗？
-- [01:12:58] **speaker_0**：嗯，感谢风吹建设媒体就上搞哥打赏。欧盟被唐王收过15%的关税，强制买新国马的液化天然气与石油，还要掏几千亿美元买新国马过期武器，还觉得自己的利益要被维护，还觉得自己有影响力，还能对着许愿池里的王八随便许愿。
-- [01:13:17] **speaker_0**：啊，这听着这听着好像很像某个群体是吧？那不奇怪。
-- [01:13:29] **speaker_0**：冯德湾哎，我我我们先我们先讲这个就是讲过这个美国种族主义。就是有人说在在在美国的就是这些这些华人为什么那么敏感，就是会感到恐慌。
-- [01:13:45] **speaker_0**：就是因为当美国人对着特定的某一个种族，及非白人种族展现自己的优越的时候。
-- [01:13:56] **speaker_0**：他本质上是在判另外一方死刑。
-- [01:14:05] **speaker_0**：我再跟他再强调一遍，就是比如说特朗普这种要求英特尔CEO下场，就是那个离职，或者是说美国的整体意识在倾向于针对某一个种族的时候。
-- [01:14:20] **speaker_0**：让这个种族展现自己的优越感，或者是在当众，在大家的面上直接去霸凌这个人。
-- [01:14:30] **speaker_0**：这是要对他动手的前奏，能懂我的意思吗？就是你可以理解为在雏行场上或者是罗马斗技场里面。
-- [01:14:45] **speaker_0**：一个决斗士向着另一方展现自己肌肉的时候，那是准备干你了。就是你可以理解为赏金猎人上标记这种事情。
-- [01:14:57] **speaker_0**：能理解吗？所以或者我换一个说法啊，就是呃战犬那个战犬。
-- [01:15:06] **speaker_0**：呃，有一个战犬试图在和你呃试图和你打绝血，跳进跳进雪坑里，和你打绝血，并且向你用大拇指抹了脖子。
-- [01:15:18] **speaker_0**：就你明白这是什么含义吗？我我用一个比较站锤的说法说，就是这样。那他的意思就是他想把你杀了，因为他本人是绝血，就是死斗了。有的时候想怎么除去标记，你除不去标记。
-- [01:15:31] **speaker_0**：你改变不了美国以白人为主体的这么一个结构。你改变不了，要么你滚蛋，要么你活在活在提心吊胆的世界里。
-- [01:15:44] **speaker_0**：这个事情和你有没有钱没关系，你的钱并不是钱，兄弟，你的钱并不是钱。
-- [01:15:54] **speaker_0**：懂啊？你不会以为对于整个白人国家体系来说，你是什么英特尔的CEO，你是什么take talkok的运行主席，执行主席。
-- [01:16:07] **speaker_0**：执行CEO或者是你是什么大拿或者什么科学家之类的，有什么用吗？你在整个国家体系面前是毫无管用的。
-- [01:16:17] **speaker_0**：你既然想给他孝忠或者当孝子贤孙，你想当狗，你就别怕他有你的主人有一天吃狗肉的时候。
-- [01:16:27] **speaker_0**：吗？
-- [01:16:35] **speaker_0**：比如说直接是物体在物体物体形态消灭，呃，暂时还不能物体形态消灭，因为还毕竟还没开战嘛，你现在物体形态消灭，反倒是会导致提前开战，而美国又没有这个胆子。
-- [01:16:52] **speaker_0**：哎，美国实际上他就是色地内任，他实际上在大面上又没有做好和中国开战的准备，所以他现在暂时还不敢杀人。
-- [01:17:05] **speaker_0**：只能说很快。
-- [01:17:18] **speaker_0**：我曾经说过，希大有一定的说非常可怕的右倾倾向。呃，反正chris快来了吧。
-- [01:17:31] **speaker_0**：对呀，北京职夜快吧。完了我我们再看这个是吧？
-- [01:17:43] **speaker_0**：给你们看看美国南方人是吧？啊，美国南方人保持自己种族优越的方法就是外文。
-- [01:17:51] **speaker_0**：让大家看看美国南方人长什么样，南部中部乡村的美国白人。
-- [01:18:03] **speaker_0**：红脖子让大家看一看啊，呃，在你你你你放之前我先要说一下。呃，首先说明一下，我曾经留学的地方叫做犹哈州嗯。
-- [01:18:18] **speaker_0**：啊，然后在我们当时有这么一批人，他们有他们有很奇怪的表征，就是这个表征有多奇怪呢？
-- [01:18:29] **speaker_0**：奇怪就怪在他们的脸，非常奇怪有多奇怪呢？眼睛中间是鼻子，就很多人不明白什么叫眼睛中间是鼻子。
-- [01:18:41] **speaker_0**：就是他那个他那个脸畸形了，畸形到了眼睛直接在鼻孔这一线，就鼻孔底下有一条线跟你的那个。
-- [01:18:54] **speaker_0**：鼻翼两侧你直接向两侧延伸，就是他的眼睛，就是他的他的鼻子不是在不是在眼睛中间的正下方，而是在在眼睛中间。
-- [01:19:14] **speaker_0**：有，这就是这就是犹他州的一部分奇怪的信仰，就或者说纯学论的结果，你就说纯不纯学吧。
-- [01:19:26] **speaker_0**：真是纯纯又喜许啊，哎有人时候有人说候能能长成这样吗？能呢。
-- [01:19:37] **speaker_0**：你你们仔细看看这些这些人，就是你你你好好看看这张，就是最中间这一张是吧？就这个你你仔细看这些人越奇怪，就是他那个鼻子越往上，就是越往那个两个眼睛中间挤，你们看一下。
-- [01:19:56] **speaker_0**：啊，你看一下就是这个图是吧？最典型的大家可能看到这个就是啊现在就是我现在在屏幕上这个第一排的最右边这个。
-- [01:20:07] **speaker_0**：你看看他那个鼻子就是已经很很接近于两眼中间了，一越往下看，你就能看出这个就是就是你觉得他们很奇怪的一个点。
-- [01:20:18] **speaker_0**：就是鼻子不是长在眼睛下面，而是长在中间啊，有是说这是近情搞出来的是。
-- [01:20:29] **speaker_0**：你们看吧，就是他们基本上都符合老师说的，就是鼻子是在眼睛中间，而不是在鼻子下面，而而不是在眼睛下面。
-- [01:20:40] **speaker_0**：啊，我说致命弯道对致致命弯道里面那个就是最极端的微信收款30元。
-- [01:20:54] **speaker_0**：感谢我哥打赏，看一下，别说第一个还像某个小胡子啊，那那其实不大像是吧？有时致命弯道那个现实吗？致命弯道那个挺现实的。
-- [01:21:11] **speaker_0**：致命弯道还真的挺现实的，那个东西他是怎么能凑出这些人来的？
-- [01:21:19] **speaker_0**：我哪知道他是怎么透出来的？神奇的很啊，你们不要我我只能说大家不要侮辱硬私毛私人。
-- [01:21:29] **speaker_0**：斯茅斯人在变成申请者之前，还是很帅的。生理学奇迹生理学奇迹，兄弟。
-- [01:21:42] **speaker_0**：这就是美国人，而且这是他们人种优越会的一个证明是吧？啊，对呀，就是他们认为自己有蓝血一样啊，就我说一下中世纪很多贵族认为自己有蓝血啊，并且保持苍白的皮肤，这是一种高位的证明。
-- [01:22:05] **speaker_0**：啊，但是这很奇怪的是，如果按照录像学来说，现在希腊的尤其是以近亲结结婚，并且产出的这些畸形而为首的这样一批人是过不了录像学检测的。
-- [01:22:19] **speaker_0**：他无法被归纳入人类人类的范畴。嗯，感谢风尘剑圣媒体就是我个打赏。老爷，那么悠人亲王是不是也是这样？是啊。
-- [01:22:32] **speaker_0**：你的幽人亲王就是唐氏儿好吧，日本天皇日本天皇以普系里面也是万文种，好吧。
-- [01:22:42] **speaker_0**：就丑了一逼，就毕竟曾经有几个天皇，一个是娶了自己的亲妈，一个是啊一个是和自己的亲亲妹妹结婚的。
-- [01:22:54] **speaker_0**：然后找补这是后找补吗？不是你以为他们是后找补吗？他们是天生这么认为的。兄弟，他们不是因为已经存在的某种怪现象给他找补，而是他们主动达成这种效果的。
-- [01:23:09] **speaker_0**：吗？他们不是找补，这是最恐怖的地方，懂不懂？他不是因为我们有这个缺陷，所以我们给自己这么找补。他们是因为自己主动这么做才有了这种缺陷，能明白吗？
-- [01:23:26] **speaker_0**：这不是找补，他主动追求的，他们心里是极度变态和扭曲的兄弟。
-- [01:23:37] **speaker_0**：你你以为我直播预告说他们的心态扭曲是假的？不是的，他们是集体大规模有意识这么操作的。
-- [01:23:49] **speaker_0**：听好了，他们是集体有意识大规模操作好吗？他们不是愚昧，就是他们很清楚自己在干什么。
-- [01:24:04] **speaker_0**：大家还记不记得我在讲白人心态问题的时候给大家讲过，有的白人是怎么验证自己够白呢？就是你是不是对什么东西过敏，你是不是对肤质过敏，你是不是对糖过敏，你是不是对花生过敏？
-- [01:24:21] **speaker_0**：他们把自己先天性的基因缺陷当做验证的入门入门门槛，他们是有意识追求的。
-- [01:24:33] **speaker_0**：你可以想想他们实际上有多扭曲，能明白吗？我说糖不是人体需要的东西吗？还有水过敏呢，兄弟。
-- [01:24:50] **speaker_0**：就最变态的甚是甚至是他们甚至呃怎么说呢？比较崇拜于呃玻璃症，就是那个凝血症、凝血障碍和脆骨障崇拜于脆骨。这个他们的脆骨病就是。
-- [01:25:07] **speaker_0**：骨头特别容易脆，先天性的软骨，他们崇拜于这些，认为这是贵族的象征。，是的，因为这些曾确实是几个比较有名的贵族的遗传病。
-- [01:25:20] **speaker_0**：还有啊给大家看点东西，这个正好讲到日本嘛，日本这个傻逼傻逼皇室。
-- [01:25:33] **speaker_0**：啊，我又想起外部省的傻逼操作，我还给大家看看是吧？大夏天纸包纸果穿和服去哪儿了，去橘子州。
-- [01:25:46] **speaker_0**：大家知道橘子洲有什么不啊，大家知道橘子洲头有什么吗？
-- [01:26:00] **speaker_0**：校员像吗？对，有校员像，有校员雕像啊，穿日式和服。兄弟们，现在是夏天啊。
-- [01:26:15] **speaker_0**：兄弟，湖南啊又潮又热，纸包纸给我穿和服啊。
-- [01:26:31] **speaker_0**：目径依赖，兄弟故意的。
-- [01:26:43] **speaker_0**：这就是故意的兄弟，这就是纯粹故意的。
-- [01:27:02] **speaker_0**：呃，实际上我想说的是，好多所谓的奇装异服去这种比较有有名的地方。
-- [01:27:11] **speaker_0**：虽然只能说不太常见吧，也只能说比较罕见了。满20。实际上我知道有很多国企相关的企业去那边一般是要穿工服去的，就是穿工作的衣服去。
-- [01:27:34] **speaker_0**：都起名字，我给他打赏是吧？啊，挂图哎，别才不爱乎呢。
-- [01:27:48] **speaker_0**：就是兄弟们，我跟他家讲，你们就是前些年在那个南京大屠杀纪念日穿军装的，穿日式军装的那种人，现在他们是不敢了，你知道吧？
-- [01:28:07] **speaker_0**：就现在只不过那种明着搞的，他们不太敢了，现在都是找什么和服文化之类的，很傻逼的。
-- [01:28:16] **speaker_0**：哎，来，这个我就有经验了，我来说啊，这个从上下就下。呃，老A，那个我你现在话题离你专题开还久不久，还有段时间讲，我就现在那行，我正好讲个三五分钟吧。就各位其实还是我我以前说过一个很老的案例。
-- [01:28:35] **speaker_0**：呃呃，各位啊，记不记得前前几年有一个叫某妹的玩意儿，跑到跑到大连的某个地方去啊去跳跳跳所谓。就是那个时候他们是最蹬鼻子上脸。
-- [01:28:48] **speaker_0**：就他不仅去了，还要搁那跳舞。然后反过来说，哎，我不知道他妈的怎么可能不知道整个大连。
-- [01:28:58] **speaker_0**：多少就是多少这种有纪念意义的地方，就是而且这个地方如果他作为就是我我敢肯定说那个地方作为一个重点保护的单位，那附近有我可以跟跟各位讲，那附近有什么？
-- [01:29:14] **speaker_0**：中军司令部就址，然后大连的那个旅顺旅顺口区博物馆。对，还有很多就是当年清，还有那个苏联，我们叫白塔嘛，就是当年我们跟苏联就是苏联援军就是做的一个纪念碑，这么多的就。
-- [01:29:29] **speaker_0**：就是这么密集的地方，他能跳出来，然后跑过去跳个舞，你觉得他正常吗啊，这是第一个。然后接下来就是我们更熟悉就是啊某那个那个解放碑啊，解放碑的事情。
-- [01:29:42] **speaker_0**：就老爷，你应该还记得，就是有个女的穿的那个去解放碑嘛，对不对，穿啥，你会发现早些你该还有穿日式军装的。
-- [01:29:51] **speaker_0**：啊，对他们在一步一步的去试探我们的底线，就是他们要试探出我们容许的所谓的啊文化的兼容的那个底线出来。
-- [01:30:03] **speaker_0**：要知道，就是你看他们他们的动作是他们的动作是有一系列降级的。然后直到到了现在这个我这个度，你会发现有些人开始说，哎呀，有小女孩嘛不懂事嘛，就穿个衣服好嗯，这个时候他们就觉得哎我们四撑到底线了。那我们就在这个地方蹦极呗啊，反正你们你们的你们就是在这样觉得，那我们就在这蹦极啊，所以这个就最可恨的地方。
-- [01:30:30] **speaker_0**：然后所以各位你们包括其实还有一个群体是什么呢？就是那个某某学院啊，把那个把那个731部队的那个那个事情啊，给那还还他妈搁那乱乱搞。
-- [01:30:45] **speaker_0**：就这个东西各位不用想，遇到这种人，就直接就你不用跟他讲什么道理了，他他肯定是有所准备的啊，肯定是有所准备的，不用不用想。
-- [01:30:58] **speaker_0**：行，我说完了嗯呃，我补充一点读，但是实际上呃行了，你先读牙是感谢不知所措的马农老哥打赏是吗？
-- [01:31:08] **speaker_0**：我看一下啊，有个同学曾经在美国乡村当实习教师，跟我说，班级小孩的过敏源列表比美国历史书都厚啊，一下呜呜两个是吧？
-- [01:31:19] **speaker_0**：可以呃，我来说好吧，呃，就是实际上现在国内出现的这种大量的这种情况。
-- [01:31:33] **speaker_0**：或者说这种挑战底线的行为，我会这么说，虽然我并不喜欢某一段时间。
-- [01:31:44] **speaker_0**：呃，或者说被否或者说前30年和后30年互不否认中间那个不可说的那1年的政治敏感性是否太过于敏感。
-- [01:31:54] **speaker_0**：但是你缺乏政治敏感性，这是否有些是吧？
-- [01:32:03] **speaker_0**：我们首先要明白一一点，一个很重要的一点就是生活就是政治，政治就是生活。
-- [01:32:16] **speaker_0**：这两个是一体的，互相辩证的，存在着也是我们不可否认的。包括我们讨论的历史啊。
-- [01:32:26] **speaker_0**：所有的近代史所有的古代史啊，就所有的现代问题，所有的古代史。
-- [01:32:35] **speaker_0**：都是近代史一个道理的朋友们，一个道理的。
-- [01:32:47] **speaker_0**：就是有的时候不要说什么不要说什么政治挂帅是真所，这这帮弹幕啊差不多得了哎。
-- [01:33:06] **speaker_0**：这个。
-- [01:33:07] **speaker_0**：有人说政治敏感，这是这政治不够敏感才会这样，知道吧？那个那个什么各位，你要知道，就是前段时间就是啊抱抱贼了鬼惠子妹的那个卡卡西，现在人家已经美美的开直播收到米了，就这机会在你面前，你要把握住呀是。
-- [01:33:30] **speaker_0**：感谢老哥打赏，下次就是穿十二单一或者巫女服进行纪念馆，或者什么遗址搞卫灵仪式了是啊，你以为呢？
-- [01:33:43] **speaker_0**：呃，我没记错的话，曾经虽然我我们都知道有一个人犯过错，至少他的直播里我就29.99元。
-- [01:33:54] **speaker_0**：好，我曾经和一个叫做阿酱的老哥聊过关于日本鬼子在战后，在中国试图挖掘。
-- [01:34:08] **speaker_0**：日本在中国被杀掉的那些侵略者啊。
-- [01:34:16] **speaker_0**：呃，遗古或者是试图搞捐一堆钱，在那个陵园里啊，给他们修什么纪念碑啊，但是呃政府都会常常去管理。
-- [01:34:31] **speaker_0**：比如说在云南是吧，龙岩啊，比如说在广西某地。
-- [01:34:44] **speaker_0**：嗯，太多了，支付宝到账20元。
-- [01:34:52] **speaker_0**：感谢我哥打赏，我看一下这怎么又又又不写名字了，我看一下啊，我一需要有人来次，不许说俄语，我那。
-- [01:35:02] **speaker_0**：搞过了，兄弟们，你猜在东北的土地上没有出现协和语或者日语做方言是吧？回去看我东北往事那几期。
-- [01:35:13] **speaker_0**：有时候日本我我这就是这就是要讲到当年我在我在这个是把东北往事里面讲是吧，有没有改开以后，有没有日本人来寻找遗谷呢？有的兄弟们来东北寻找遗谷啊，到村里来问，他说哎呀，那个大爷呀，你们村里人当年有没有来过日本人啊。
-- [01:35:36] **speaker_0**：这个我爷说有啊，那有那那能没有吗？那那村里有的是啊啊，怎么可能没有呢，对吧？有那啥啊，你去那个八县他们家去看看吧啊，听说他们家那个地下有。
-- [01:35:56] **speaker_0**：是吧啊听说他家有你去问问吧啊，问问吧啊，找到八彦老哥家，他说那个哎呀老哥呀，那个村里听说以前有有有日本人呢。
-- [01:36:10] **speaker_0**：啊，巴彦我说有啊啊，咋的，和你有亲戚呀，他说有亲戚呀，您看看我花点钱能把那个骨头买回来不？那八彦老说行啊，那可太行了。
-- [01:36:25] **speaker_0**：来吧啊，领着去哪呢？去猪圈啊，来来来看看啊，看看啊，这个猪圈猪圈里砌的强是吧？啊，那都有你们的骨头啊。
-- [01:36:39] **speaker_0**：那你看看你要多少是吧？啊，那那太多了啊。对，那蒙古老萨满自己住住的金冠，你知道吗？
-- [01:36:52] **speaker_0**：啊，看看吧啊，看看哪个是你爹，哪个是你亲戚。
-- [01:37:06] **speaker_0**：吓跑吓疯好几个好吧。
-- [01:37:09] **speaker_0**：我只能说致敬传奇通呃，那个通话支队魂江位于呃，应该是日料店老板，位于特别位于行动大赛冠军方虎山老英雄和亚军刘希元老将军。
-- [01:37:27] **speaker_0**：这房子不我只能定两位老前辈，神他妈这房子不能要啊，这房子是好房子好啊哎。
-- [01:37:38] **speaker_0**：啊，多多多好是吧？
-- [01:37:53] **speaker_0**：我我只能说在宗教仪式里头有这样一个相关的一个东西，叫做把你的敌人，把你的仇敌啊放在你家的。
-- [01:38:03] **speaker_0**：屋下在你的毛坑里，这也是一种最好的尊重和一种侮辱。比方说一身正气是吧？这这肯定镇得住的。
-- [01:38:18] **speaker_0**：啊，感谢今天退学的表哥打赏是1960年9月14日，日本京都J罗伯特奥本海默在京都大学进行教学。
-- [01:38:34] **speaker_0**：哎吧售后服真他妈售后服务，我操哎，有人有人说这这个猪圈最后怎么办？那不是有爱观瞻吗？
-- [01:38:53] **speaker_0**：是吧那个不能这样是吧？那个有爱观瞻，下次别领着日本人去了，是吧？这个先哎先先挣钱是吧，先挣钱啊。
-- [01:39:10] **speaker_0**：就像我之前说的是吗？这个哈尔滨某些军某些在在那个田野野外的那些军工厂是吧？附近他长他长那什么呀，他长相机呀。
-- [01:39:25] **speaker_0**：啊，老乡这北京都下个调查组，他说你们这附近看见日本人了吗？啊，怂问老乡说没看着啊。
-- [01:39:37] **speaker_0**：没有日本人呢，没听说呀啊没听说，那你这个日本相机是哪来的呀，不知道啊。
-- [01:39:47] **speaker_0**：啊草垫子上捡的这不知道哪来的那你看这事搞的啊，北京那特派员就是说那真没看着啊，他说真没看着啊啊，那大爷，你这相机出吗？那是出啊啊，出是吗你？
-- [01:40:06] **speaker_0**：您随便给个几百块钱，您就拿回去吧。啊，啊，就是草甸的这个东北的水土好啊，黑土地上长相机，你们知道吧？
-- [01:40:20] **speaker_0**：这相机卖了相机哎，立刻就盖小房。哎，哎，我我要讲的地域笑话，就是。
-- [01:40:30] **speaker_0**：其实你们知道吗？在西安的黄埔同学会，你们猜他在哪儿啊，他在张学良公馆旁边啊。
-- [01:40:43] **speaker_0**：你们能体会到这个地域笑话吗？啊，嗯，就在张学良公馆旁边修了一一所黄埔同学会。
-- [01:40:55] **speaker_0**：，感谢这老哥搭赏老挝对亚洲各国这么残暴以及各种类人思维和行为，跟他们自认为是亚洲最早西化的超级二狗子心态是否有关。
-- [01:41:13] **speaker_0**：那会儿还不是二狗子心态呢，那会儿还是非常狂猖狂的是吧？东亚第一帝国形态啊，感谢沉重的蚂蚱老哥打赏，我是达利安人，经常参加漫展，真正的cosplay只会在指定时间指定地点穿一些指定啊。
-- [01:41:30] **speaker_0**：这怎么给撤回了，我你就直接给撤回了，我没看着啊。
-- [01:41:41] **speaker_0**：指定地点穿一些指定服饰，co色圈都是有自己的规律，又撤回先先等会儿吧。
-- [01:41:54] **speaker_0**：哎呀，我只能说有有的时候每年每年的一些时候啊，出现一些奇装异服的人，嗯，这些奇装异服的人，突然就会使我使我手上的棍棒啊变得快速起来。
-- [01:42:10] **speaker_0**：是会使我的棍棒旋转。
-- [01:42:17] **speaker_0**：这种东西就刚才那位老哥SC啊，大连很多漫展，就是因为我在大连生活过嘛，我知道呃你那么多能去的地方能拍照片呢青海湾啊、黑石礁这些地方你不去，你那个还有棒棰岛，你不去，你他妈偏偏要跑跑到旅顺去，还跑到白塔附近，你他妈是永河去进啊，谁。
-- [01:42:43] **speaker_0**：cos圈cos圈都是有自己规律的，反而不是cos圈的人叨上乱搞，在敏感时间敏感地带搞敏感的事情。哎呀。
-- [01:42:52] **speaker_0**：知你知道兄弟们啊，你们在B站关没关注过一个up主，叫做武镇天王杰哥的啊，大家有关注吗？
-- [01:43:04] **speaker_0**：我知道他怎么了啊，他他不是卖他不是卖那个武器装备嘛？是吧？啊，对对对对对啊啊，我准备我准备像像像像像杰哥是吧啊，订购一点订购一点小小的装备是吧？我看看什么价格哎。
-- [01:43:23] **speaker_0**：我把这玩意儿穿着是吧？去和小日本打。
-- [01:43:27] **speaker_0**：你懂吗？我准备你你知道你知道我准备整一套什么吗？我准备整整两套衣服啊，一套呢是代源是吧？一套是代元的确契削的确靴的战甲啊，一套是代名的战甲，要弥补两个遗憾，你知道吧？一个弥补一个弥补就是就是代源的远征日本失败。
-- [01:43:53] **speaker_0**：啊，懂吗？
-- [01:43:57] **speaker_0**：啊，远远远征远远远征远征日本失败是吧？要弥补一下代元的遗憾，然后然后再再再弄一套明明明代的装甲是吧？再弥补一下明代没有没有下海奏小日本的遗憾。
-- [01:44:14] **speaker_0**：那应该是没有相灭倭寇啊，未能未能逃破敌球之遗憾呢。
-- [01:44:23] **speaker_0**：我说来到地府在天之旅是我说来套你赛弄套明光铠也行。嗯，不是唐代打赢了就没有遗憾了。
-- [01:44:33] **speaker_0**：啊，不，你你你穿唐代的明光铠，会使会使他们感到恐惧，这就够了啊，感谢唐是血脉压式了属。
-- [01:44:47] **speaker_0**：感谢腾格袋子老哥打赏是吗？刚才在煮咖里逛来听就听到下半部分，正好白吃下午没买到好牛肉，猪肉用香料配蜂蜜酒腌制成假牛肉，又放点潮汕牛肉丸。好吗？胡萝卜豆腐啊，胡萝卜土豆出锅配成配了甜椒生菜、洋葱丝儿可以可以。
-- [01:45:08] **speaker_0**：上下图是吧？啊，不能只有我一个人看见。
-- [01:45:15] **speaker_0**：哎，老爷，我有一个奇想啊，你可以穿一下我们陕北的那个呃短打和那个那种黑裤子，黑长裤，然后加上那个头上裹那个头巾啊，然后呢你再你再买一把大刀啊。
-- [01:45:33] **speaker_0**：有年纪的日本人看见你会明白的啊，我有年纪的日本人看见你会明白。我我再让我我再让我教友兄弟打点安塞腰鼓，是吧？
-- [01:45:46] **speaker_0**：啊，不用你不用安31鼓，你只需要我们西北长川的老农民或者是羊圈的那种衣服。然后你再拿把大刀啊，有年纪的日本人会明白你这是什么意思。
-- [01:45:59] **speaker_0**：支持老爷来一次是吗？微30啊，感谢539老哥打赏。
-- [01:46:09] **speaker_0**：啊，不许说俄语啊。对，早就他妈该搞，不许说俄语了，不许说日语是吗？
-- [01:46:27] **speaker_0**：对吧就是把代言的和代名的遗憾都弥补一下。，感谢金江去Q的老哥打赏是吧？
-- [01:46:38] **speaker_0**：啊，刚吃完没拍照，这是我今天感冒期间吃的减脂餐，你这是什么减脂餐啊啊，兄弟。
-- [01:46:47] **speaker_0**：这是减脂材呀，不对吧，兄弟，你。
-- [01:46:58] **speaker_0**：不你们都该一个一个搞事情是吧？你这叫减脂菜，黑胡椒牛肉炒意面，蒜香鸡中意啊，孜然牛肉煲仔饭，我天哪。
-- [01:47:15] **speaker_0**：哎，呃，没事，我今天也弄了点减脂30，今天天冷啊，呃今天西安温度才27度啊，天气比较凉爽。
-- [01:47:27] **speaker_0**：然后呢有点馋，然后呢忍不住和老婆出去吃顿甜脂餐。那个图片发你了，你可以放放一下啊，这个更过分，我天。
-- [01:47:37] **speaker_0**：月牙饼儿，然后羊肉羊汤可以啊，这是羊骨头啊。
-- [01:47:49] **speaker_0**：羊骨都碎熬熬熬人真恶心啊。对啊。
-- [01:48:00] **speaker_0**：那你以为嘞，微信收100元，感谢老哥打赏，感谢雨如播真刷鹅大，凑个热闹，出几个假片钱啊，感谢老哥。
-- [01:48:13] **speaker_0**：啊，穿甲大小日打小日本之前，先记得去惩戒日本学姐啊，可以可以可以。
-- [01:48:22] **speaker_0**：啊，你们是够狠的得吃顿好的啊，是就我我天天吃好的是吧？
-- [01:48:35] **speaker_0**：我的遗憾，棒球棍能满足吗？0.01元啊，这是这是这是唯一难受的地方，是吧？这是唯一难受的地方，就是我可能只能用棒球棍，而不能用刀。
-- [01:48:50] **speaker_0**：我那个539宝哥，那个我读吧，穿假大打小日本之前先去的去惩绩日本学姐，我毒吧，宝哥啊。
-- [01:49:08] **speaker_0**：哎，难道不对吗？这这不是539539好哥吗？等一下啊，539，我这有点太多，我哥你你发我私信，你震一下我难道不对吗？
-- [01:49:26] **speaker_0**：我记得我多过啊哎真的。
-- [01:49:40] **speaker_0**：而且而且你知道哈，就是我我查了一下美国的法律，穿这种穿这种复古全甲啊，是不受那个防弹衣限制的。就是他在防弹衣禁定之外，就是你穿这种仿古的铠甲啊，人家会当做某种cos道具，为其收看20元，感谢史尔纳老哥打赏。
-- [01:50:03] **speaker_0**：我看一下啊啊，看看乐子，8月10号一次举报威力还要大，可还行。
-- [01:50:12] **speaker_0**：啊，钢四贴V一之创意工坊DM哎呦，我操这个不放老哥，那个感谢老哥，这个我就不放了，是吧？钢四的活刚钢四这摊浑食我就不谈了，这这个这个这个这个那什么。
-- [01:50:23] **speaker_0**：钢四的这钢四的威力还是太大了，是吧？MMode的是吧？跟那个钢四modode的，还有那个维多利亚的那个我都不碰啊，这帮人这帮人太磨怔。
-- [01:50:42] **speaker_0**：啊，尤其是涉击钢丝的这这个这个这希望老哥理解是吧？这个不放啊，也不涉及。好吧，那群摩托人，我离他们远点。
-- [01:50:56] **speaker_0**：就是我穿我穿这种古代铠甲是吧？只会被人当做道具，而不会被警察针对啊，非常的好啊。
-- [01:51:13] **speaker_0**：有人说能不能弄吃铁窑子，西夏铁窑子，我没有马，兄弟，那玩意儿没有马运不起来。
-- [01:51:22] **speaker_0**：行那啊，感谢所以你看这也是为什么我会推荐你使用，就这也是为什么我会推荐你使用陕北大刀队的套装，而不是使用。
-- [01:51:34] **speaker_0**：啊，是吧因为为什么不呢？因为陕陕北大刀对他的服装呃既好看还轻便，而且还不太热啊，最重要的是它的威慑力甚至比某些东西更能唤起某些某些这个呃存在于亚空间生物的这个血脉里的本能吧。可能说。
-- [01:51:56] **speaker_0**：有时候铁窑子可以骑摩托，你的意思是让我一只手扶着摩托，另一手拿棒球棒削在他脑袋上是吗？那人就死了，兄弟。
-- [01:52:08] **speaker_0**：那我就进去了懂吧？那个还是那个还是算了，铁窑铁铁窑子是巨装骑兵，重甲巨装骑兵，那那玩意儿一点也不好玩。
-- [01:52:23] **speaker_0**：太他妈沉了，他他还不能是李。嗯，不你可以你可以学习一下西大老哥，就尤其我在西大见过的那种西大老哥，他们玩的那一套，比如说天法雷霆骑士。
-- [01:52:41] **speaker_0**：我操一个摩托拿个那种那个那种专门砍木头，双人双人锯树的那种锯子。
-- [01:52:49] **speaker_0**：啊，拿那个，然后一手抓住一边，然后直接平放啊平放，然后开着摩头过去就行。
-- [01:53:00] **speaker_0**：有时候那盔甲超30斤，那不叫超30斤。兄弟，铁铁窑子全甲那玩意将近50斤。兄弟，你再算上兵器，那妥妥的六七十斤好吧。
-- [01:53:13] **speaker_0**：想啥，那铁窑子那个假，你别说你别说人马他也受不了。
-- [01:53:25] **speaker_0**：你把马穿的和你穿的加一块五六十斤呢，想啥呢？
-- [01:53:37] **speaker_0**：呃，我想这么说，就是实际上如果你们呃了解一下紫外的那个那个巨装骑兵的那帮人的那个体格，你就明白了。
-- [01:53:48] **speaker_0**：就实际上大部分的这种巨装骑兵，他们骑的马都不太高，甚至比较矮。
-- [01:53:54] **speaker_0**：呃，至于为什么呢？因为马如果太高的话，它的腿骨它的那个是那个作用就用做工的时候，它的骨头是比较脆的啊，越短的话，同等材质它的做工效果越好，是因为它的因为随着它长度的减小，它的这个硬力它就越小。
-- [01:54:16] **speaker_0**：哎，嗯，给读一下SC感的感谢懒得起名字，老哥打赏，你们太坏了，发现美食图片生在西雅图的奥A该咋办，他妈的整我是吧？都闪开让我来啊，对对对。
-- [01:54:34] **speaker_0**：哎，嗯真的你们就发吧，是吗？我还是挺愿意看你们给我发中国的美食图片的，还能安慰一下我的心的。你们知不知道我在美国成天吃的都是些什么逆天玩意儿？
-- [01:54:47] **speaker_0**：你们懂吗？啊，今天黑哥啊今天黑哥还说给我露一手是吗？让让他要做他家乡做的做法，做鸡肉，结果还他妈做糊了。
-- [01:54:58] **speaker_0**：净他妈伺候他的猛过去了，哎，烦的要死，最后还是吃的吃的吃的那个汉堡薯条，哎，想一想我都难受啊。
-- [01:55:10] **speaker_0**：哎，我真是他妈受不了哎这。
-- [01:55:32] **speaker_0**：我我我我跟大家说一下啊，就是在吃这个就是我心情不好，在美国精神压力大。
-- [01:55:42] **speaker_0**：另一个缓解的方法就是就是那什么啊，感谢摄影大佬给我打赏，换一个是吧？放战锤视频好，我老绿皮了，可以。
-- [01:55:51] **speaker_0**：啊，这不是那年的圣诞歌吗？就是除了女人以外，另外一个能安慰我的就是。
-- [01:56:01] **speaker_0**：是那什么吃点美食，然后美国还没有什么美食，很烦。
-- [01:56:14] **speaker_0**：实在老哥打赏，往好处想到群友发的美食，你虽然看得到，但是你吃不到啊啊。对你看等我回国呢。
-- [01:56:23] **speaker_0**：我是必必线下单杀你们哎，没事，我突然想起来一个非常恐怖的事情。
-- [01:56:36] **speaker_0**：在西大吃的那个饭，就是我不是跟大家说过吗？我的房东原来是狱警，他在退伍以后加入了监狱啊，然后当了狱警。
-- [01:56:48] **speaker_0**：那么狱警只会做一种菜，就是监狱的监狱餐。你们能理解我在吃一年半监狱餐以后的心态是什么状态吗？
-- [01:57:04] **speaker_0**：唉，每那么回国甚至每每逢佳节胖30斤呢。对呀，我你知道我我当年从从西大回来以后，我我一开在西安，我吃五顿操。
-- [01:57:20] **speaker_0**：一个星期一个星期胖了8斤，猪都不带这么吃的，我跟你讲。
-- [01:57:30] **speaker_0**：太无打人了，我操微信收看30元，感谢老哥大卡。既然如此整个活点歌，我等的串还不爱，是是他妈我顶的串，还点的串还不爱。
-- [01:57:43] **speaker_0**：嗯，大家看看这个日本新闻是吧？啊偷西瓜。
-- [01:57:58] **speaker_0**：唉，呃，我会这么说，就我在西大待了以后，我回来我回到东大，我我下了我下了飞机第一件事儿。
-- [01:58:11] **speaker_0**：在北京直奔一个卤煮火烧的店，然后吃了一顿卤煮火烧。然后我甚至觉得卤煮火烧是美食，偶尔这是我最他妈难碰的。
-- [01:58:22] **speaker_0**：哎，有人说我我我我够完，大哥，你是我新粉丝吧，你是头一次看我直播吗？你知不知道我之前做多少吃的呀，就为了改善自己的伙食，我操，我花个老功夫，好吧？
-- [01:58:38] **speaker_0**：但是你再看看日本这个南丰的长野县一处瓜田，被偷了600个西瓜，价值120万日元。
-- [01:58:48] **speaker_0**：感感谢0，感谢屋敌老哥打赏一个月来哈，我看看老一上图可以试试这套装扮，轻便也不热，而且也很有威慑性，把涂上大刀换成棒球棍就行。按窝之前先往个球棍上喷一口酒，然后一秒6棍。
-- [01:59:06] **speaker_0**：啊，可还行，碰议直行是吧？这下是真的像的大刀向鬼子头上砍去了。
-- [01:59:21] **speaker_0**：啊，对，600个西瓜价值120万日元，1个2000日元，合人民币100左右。
-- [01:59:35] **speaker_0**：我天，你就看日本人吃的这点玩意儿吗？感谢老哥打赏，我看一下。
-- [01:59:44] **speaker_0**：啊，看看啊啊说到美国美食，今天早上想到今天早上看到个美国视频说为什么美国的肯德基越来越烂，而海外的肯德基越来越好，结果展示的肯德基照片确定这玩意儿是鸡肉能吃，一会儿找一下截图。
-- [02:00:04] **speaker_0**：啊，能啊呃，我这么说，就是当年我在西娜吃的肯德基是什么样子？就希腊的肯德基跟中娜的肯德基是天差地别的。呃，我吃的那个炸鸡，它。
-- [02:00:17] **speaker_0**：里头没有太熟，然后他外头那个糊糊是粘的啊，你没有听过他外头那个糊糊是粘的。
-- [02:00:26] **speaker_0**：然后里头没有熟，他那个他那个挂的炸粉没炸全，里头没炸透。他那个挂的那个粉流出来了，很恐怖的哦，兄弟。
-- [02:00:38] **speaker_0**：啊，感谢感谢风水剑圣美许就绍我和打赏，我看一下啊。呃，然后然后最恐怖的一点就是他除了卖这种炸鸡以外，他卖的饮料是掺了水的capps。
-- [02:00:53] **speaker_0**：这是人喝的啊这是人喝的吗？幽幽幽默日本西瓜，我天。
-- [02:01:12] **speaker_0**：哎，过于幽默了，我只能说。
-- [02:01:23] **speaker_0**：唉，腾可蛋走个那个是那个给放了，你那个图放了，我再给你放里面这个吗？
-- [02:01:35] **speaker_0**：放过1944日元，人民币按100算，刚称了一下，66.3斤，6.3公斤，划下了人民币8块钱一个。
-- [02:01:47] **speaker_0**：这玩意居然叫赤色彗星下牙专用嗯。
-- [02:01:56] **speaker_0**：感谢今天去跟咱老哥打赏是吧？然后天晚上天天啊飞机飞大飞机飞到大型转机的时候，我在大兴的饺子馆里跟两个女生一起吃了300块。然后晚上天天吃烤牛羊肉排，虽然我在减肥。
-- [02:02:11] **speaker_0**：嗯，可还行，支付宝到账19.99元。
-- [02:02:20] **speaker_0**：那可还行，这是什么来组，我看一眼啊，今江去学台老哥吃的很那什么嘛？啊吃的很节制啊，比上次吃羊排节制。
-- [02:02:36] **speaker_0**：我个打赏，我看一下嗯嗯啊。
-- [02:03:02] **speaker_0**：点播一下糖醋的经啊，这个是吧100多年啊，这个。
-- [02:03:13] **speaker_0**：啊，先把这个放了是吧？这个老哥点的，我其实考虑了一些要不要放，最后考虑放一下吧，已经放了这么多美食了。那个能点外卖的去点外卖吧。
-- [02:03:27] **speaker_0**：是可的。
-- [02:03:43] **speaker_0**：啊，86，感谢86号哥啊。
-- [02:03:54] **speaker_0**：The.
-- [02:04:12] **speaker_0**：微信收10元啊，补下图片OK.
-- [02:04:24] **speaker_0**：忠诚往是非。
-- [02:04:33] **speaker_0**：我感觉我感觉点那个视频那老哥恶意很大。
-- [02:04:43] **speaker_0**：完了，我们拿美国难吃的东西对冲一下嗯。
-- [02:04:52] **speaker_0**：看看美国难吃的又干又柴的肯德基对冲一下啊，肯吃骂老子上视频的时候，抽象程度堪比凉炸鸡。
-- [02:05:09] **speaker_0**：什么玩意儿，我天搜一下。
-- [02:05:24] **speaker_0**：Oen.
-- [02:05:42] **speaker_0**：我操不行啊，不行，我我他妈的啊，感谢今然去谢来老哥打赏。肯德基好像和苏超联动，我在想要不要去点份肯德基。
-- [02:05:54] **speaker_0**：随便是吧？右边那是人吃了，美国就这样及。
-- [02:06:06] **speaker_0**：就过去一生一世初心。
-- [02:06:18] **speaker_0**：不放他不如可乐鸡翅呢，不行，再放一会儿，我人要没了。
-- [02:06:37] **speaker_0**：你一说美利坚的美食，我就想笑，等会啊，还有这个。
-- [02:06:47] **speaker_0**：这个这个等一下，我放一下，然后陈忠骂着老哥，这呃不是这个啊。
-- [02:06:56] **speaker_0**：锅包肉是视频是吗？呃这个这大我也欢迎大家关注一下这位是吧？啊，老东北美食啊。
-- [02:07:07] **speaker_0**：多年前200多年前，您家就这么做，外面在练锅。朋友们，大家好，今天做这个大家可以关注一下老东北美食，这个你们做的做的美食都是可以复刻的。
-- [02:07:21] **speaker_0**：啊，我做过他的他家，他这个大舅的好多菜是吧？啊，这个都非常香，糖够底。
-- [02:07:29] **speaker_0**：呃，加点素吃健常来，糖度里脊啊，是火遍大型南北。我这个菜是哪儿来的？。
-- [02:07:35] **speaker_0**：从这个公平大当中然后呢这个那个。哎呀，说实话，我之前不是学无人机嘛，然后我们那个学校旁边有个东北人那个那个叔他做那个，他做的那个豆角豆角土豆。
-- [02:07:53] **speaker_0**：做的那个哎呀，做的那个那个好吃啊，那真好吃。豆角和土豆一起炒了一下，好吃真香。
-- [02:08:02] **speaker_0**：可惜美美美国没有那种东北的那种豆角大角是那豆角子那确实香，我觉得做好做好挺好吃的。原料2分之1深瓜。
-- [02:08:18] **speaker_0**：等说这是糖醋底的，这个这个不是锅包肉，糖酥底的是糖醋底的。
-- [02:08:30] **speaker_0**：神喂翻过来再写哦，你们再看这个书啊，是，那没事了，这个书还有一个咸菜滚豆腐，你们可以看看他做那个咸菜滚豆腐也挺也挺好的。
-- [02:08:43] **speaker_0**：现在开始煎背，看看肉不用洗啊，不要直接抓大，把这个汁儿都抓到肉好，看看有时候豆角子和豆角子不一样，做起来方法都是一样的。
-- [02:08:55] **speaker_0**：还可以啊这个我我只能说是吧？看看是吧，看老丢做饭是吧？啊，大舅做饭还是很很很很很赏心悦目吧。我这边就二位速，放完准备进正题了。
-- [02:09:13] **speaker_0**：吃半的不能给多，哎，这样就行，加上15个油啊，看看鱼。
-- [02:09:24] **speaker_0**：感谢云云河山附近院老哥打赏是吧？讲个亲身经历的笑话。我在土豪那会儿有一次当地一般人哥们来国内玩，我中午招待了他一顿铜火锅，这哥们儿炫了八盘羊肉，八盘二两半一盘吧，一般是还是三两一盘，二两半一盘的话，八盘，那他妈是两斤啊。
-- [02:09:44] **speaker_0**：下午出门啊，下午是等会儿，我看看啊。
-- [02:09:54] **speaker_0**：想下午出门看到卖肉松小贝的，有时候他又炫了一整盒，这哥们皮话挺对的，平时吃饭标准标准沙嘎鸡胸肉，我一直以为他这是自律来着，这不是自律，而是没东西好吃，你知道吗？
-- [02:10:09] **speaker_0**：或者一两大都可以啊，你要吃个万带头是最合理的。里面加点香油。好了，面粉这是土豆面粉啊，土豆淀粉都香一般是三的呀，吧？那那那那20斤多啊，完了再进来咱们看个头啊，看个头吸不稀吸多少。
-- [02:10:27] **speaker_0**：哎呀，我跟你说，我之前在西大，有一回我一个哥们儿，他那哥们是四川人，然后我们当时整那个。
-- [02:10:37] **speaker_0**：整那个他们那边那种骨汤老骨汤火锅，他也没放辣的，因为他顾及到好多人其实吃不了辣的，他就弄那种清汤的嘛，骨汤的，然后结果整了哎，我我们整了好多那个。
-- [02:10:52] **speaker_0**：涮羊肉涮牛肉，然后拿那个鸡蛋往上一打，然后一一和和完了就下上去那个煮嘛，涮，那香啊，那叫一个香啊，我我天我我现在都能回忆起来那个味道。
-- [02:11:05] **speaker_0**：真的是乐久了，吃什么都香，只能说哎有人说这胃受得了吗？其实可以，偶尔一次无所谓，人的胃弹性挺大的。
-- [02:11:19] **speaker_0**：挂红的就有金黄色，稍微浮薄一点露点厚的这个这种湖薄，呈现出来是个红色。难的，你再大眼的口干做才好啊，第一次就能做这辆拿的。
-- [02:11:29] **speaker_0**：大舅，而且我跟大家讲，大家一定要关机，关注一下大舅是吧？他的菜都是你能在家里复刻的，我在美国都能复刻，兄弟们。
-- [02:11:43] **speaker_0**：不要怕，真的，我在美国都能复刻，你们一定也可以有感多。
-- [02:11:53] **speaker_0**：大好，这阳老师傅们啊，100多年前200多年前，人家就这么做的，就这么好看。好了，做好了。
-- [02:12:07] **speaker_0**：好妈看一下子呃，还有一个视频，最后还有一个是吧？啊，抽象程度堪比梁炸鸡，我天。
-- [02:12:21] **speaker_0**：that black sym event by the time I was three years old, I was indistinguishable from any other African Negro child.
-- [02:12:36] **speaker_0**：the Negro father was a even by lose of Negro thing.
-- [02:12:46] **speaker_0**：hy you damn people men say be in there, but what I remember most was an unwarranted hatred of the white man damn.
-- [02:12:59] **speaker_0**：I remember him making me feel very for my very ownnesss just upset because he's lazy and the white man makes a.
-- [02:13:15] **speaker_0**：跟大家讲一下，就是他为什么说说他是白人呢？就是因为他好好学习，你懂吗？
-- [02:13:30] **speaker_0**：就是如果我我跟大家说一下，在黑人的社区里，如果你不酗酒，不抽烟，不吸毒、不打架斗殴，不抢劫，好好学习，天天向上。
-- [02:13:43] **speaker_0**：你周围的黑人会管你叫白人，你听好，就是如果你在黑人社区里没有任何恶习的话，你甚至想好好天天向上好好学习。
-- [02:13:58] **speaker_0**：你会被同社区的人叫成白人，大家还记得那个死的黑大个吗？在他的社区里，他就是一个标准的打引号的白人。
-- [02:14:09] **speaker_0**：死的懂吗？会死的，最后会成为一个律师。呃，很不幸，他大概率成为不了一个律师，他大概率会成为律师之前就死掉。
-- [02:14:26] **speaker_0**：Com on did please.
-- [02:14:36] **speaker_0**：Just having fun with limits and Mr. I.
-- [02:14:51] **speaker_0**：跟大家讲这句话非常爸爸国长大后想当医生、律师、法官、警察，就是任何正面的体面的，需要一定学历的职业。
-- [02:15:08] **speaker_0**：就是这是一种非常典的，就是白人发言，就是黑人家庭中的白人发言，就是你敢在黑人家庭当中说这种话，接下来等待你的几乎就是无休止的殴打和虐待。
-- [02:15:27] **speaker_0**：懂吗？兄弟们听好了，你在这是这这几乎是狗哨一样的口号。你在白你在黑人的社区里面说这种。
-- [02:15:38] **speaker_0**：爸爸妈妈，我长大以后想当医生律师，什么教师，就是任何体面的好的工作。
-- [02:15:47] **speaker_0**：你甚至会被全家暴力使猛暴力加暴力。
-- [02:15:57] **speaker_0**：adopted Negro who I loved almost like she was white I loved almost like she was white.
-- [02:16:09] **speaker_0**：这这个也是非常标准的，就是就是黑人的自毁性的发言，就是就是什么什么就像白人一样。
-- [02:16:23] **speaker_0**：就是如果你被挂上这种词条的话，就是你在某个方面再向白人靠拢是极度危险的。
-- [02:16:34] **speaker_0**：能能能明白我的意思不？就是你几乎是当一个黑人描述另一个黑人某种行为和形象，他的描述为跟白人差不多的时候。
-- [02:16:52] **speaker_0**：' to that you she knew all my history.
-- [02:17:08] **speaker_0**：啊，还有啊就是就是。
-- [02:17:18] **speaker_0**：在黑人的社区里面，你可以喊口号，你可以搞BLM就是黑人的命也是命。
-- [02:17:27] **speaker_0**：但是如果你真正意义上想去好好学历史，去回顾黑人历史上那些成功的有名的人，或者是成功的反抗案例的话，对于黑人来说也是一种某种程度上的不可饶恕。
-- [02:17:45] **speaker_0**：某种程度上的不可饶恕，就是他见不得自己的历史上有任何一点闪光点。
-- [02:17:55] **speaker_0**：就是自恨 more peanut algae death than anyone who ever lived. baby, why don't we read about Eli Whitney instead, He invented the cotton. He was a great white man.
-- [02:18:14] **speaker_0**：就正好这这个视频放的非常好是吧？
-- [02:18:28] **speaker_0**：我们各对于我们接下来要讲的内容帮助很大是吧？啊，感谢啊感谢一下沉重的蚂蚱老哥是吧？
-- [02:18:37] **speaker_0**：本来是准备放另一个视频的啊，既然既然老哥点了这个视频是吧，我就正好这是一个非常好的切入点啊。
-- [02:18:48] **speaker_0**：就是现在我们来讲哈，就正好直接就写入正题。我们先讲二等人优越论。二等人优越论。其实这期我先说一下这期本来的标题我想做的是什么呢？就是。
-- [02:19:04] **speaker_0**：美国人的那个其他非白人主义的心态问题和他们怎么认知白人的问题。
-- [02:19:15] **speaker_0**：后来我发现他们有很多草舌灰线是联系在一块的，他们某种意义上有很多的相似性。
-- [02:19:24] **speaker_0**：其他的种族的世界观、三观和他们怎么对待白人就是。
-- [02:19:37] **speaker_0**：他们的发言和心态以及各种作品，书籍也好，论文也好，还是时尚也好。
-- [02:19:47] **speaker_0**：表现出明显的两种心态。什么叫两种心态呢？就是这两种心态能够同时存在在一个人的身上，并且是。
-- [02:20:00] **speaker_0**：逻辑自洽什么样的心态呢？第一重心态就是我是最优秀的，就是我是最优秀的，我是最优越的。
-- [02:20:17] **speaker_0**：而且我和白人他就是他首先第一点强调我和白人不一样，就是我和白人不一样，我是特殊的。
-- [02:20:27] **speaker_0**：是吧白人没有完全规训过，我没有被白人完全规训，就是典型的就是什么呢？我们说美国第一个群体黑人。
-- [02:20:40] **speaker_0**：他们有非常明显的这种心态，就是我们和黑人不一样，我们和白人不一样。
-- [02:20:52] **speaker_0**：什么意思呢？大家还记得刚才看的那个短片吧。
-- [02:20:58] **speaker_0**：就是我说那里头非常危险的一个发言，就是说你做什么什么事情和白人一样。为什么这句话为什么这句话危险呢？他危险就危险在他们打破了这种优越问。
-- [02:21:14] **speaker_0**：就是我们和白人不一样，而且并且我们就是因为和白人不一样，所以我们优越啊？如果你和白人一样。
-- [02:21:27] **speaker_0**：那么你的这种优越权就会被立刻回收，而其他还保持这种优越棍的人会立刻暴答你，消灭你。
-- [02:21:40] **speaker_0**：有那有人说这种不一样，有的时候没意义啊。对，比如说白人能当律师，白人能当医生，白人能当警察，白人能当教授。
-- [02:21:52] **speaker_0**：那么黑人就是一定要反过来，就是我们黑人绝对不当医生，绝对不当律师，绝对不当教授，绝对不当老师，也绝对不当警察。
-- [02:22:06] **speaker_0**：那你说那体面的工作你都不去干，那意义何在呢？哎，重点就在这儿。
-- [02:22:13] **speaker_0**：就是我因为不干这些事情，因为我的生理指标干这些事情有缺陷，反倒是我的优点。就是我正因为我的优秀，所以我才不能去干这些事情。
-- [02:22:31] **speaker_0**：就是大家还记不记得我反复强调，你还记不记得有些白人把自己的生理过敏现象。
-- [02:22:39] **speaker_0**：当做一种维持自己血统优越的证据，就是黑人也一样，白人这种优越感的证据是什么呢？就是。
-- [02:22:50] **speaker_0**：我们把天就是我们白人把天赋都点在打架上了，点在烧杀抢掠上了，点在金融天赋上了，点在科技上了。我们在这方面极其的优越优秀。那么我们的天赋点可能不够用。所以我们有那么一点点小小的缺陷恰恰证明了我们的优秀。
-- [02:23:13] **speaker_0**：你能懂那种逻辑不？这是我的天赋点用完了，我把我们的天赋点都投到什么上面了。所以因为我的天赋点用完了，所以我才在其他地方有那么一小内内的缺点。
-- [02:23:29] **speaker_0**：黑人也一样，黑人的共成国辑是什么呢？我们的黑人音乐天赋很强，运动天赋很强是吧？所以我们在智理上面就可能是稍微偏低一点。
-- [02:23:41] **speaker_0**：这正是我们优秀的象征，就我见过无数这样的黑人同学，就是。
-- [02:23:52] **speaker_0**：被自己的同族欺负，你们不会以为那个就是我那个那个黑人同学死的那个黑人大黑人大哥。
-- [02:24:02] **speaker_0**：小哥，就是他怎么死的，他就是被自己社区的帮派分子崩掉的。
-- [02:24:10] **speaker_0**：为什么就是你怎么胆敢证明我们不优越，就是你学历史，你学数学，你学一些需要高智力才能证明个人的一种东西。你学这个就证明你的优势本身被取消了。
-- [02:24:33] **speaker_0**：这不是否认自己的可成长性吗？他们自己是不承认的啊尤其是黑人，非常点。
-- [02:24:44] **speaker_0**：我讲的最点的就是如果如果你去过黑人社区的话啊，黑人社区就是。
-- [02:24:57] **speaker_0**：在黑人的社区里面非常常见的一种现象是什么呢？就是一些想稍微表现好，学点好的黑人小孩儿。
-- [02:25:09] **speaker_0**：在社区里面啊什么样子呢？经常是领救济的时候，我见过太多了。
-- [02:25:19] **speaker_0**：啊，是如果有一个黑人表现的想自强自立，说我已经很自强很自立了。
-- [02:25:29] **speaker_0**：我不需要去领这些救济食品了，我想自强自立，你的同学，你的哥们儿，你的朋友就会或甚至是你的其他亲戚。
-- [02:25:44] **speaker_0**：会反复的上你的门儿，让你去领救济，你不领救济，甚至他会打你。
-- [02:25:55] **speaker_0**：如我好好努力工作，我我我已经不需要再当穷人了，我不需要再领了，不行不行。
-- [02:26:05] **speaker_0**：因为领救济是黑人优越感的一部分，你看这是白人欠我们的。你看白人承认了自己亏欠我们的这就是我们黑人应得的。
-- [02:26:21] **speaker_0**：不存在什么，你自强你就不领了。不是的，懂吗？
-- [02:26:33] **speaker_0**：你说这也算优越队，他们的优越感非常的扭曲。
-- [02:26:39] **speaker_0**：就是那你说那你不就是证明了黑白人骑在你们脑袋上能欺负你吗？对，这就是我说的二等人优越问，就是他们实际上没有把白人当做人，他们把白人当做什么呢？他们把白人某种程度上当做某种天然的机制或者是天威神威。。
-- [02:27:04] **speaker_0**：你们懂吗？就是他还是基督徒那套受苦的逻辑，白人就是上帝的威严，白人就是上帝的意志。
-- [02:27:14] **speaker_0**：他们来欺负我们，压榨我们是应该的，是必然发生的，是已经发生的，现在正在发生的，将来还会发生的事情。
-- [02:27:32] **speaker_0**：就是他实际上是把白人非人化来证明自己的优越。因为如果一旦白人也是人，他立刻就会沦为二等人。
-- [02:27:45] **speaker_0**：就是他一方面证明了白人实际上是骑在他们脑袋上的一等人，他们是二等人，甚至往下的。
-- [02:27:54] **speaker_0**：但是是他又要保持自己的优越感，优越感是极其难以维持的这也是我说的是为什么他叫二等人优越问呢？
-- [02:28:06] **speaker_0**：就是他甚至还会鄙视其他的人种，就是我是二等人，就是你们不许逾越我。
-- [02:28:17] **speaker_0**：啊，白人不在，我是老大，白人在我是老二，你们都往后退。这种思想广泛存在于黑人中间。
-- [02:28:34] **speaker_0**：就是你会发现一个黑人同时跟你论证，他们是最优秀的，然后又同时跟你论证，他们受白人压迫。
-- [02:28:48] **speaker_0**：，对，就是维持为了维持自己自主，把白人抬成神，把自己当做人，就是我是第一等人，但是白人不一样，他们会外，他们是神。
-- [02:29:02] **speaker_0**：有种老虎30猴子吃猴子称大王那种感觉。感谢我哥打赏。这天我小富发达了，搬到恍莱坞山上之后，你看他和他姑妈的社区关系。对的，就是如果有一个黑人一旦发达了。
-- [02:29:20] **speaker_0**：他没办法，就是他的社区实际上也容忍不下他，他只能搬走，他必须搬走。
-- [02:29:29] **speaker_0**：他留在原社区，甚至有生命危险，就这种扭曲的心态导致了非洲黑人，就是尤其是那些伊斯兰教黑人，就是特别讨厌美国黑人。这些基督教黑人。
-- [02:29:46] **speaker_0**：就是黑哥，就是黑哥刚来美国的时候，他跟我说，他说他觉得这群黑人有毛病。
-- [02:29:56] **speaker_0**：我就说他们有什么毛病，他说他们他们脑子不正常，我说怎么个不正常法呢？他说他们总在这宣扬是说说这个基督是什么什么，就是就是白人啊，白人强加压迫给他们的产物。
-- [02:30:12] **speaker_0**：我说那有什么问题吗？他说那他他说我一开始还很开心。
-- [02:30:17] **speaker_0**：我跟他们说，那你们改信伊斯兰教吧，是吧？我们当兄弟吧啊，既然基督教是白人强加给你们的东西是吧？是种族压迫的证明，那咱们改呗，黑哥非常天真的以为这群人他愿意改进伊斯兰教，结果黑哥就被那群人打了。
-- [02:30:37] **speaker_0**：然后黑哥就很难过，他说他说你们不是说基督教是是白人压迫你们黑人的产物吗？压迫你们信的吗？那我让你们改姓伊斯兰教不挺好吗？我们当兄弟，你怎么还打我呢？
-- [02:30:54] **speaker_0**：对吧那美国黑人的逻辑是什么呢？就是我们是信基督最虔诚的人，就是大家要明白啊，黑人证明自己比美国人白人还优越的地方，怎么证明？就是我们比白人还虔诚。
-- [02:31:10] **speaker_0**：虽然你是虽然基督教是你们白人拿刀子强迫我们信的啊，虽然他既是压迫的证明，又是我们优越问的来源，就是我们信的比你们白人还虔诚。
-- [02:31:26] **speaker_0**：你们白人不如我极度抽象，这就是二等人优约问，他是他是很傻逼的。
-- [02:31:35] **speaker_0**：他非常傻逼。对，所以就有人说有人说这能证明什么吗？就是你比如说在黑人历史上出名的运动领袖，几乎要么是和宗教相关，要么就直接是宗教出身。
-- [02:31:52] **speaker_0**：比如马丁洛德金，他就是牧师，他是牧师出身。
-- [02:32:00] **speaker_0**：懂吗？就是为什么他这种人敢和白人硬刚呢？他是怎么建立对白人的自信心和优越感呢？就是我信上帝信的比你们白人还虔诚，你们白人不如我，这几乎是所有的黑人，唯一能够成体系，对白人建立心理优势的唯一方法。
-- [02:32:22] **speaker_0**：几乎是唯一方法呃，感谢这老哥打赏，这不就是和达迪特顶班差不多的底问。啊，这套底问和达利特顶班还不一样。
-- [02:32:36] **speaker_0**：这所谓的二等人优烟物，它本质上是当奴才。所以这里就要讲到一个困思困，就是困惑大家很久的迷思。我给大家讲一下。
-- [02:32:49] **speaker_0**：我们中国人对欧美人，尤其是昂萨国家，最愤怒的一点就是他们好像看不到我们的屈辱史，是他们造成的。
-- [02:32:59] **speaker_0**：就是我们一讲什么南京大屠杀，我们一讲什么八国联军，我们一讲什么八英法联军。是当我们在讲述我们的苦难的时候，我们民族的苦难的时候，我们的共同记忆的时候。
-- [02:33:18] **speaker_0**：你们会发现美国人尤其是欧美人昂萨系的国家，他们的表现态度就非常的暧昧，或者说他不把你当一回事儿。
-- [02:33:30] **speaker_0**：我跟大家说一下，我就现在给大家抛拳，为什么他会这么觉得，就是他不把你当回事儿。跟大家讲，就是二等人优越问的一个非常重要的问题就是。
-- [02:33:46] **speaker_0**：你们白人历史上欺负过我们，对我们造成过伤害。我们中国人是把这种对我们的欺辱和伤害当做历史写在书上。我们要奋发图强，有一天报仇，就是它本身只是一种记号。
-- [02:34:05] **speaker_0**：是一种记录，是一种历史。但是在美国人，尤其是欧美昂萨国家，他不是这么认为的。我告诉你，这种东西本质上是证明什么呢？是被他们用到二等人优冤论里头。
-- [02:34:20] **speaker_0**：我告诉你是什么逻辑，就是他就是你的就是比如说一个主人，他的老奴才来找他，他说您能不能给我加点钱，是您能不能让我管其他下人。
-- [02:34:34] **speaker_0**：人主任说，为什么呢？您看看啊，我的祖祖辈辈是吧？都都都孝敬您，都供奉您，都给您家干活。我们吃了多少多少苦，我们遭了多少多少罪，就是他。
-- [02:34:49] **speaker_0**：他把白人对他们造成的伤害，当成了自己的荣誉勋章，当做邀功的资本，当做钉钉打卡的记录。就是你看老板，你看主任，你得给我加工资，你得让我当二等人，凌驾于其他非白人之上，为啥呢？您看您的奴才，我在您手底下遭个多大的罪。
-- [02:35:12] **speaker_0**：伺候您伺候的多好，就是他把本民族在白人手里面遭受的苦难当做了邀功的资本。
-- [02:35:26] **speaker_0**：对，就是被解救的江哥，你们那个老管家。对的，如果大家没有看过被解救的江哥的话，可以去看一下。就是说白了就是你们白人欺负过我，你得给我补偿。
-- [02:35:38] **speaker_0**：现在大家能理解为什么一个黑人不去领救济会被其他的黑人打了吧，这就是我当二等人的资本。
-- [02:35:49] **speaker_0**：白人欺负过我，这是白人给我的补偿，这是我作为二等人最优越的证明。
-- [02:35:58] **speaker_0**：所以你要知道，当昂萨国家在国际社会上听到我们受的苦难的时候，你知道在白人心里，他不是没有听到他在国内听过太多遍了。
-- [02:36:12] **speaker_0**：啊，这是啊，你要好处是吧？啊，行行行行行，我给你点好处啊，你别逼逼了啊，你你你歇会儿吧啊，你这样的奴才，我没有一万也有8000。
-- [02:36:23] **speaker_0**：啊，你说什么我欺负过你啊，行行行，我给你转一点产业，我给你发点补助，我给你点国际低息贷款行了吧啊，就是他吧就是他为什么这么觉得，因为在他的国内里面有大量的这个来自于这个种族的低下民族，低等民族。
-- [02:36:43] **speaker_0**：把自己本民族从白人那遭受的苦难拿当做邀功的资本。
-- [02:36:51] **speaker_0**：所以这就是白人不是听不到我们的呼喊。白人不是无视了我们的苦难，而是他理解我们的苦难和我们理解我们的苦难不是一个东西。
-- [02:37:07] **speaker_0**：就是现在美国人可能稍微回过路了啊，你们中国人讲述这种苦难是为了复仇，不是向我邀功。
-- [02:37:17] **speaker_0**：这就是为什么说说说十几年前美国能搞出G two这种抽象玩意儿来，就是看哈你给我打了这么久的故，我们历史上也欺负你欺负的很惨。来吧，你想不想当二等人的领班啊，就是你是二等人啊，其他人都是其他的低等人，对吗？
-- [02:37:37] **speaker_0**：我们拒绝G two的时候，美国人还破防，为什么？就是你他妈的不是成天跟我说你有多惨吗？你不是成天他妈的跟我说，你是发展中国家吗？发展的有多难受，我让你当二等人领班，你怎么还不顶情了呢？
-- [02:37:57] **speaker_0**：对吧？感谢ZZP老哥打赏是吧？我为通过皈依伊斯兰教成体系斗争的黑人是存在的这是著名的黑穆斯林运动。这个运动最著名暴力的果实就是阿马尔科姆那个不行。
-- [02:38:11] **speaker_0**：这是黑人能提的话题吗？不行，马尔科姆话题在在美国几乎是不能提的话题啊，就是美国人现在回购啊，你铭记历史。
-- [02:38:23] **speaker_0**：啊，不是想希不是你你不是希望当二等人顶班，你是希望和我平起平坐，向我复仇，你们懂吗？
-- [02:38:41] **speaker_0**：对，他们认为给钱能谈，我们认为他们要先道歉再死。这是所有的欧洲国家，昂萨系的国家都是这么理解的啊，你不就是有点好处嘛，对吧？你想当顶班，你想当二等人最优越的，就是说白了在他们的逻辑里。
-- [02:39:01] **speaker_0**：历史上被昂萨人欺负的越狠的人，越有资格当二等人，越最当二等人，其他的人是二等人以下。
-- [02:39:12] **speaker_0**：黑人就是这个逻辑，就是你们白人欺负我们，黑人欺负的最惨，所以你必须给我们当二等人的权利，让我们去欺负其他的三等人、四等人。
-- [02:39:33] **speaker_0**：啊，现在大家是不是能稍微理解一下世界上很多国家的抽象操作啊，就是明明他们被美国欺负过。
-- [02:39:44] **speaker_0**：他们为什么在美国面前还那么卑躬屈膝？就是他们当他们谈到美国人对他们的欺负的时候。
-- [02:39:53] **speaker_0**：他们不是想复仇，他们是为了向美国人证明我应该当二等人。
-- [02:40:04] **speaker_0**：就是你欺负我越惨，我二等人就越优越。我作为二等人就应该是最优秀的。其他的种族得往三等四等排。
-- [02:40:23] **speaker_0**：哎呀，你欺负我了，他有点类似于什么呢？就好像一个穷人啊，被黑被被有钱人撞了，是吧？
-- [02:40:34] **speaker_0**：撞的他越惨，他越能从有钱人的恶意就是要一大笔钱，你们懂不懂你是老爷，我是管家，我他妈要欺负仆人。对。
-- [02:40:51] **speaker_0**：是吧？对以日韩为什么那么破防是吧？我们给美国当奴才才有今天的地位。你中国凭什么没有当奴才，也有今天的地位了？
-- [02:41:05] **speaker_0**：比就说那美鬼子哭原子弹是不是相同的道底？对的，就是美日本是不是狼子野心呢？日本是狼子野心的。但是在美国彻底倒之前，他每一次讲述原子弹都是在跟美国表中心，实际上。
-- [02:41:31] **speaker_0**：就是我们讲黑人黑人这种优越感是最强的。所以你可以看到黑人一方面成天说白人欺负欺压他们。
-- [02:41:44] **speaker_0**：那你觉得他就他就会做做种族平等的事儿吗？不是的，我就这么说，种族歧视黑人是比白人还严重的。
-- [02:41:53] **speaker_0**：我告诉你，对对其他的种族的种族歧视，黑人比白人还严重，见过太多这种黑人同学了。
-- [02:42:06] **speaker_0**：对吧我和我和黑哥是吧啊，我俩还算叫法兄弟呢，是吧？我们一起吃个饭啊，聊个天儿啊，出去看个电影啥的。
-- [02:42:18] **speaker_0**：经常有其他的黑人跑过来，就是问黑哥，为什么我和他在一块，就是就你怎么能和一个中国人当朋友呢？
-- [02:42:31] **speaker_0**：就是不止一次在大街上是吧，在学校，在图书馆就就表示很惊讶，是吧？
-- [02:42:49] **speaker_0**：你怎么能和黄皮猪当朋友呢？是吧？对，秃的一匹。然后这个时候我们就一起把小白帽戴上，你知道吧？
-- [02:43:08] **speaker_0**：有时候啊对，也有可能是黑人想法这么扭曲，是因为没有这种想法的，可能都死在种植园里了啊，活着的都是接受这种思想的。
-- [02:43:18] **speaker_0**：这是黑人，就是黑人的二等人优越位是最强的啊。
-- [02:43:30] **speaker_0**：种族隔离，现在虽然说法律上没有种族隔离啊，但是精神上的那种看不见的种族隔离实际上是存在的。
-- [02:43:45] **speaker_0**：社区不就是这样的表现吗？是啊，今天珠宝哥嗯。
-- [02:43:52] **speaker_0**：感谢这个哥打赏昂萨可能也是最近十来年才意识到，对于我们来说，没有他们我很重要。这时候他们才想起来，我们也是康米大旗的传人，遥远的东方有上帝之边，他们不体面就帮他们体面。所以他们尤其是欧公子对软硬不吃，油盐不尽的，我们态度是又恨又怕，又没有什么办法。大概老美大概老美黑人也因此看我们特别不不顺眼。
-- [02:44:19] **speaker_0**：某种程度上你别说还真是讲道理啊，这个毕姐就是江哥是一部好电影，建议观看。
-- [02:44:34] **speaker_0**：然后我们再讲说除开黑人呢，我们再讲讲华谊啊，就是大家听过一个非常经典的说法吧，就是美国铁路的每一根枕木下都埋着一个华工。
-- [02:44:49] **speaker_0**：就是在美国的华人政治生态当中，这句话其实和狗哨差不多。
-- [02:44:59] **speaker_0**：就是这是一句非常经典的美裔华人，就是美国华人向美国白人邀买的，就是邀宠的这么一个话术0元。就是你不要觉得意外说美国人完全不在乎我们遭受的苦难。因为在他们看来，就是你遭受的苦难都是向我要价的资本，而且要价都还挺离谱的。。
-- [02:45:27] **speaker_0**：就是这个这这我们遭受的苦难早就被美国华人消费完了。等下我个打扫看一下。
-- [02:45:46] **speaker_0**：哪位老哥点歌我看早就被消消费完了，所以。
-- [02:45:56] **speaker_0**：美国华人就是特别希望我们死是吧？就是他对我们不跪着，他们是最难受的。就是因为我他因为苦难时不能被他们拿去邀功，他们简直难受疯了，你们知道吗？
-- [02:46:14] **speaker_0**：明吗？就是你们为什么显得那么强大是吧？你就不能乖乖的展示一个非常贫穷的落后的中国吗？你们不落后，你们不贫穷，我们怎么向美国老爷要好？美国白人老爷要好处呢？你们为你们老中为什么不死一下？
-- [02:46:39] **speaker_0**：就是中国越强大，美国华人就越破房。
-- [02:46:50] **speaker_0**：我就这么说，就是一个足裔在美国受宠的程度，被受重用的程度是和自己国家实实力相成反比的。
-- [02:47:02] **speaker_0**：就是你的国家越惨越弱，越悲哀，他相应足裔的人在美国就越能证明自己是优越的二等人，去要好处。老中越强，美国华人就越破房。
-- [02:47:19] **speaker_0**：大家还记不记得我以前说过一个理我，就是随着老中越来越强，美国华人向向向白人老爷解释，为什么他们不留在中国而选择来美国，越来越苍白。
-- [02:47:34] **speaker_0**：本质上就是这样的。
-- [02:48:03] **speaker_0**：华人就是对中国人最破防，就是你为什么不死，你为什么这么强？你这么强，让我们我们都不能消费我们的苦难了。
-- [02:48:16] **speaker_0**：就是中国的强大站了起来，让美国华人消费不了我们共同的苦难。这对他们来说比杀了他们还难受。
-- [02:48:32] **speaker_0**：懂吗？就是为什么美国华人编撰的中国谣言是最他妈抽象，最他妈逆天的。
-- [02:48:40] **speaker_0**：什么集中营啊，这那那这的就是他必须把中波描写的悲惨无比来粉刷一下，否则他们在美国国内实际上被人踩的太狠了。
-- [02:49:01] **speaker_0**：想当狗儿不得。
-- [02:49:16] **speaker_0**：就是他的本还有一点还有一点是什么？还有一点是政治影响力。西大把这些族裔的人就是来影响他母国的政治生态与政治环境。是但是东大这个状态你影响不了。
-- [02:49:33] **speaker_0**：显得这些人很蠢，你又没有用过，为什么要重用你？是的。
-- [02:49:45] **speaker_0**：这就是二等人优越棍的一个非常的核心的观点，就是你必须越悲惨，才能越证明你优越。
-- [02:50:07] **speaker_0**：那么这是华人是吧？黑人，由于他们没有一个共同的母国，非洲也没有什么强大的国家可以依靠。所以非洲人非裔这种情绪还不强烈，但是华裔这种情绪就非常非常的强烈。
-- [02:50:28] **speaker_0**：华谊这种强情绪强烈到无以复加。
-- [02:50:47] **speaker_0**：这是这是华人，我们再说阿美人是什么思路呢？阿美人的种族优越棍就更奇葩。
-- [02:50:57] **speaker_0**：啊，不是拉美人，他一直在强调自己一个什么身份呢？我们是印第安人的后代。
-- [02:51:11] **speaker_0**：感谢今天确学大老哥打赏，而且契丹的强大，经历了比北美华人更严重的苦难。你同时你总不能让北美华人承认自己的选择是错的吧。本身就是一群在东亚活不下去，讨生活和贪官污吏反封建反建制的封建后代啊，是啊。
-- [02:51:47] **speaker_0**：那还有我们说华裔是这样，那还有其他主义呢？就比如说拉丁义，我们接着讲拉丁义就是他们一直强调自己身，我们是印第安人的后代。
-- [02:51:59] **speaker_0**：啊，就是他们试图当新的犹太人。比如说阿丁义为什么在美国今天发展的如此强大呢？
-- [02:52:11] **speaker_0**：不论是人口足裔的是数量上升，还是质量都会急速攀升。为什么就是他们占据了一个连犹太人都占据不了的角度。
-- [02:52:23] **speaker_0**：就是犹太人说我们被欺负的时候，我们被屠杀被奴役的时候，干这个事的人主要是欧洲国家，以德国为主的轴心国。
-- [02:52:35] **speaker_0**：他实际上很多时候这种优越感没法完全套在美国人身上。
-- [02:52:44] **speaker_0**：但是拉丁人不一样，就是他的他的优越感实在是太强了。就是你看自从你们白人来到北美大陆开始，我们就是受欺压，受到屠杀，被驱赶，吃不上饭，都是你们白人造成的。
-- [02:53:06] **speaker_0**：对吧我们墨西哥的领土也是你们美国人吞掉的。
-- [02:53:12] **speaker_0**：啊，那我们的优越感就是最强的，就是你们白人就是亏欠我们的。我来到这片土地上，我从来不需要感激美国美国白人任何一天任何一件事儿，那都是你对我的亏欠。
-- [02:53:32] **speaker_0**：你新墨西哥州是吧，亚里桑那州、加利福尼亚州都是从谁那割的呀，不都是从我们拉丁人这割的吗？
-- [02:53:44] **speaker_0**：啊，所以拉丁人他是，所以他从人口比例上很快会超过黑人的。
-- [02:53:57] **speaker_0**：啊，非常的恐怖啊，感谢我哥感谢阿肉佩跟老哥打赏啊，看看。
-- [02:54:09] **speaker_0**：啊，回国建设的留学生和华侨VS留在美国的润人belike。
-- [02:54:18] **speaker_0**：不是啊，兄弟，到说没梗子，你能告诉我你都是从哪找的这些东西吗？
-- [02:54:34] **speaker_0**：预期收款20元。
-- [02:54:46] **speaker_0**：，感谢ZZP网哥大赏，我看一下。
-- [02:54:54] **speaker_0**：给大家推荐一部日本经典动画宇宙战舰大核套里面有个抽象宇宙民族加密拉斯人，加密拉斯人看起来是宇宙得三，但是他的取得是伊斯坎德人抓人来的宇宙奴隶，为了方便统治伊斯坎德尔人，给他们编造一个世界观。加密拉斯人是被神选中的赐福民族，收到时能赶到跨越万跨越万难死伤无数，实际上就是星际运奴船的损耗。蓝色的皮肤是民族荣誉的象征，离开母星就会短命的基因缺陷，是高贵的象征。还有个思想刚毅，任何涉及到民族起源真相时，加密拉斯人就会生理上感到恐惧，会不惜一切代价，阻止接受真相。
-- [02:55:35] **speaker_0**：这这是把美国某些人都缝完了，真的神他妈space juice，我靠。
-- [02:55:46] **speaker_0**：太低狱了，我我们接着讲。
-- [02:55:50] **speaker_0**：就是拉丁人的这种二等人优越会是最强的，就是要不是打不过美国白人，他们这种优约会甚至能超过白人。因为反正你的逻辑是谁受白人的苦难越多，谁最有资格当二等人。
-- [02:56:08] **speaker_0**：套这个逻辑，阿美人无敌。兄弟们，他美国放纵阿美移民才多少年啊？
-- [02:56:19] **speaker_0**：现在在现在在加州这种大城市，拉美移民非法移民的暴民敢和移民局对着放枪了。
-- [02:56:30] **speaker_0**：对吧你想一想他们的视力扩张的有多快，他们套攻式太好用了，这群人套攻势简直无敌。
-- [02:56:47] **speaker_0**：那对吧就你在你这套伤害体系公式下，阿美人的攻击力简直就是阿满的属性阿满。
-- [02:56:55] **speaker_0**：版本之子知道吗？惩戒奇知不知道啊，比什么黑人这种狂暴战强多了是吧？那黑人一整个就是不听不听，龙吼奥丁，知道吧？
-- [02:57:13] **speaker_0**：，阿米go就是什么？阿米go就是惩戒旗啊，神圣风暴是吧？神圣风暴代替思考，神他妈又黑惩戒旗，没黑过啊。
-- [02:57:30] **speaker_0**：，对，连滚键盘操作它就完事儿了哎。
-- [02:57:43] **speaker_0**：对，四件套惩戒其太兽鸠毛，知道吗？他对十字军打击神圣风暴审判连滚就行了。
-- [02:58:00] **speaker_0**：就更不要说什么各各式惩戒旗一见红之类的，可以通过拔网线和堵嘴来阻止他们叠buff吗？不可能。
-- [02:58:12] **speaker_0**：你看看美国到现在的take talk上网上，哪怕哪怕拉丁非法移民是最暴乱的一群人。他们在他们在那个舆问场上都是拥有绝对的优势。
-- [02:58:34] **speaker_0**：奉献没豆奉献没豆，我们说这是这是阿丁人。
-- [02:58:45] **speaker_0**：我们再说日韩这种就是我们的母国就是美国的狗。那我们日韩在美国的移民还当狗吗？
-- [02:58:56] **speaker_0**：也是当狗的，就是就是我们本国人就很好笑了，是吧？我们比本国人还好笑。
-- [02:59:08] **speaker_0**：就是啊，中称是吧？中称啊，中称是没有上限的。如果说如如果说母国对美国的中称是是是A加的话，是么？我们我们日韩日韩的那种足裔，在美国的足裔，对于美国的中诚，那就是S加是吧？
-- [02:59:29] **speaker_0**：啊，他们的优越来源和其他的民族不一样。他们的优越来源是就是你们其他族裔都没有我们忠诚，所以我们比你们高贵，就是他日韩不是论证苦难，而是论忠诚度。
-- [02:59:47] **speaker_0**：包括越南译也是，就是他们的论证方法不太一样啊。
-- [02:59:59] **speaker_0**：他们强调什么呢？他们强调就是你看是吧？我我我给您当屠松国当了多久，我们的母国孝敬了您多少钱，对吧？
-- [03:00:10] **speaker_0**：我们是多么忠诚的存在啊，你们我们最有资格当二等人，对吧？我们最有资格当您的家奴。
-- [03:00:20] **speaker_0**：我们不想当佣人是吧？我们想当家奴啊，就是就怎么还不快，就是我告诉你，日韩恐怖到什么程度，就是他们甚至有一种美国怎么还不快点再搞奴隶制呢，是吧？我们好第一时间当真正意义上的奴才。
-- [03:00:46] **speaker_0**：懂吗？就是就是他们是恨不得奴隶制恢复回来的，我不能说全部有相当大的一部分人。我见过很多这种日韩人。
-- [03:00:59] **speaker_0**：啊，当然他们也有存在，就是对中国刻骨铭心的恐惧和仇恨，所以导致他们对美国这么笑。
-- [03:01:12] **speaker_0**：感谢无敌阳老哥大赏，我看一下土色人种以及其他国家是向老美白人诉说苦难，然后争当二等公民。你的邪恶老中是向老美白人诉说苦难，然后让他们当二等公民。
-- [03:01:27] **speaker_0**：啊，对，某种程度上是这样的，他是哄堂大笑，人家不是这么觉得的，就是。
-- [03:01:39] **speaker_0**：我我给大家讲一下，就是美日籍就是美籍日本人，美籍美籍韩国人是吧？我经常打这群人，大家还记不记得就是我打了一个日本人，就是他是回血是吧？爹是美国大兵，妈是那个美国日本女人，我打的那个还记得吗？
-- [03:01:59] **speaker_0**：就是他跟我放狠话，就是说什么，他说等等美军打过去是吧啊，我第一个要你死。
-- [03:02:09] **speaker_0**：我赶紧美国和中国开战，我们好当第一批是吧？冲进中国的人，他们就是这种态度，就是。
-- [03:02:20] **speaker_0**：我的祖国和中国人有仇恨，但是我的祖国相比较，中国人来说太弱小了。比如说灯牌为什么叫乌哥尔？
-- [03:02:35] **speaker_0**：啊，乌龟尔是食人魔，比如说乌龟尔长什么样？因为我因为我长得比较像食人魔啊。
-- [03:02:50] **speaker_0**：大早上比时候食人魔什么样啊，给大家看一眼啊，食人魔长这样。
-- [03:03:02] **speaker_0**：啊，就我我就长这样啊，你们猜猜我为什么想买一身铠甲穿，懂吗？就是。
-- [03:03:11] **speaker_0**：我我就长成这个样子，呃，呃膀大腰圆，又又胖又壮，长得还丑啊。
-- [03:03:22] **speaker_0**：我就差不多长这样，这个很符合我小时候的行为。有如是魔兽世界石魔不这样，这是战锤的食人魔。
-- [03:03:35] **speaker_0**：有说又死人了啊，这不正常吗？这这这我美国哪天不死几个人啊。
-- [03:03:47] **speaker_0**：有时这是什么？这是这是上牙兽，提的这个东西是上牙兽，活名，我没有活名，我哪有回鸣。
-- [03:04:05] **speaker_0**：对，食人魔有混沌抵抗的，混沌抗性比较高。所以你猜猜我在混沌我在混沌魔域里面。
-- [03:04:14] **speaker_0**：啊嗯今天推位大我说呃是好，一言为定，双喜临门，可爱呀。
-- [03:04:29] **speaker_0**：说直接cos董卓。对我穿上我穿上过皇帝的衣服，长得也像董卓啊，这是没有办法的事情。
-- [03:04:41] **speaker_0**：全他妈小白猫，我们今我们讲回了。
-- [03:04:52] **speaker_0**：对于日韩来说，就是他们的优越会来源于忠诚，其他种族优越二等人优越来源于奴役。
-- [03:05:09] **speaker_0**：要是说说润人的情况，哪国润人啊，润人可太多了，也太笼笼统了。
-- [03:05:30] **speaker_0**：这个我我我们讲话就是还有什么种族呢？就是美国主流的，还有什么种族，就是亚裔是吧？黑人。
-- [03:05:42] **speaker_0**：还有拉丁力，还有什么呢？啊，更主流的犹太人犹太人。
-- [03:05:52] **speaker_0**：这就是和我接下来要讲的种族议题相关，就是种族大混炖相关。那么我们说有没有一种方法？
-- [03:06:02] **speaker_0**：结合一下呢啊，什么叫有什么方法结合啊，感谢这老哥打赏，读一下S越听越有懂唐伯虎点秋香开口里开头里唐伯虎和别人在秋香面前争香卖蚕，好进华府当狗的感觉。啊。对，另外要是昂萨和他们的二等人狗腿子，知道我们这边有句话叫做十事之仇有可报。看着腿脚不利索，跪不下去，而且几十年坚持用拳头打出自己的生物，不知道他们会不会开始害怕，已经开始害怕和哈气了呀。。
-- [03:06:34] **speaker_0**：16年就他们就不敢打，以及知道什么叫骨气。至于这些二等人看不过眼，怎么中国能和老美做一桌谈判，用苦难和当奴才的履地来邀功的纯纯种狗，怎么可能怎么可能配合几百年里一直不屈抵抗压迫的苦难，我们相提并论。
-- [03:06:52] **speaker_0**：啊，是啊，他们是当奴才的逻辑啊。那我们就说就是我们能不能把受苦优怨论和人种相结合呢？
-- [03:07:03] **speaker_0**：啊，这什么概念呢？就是我能不能通过取白，因为说一0千0道一万，白人也好，黄种人也好，还是黑种人也好，本质上都是智人。
-- [03:07:16] **speaker_0**：我们可以互相生孩子，那我能不能想一种办法结合我既是白人，又能有受苦优越论呢？就是这种二等人带来的受苦优越论。
-- [03:07:30] **speaker_0**：很好很完美。那么谁是第一个吃螃蟹的人呢？犹太人他们同时又是白人，和和和欧洲白人大量通婚。
-- [03:07:41] **speaker_0**：已经把自己洗成白人，自己又携带大量受苦的buff。你看你们昂萨人欺负我们对吧？你们昂萨人得补偿我们。
-- [03:07:54] **speaker_0**：我们把两种种族buff加到一块儿，我不就无敌了吗？哎，对了，这就是美国种族大官顿。
-- [03:08:03] **speaker_0**：我为什么叫美国叫种族大官炖，而不叫他们什么种族熔炉或者沙拉酱沙拉菜呢？大家知道什么是大官炖吗？
-- [03:08:13] **speaker_0**：大罐炖就是由一种主材提供主要的味道和口感，其他的食材都是它的配菜，其他的食材要从主材料里面吸收味道营养，从而达到自己，虽然不是主食材同样的成分，但是味道和香味和和和各种口和各种时间和主食材是一样的。
-- [03:08:40] **speaker_0**：比如说鱼这就是鱼炖豆腐，豆腐虽然不是鱼肉，但是经过长时间的炖煮，豆腐吸收过鱼的大量的味道和精华，导致它吃起来比鱼还好吃。
-- [03:08:56] **speaker_0**：这就是犹太人的操作方法和一些种族的操作方法。我和白人结婚。
-- [03:09:03] **speaker_0**：我们生出来的后代也是白的，但是他同时又拥有我的血统，可以用受害者优怨问去去向白人要好处，等于是白人群体里面内部出现了一群人，要求比其他白人站的还高。
-- [03:09:23] **speaker_0**：这就是犹太人，为什么犹太人在美国是天工人，不能提，就是他结合了两者的优点。
-- [03:09:36] **speaker_0**：这就是种族大馄炖的问题，就是主食材的味道和精华是会对是会被无限消耗的。
-- [03:09:48] **speaker_0**：就是印证我之前说几期节目说的就是美国白人为什么总和混血白人切割，他为什么总切割自己的基本盘，为什么和白人混血的人不能当白人？
-- [03:10:03] **speaker_0**：关键点就在这儿，就是我没法让你当白人，有一个犹太人就够他妈乱的了，对吧？
-- [03:10:13] **speaker_0**：你他妈的和白人结婚，生了孩子，这个孩子同时拥有白色的皮肤，然后又有你们这种受害者优约问做加持。
-- [03:10:25] **speaker_0**：我玩不起了，我玩不起了，对吧？你是豆腐，我是鱼，你这个豆腐吸收过鱼的太多的味道，吸收过鱼太多的精华。结果你这个豆腐吃起来比鱼肉还好吃哈。
-- [03:10:41] **speaker_0**：而我的鱼肉又得不到补充，两头拿。
-- [03:10:50] **speaker_0**：那我没办法了，我只能切割你，我没法把你当做白人。
-- [03:10:55] **speaker_0**：这就是我说的racs is is expensive，就是种族主义是昂贵的。如果白人还是要继续维持自己压迫其他族裔，给其他族裔设天花板，不让其他族裔和他自己平起平坐，自己想当一等人，那么好了。
-- [03:11:14] **speaker_0**：其他的种族人只能想破打破脑袋，钻牛角尖，也要把自己的血统换成一等白人。
-- [03:11:24] **speaker_0**：微信收看20元，他们有一个犹太人成功，已经很让美国人难受了。感谢老哥打赏。我将来老钟登顶之后，有有没有有心之人也复刻这样操作，还说这样操作已经开始了，有啊。
-- [03:11:43] **speaker_0**：有啊，兄弟们，中国一年合法外合合法涉外婚姻一共是多少呢？是42000多人。
-- [03:11:53] **speaker_0**：如果把非法的也算上，大概是七8万67万六七万七八万的样子，绝大多数就是有的女人连黑都要黑在中国。
-- [03:12:05] **speaker_0**：你们懂我什么意思不？这是合法的，不合法的，一年就是七八万，合法的4万多，不合法的加一起能有个七八万。
-- [03:12:20] **speaker_0**：就目前就是而且这个数字在飞快的上涨，兄弟已经快接近10万亿年了，懂什么意思吗？
-- [03:12:33] **speaker_0**：你人说赶不走，你怎么赶呢？他都给中国人生完孩子了。
-- [03:12:48] **speaker_0**：你怎么撵他走，你要不要问问广西老哥有多少越南女人跑过来？
-- [03:13:05] **speaker_0**：所以我们不能搞血统论，你知道吧？你只能包容他，把他也变成中国人或者是汉人，什么人，越南还好吧。
-- [03:13:24] **speaker_0**：越南越南还好吧，同文同种文同文化圈没有那么难受，真是他妈哎呦，我操。
-- [03:13:41] **speaker_0**：不是哥，这个我不放行不行啊？讲惩戒其已经讲过了，能不能不上这个图，太太太他妈恐怖了。
-- [03:13:52] **speaker_0**：是我知道啊来吧，上一下吧上一下就撤啊。
-- [03:14:07] **speaker_0**：啊，这个这个维维库人还是太他妈重那样级了。
-- [03:14:24] **speaker_0**：下吓吓太他妈好了，支付宝0嗯什么逼玩意儿新最新幻话。
-- [03:14:36] **speaker_0**：魔兽，感谢无敌老哥大赏。
-- [03:14:48] **speaker_0**：哦为你的回名不是小白猫吗？然后上图，你去cos李逵是不是也挺合适的，把手中的斧头换成棒球帽啊，棒球棍小窝怕不是远远的看到你就吓尿一地是吧？
-- [03:14:59] **speaker_0**：我办不成黑旋风理回是吗？目前支付宝到账20元，目前目前最好用的还是戴小白帽，拿国安金是吧？
-- [03:15:22] **speaker_0**：太网神他妈太网易了，我看一下啊，我，感谢退客幕后人老哥打赏，我看一下。
-- [03:15:37] **speaker_0**：啊，我家避暑的地方，重庆是横山镇，一个也就几万人的小镇子，有66个越南老婆，还有一个俄罗斯白妞。我从我妈那听到这个消息的时候，真的大为震撼。小仙女还在那自我感觉良好，国外女的已经开始抄家了，是啊。
-- [03:15:54] **speaker_0**：在东北在东北老家不更多吗嗯。
-- [03:16:04] **speaker_0**：念个呀，然后你的美国啊欧美种族大混队是不是这个样子的上图啊，差不多就大家听又死人了。
-- [03:16:18] **speaker_0**：哎呦哎呦现在是早上几点，现在是早上6点46啊，兄弟我。
-- [03:16:27] **speaker_0**：我操今天没少死人啊，今天今天是个好日子，我人没少死。
-- [03:16:43] **speaker_0**：有点多，但现在大家知道西雅图的治安有多暗好吧，这这这这才这这一早上过去三趟啊，现在。
-- [03:16:53] **speaker_0**：死人大乐透。对，有人火有人帮码头马头现在活不下去了，帮派火并很严重的兄弟。
-- [03:17:10] **speaker_0**：鸡战场是啊，我们讲好这个种族主义这个种族大官盾，就是白人发现每个种族都想上来薅自己一把。
-- [03:17:22] **speaker_0**：其他足裔的有能有才能有文化的人怎么办呢？他去挤占美国底层的白人的生态位，然后娶白女。
-- [03:17:34] **speaker_0**：大家还记不记得我教授的那些朋友们给我推荐的那几个女的，还记得不就是。
-- [03:17:44] **speaker_0**：按照他们那个想法，就是你一个黄种人是吧，给你推荐几个这种是吧？白人不要的歪瓜裂枣，你就应该感恩戴德。
-- [03:17:54] **speaker_0**：这是一个改变你后代血统的机会，是吧啊？
-- [03:18:07] **speaker_0**：就还记不记得那天的妖魔鬼怪问题最小的那个是正正宗大肥猪，知道吗？懂吗？就是这种。
-- [03:18:21] **speaker_0**：白女边角料残次品啊啊，给我们这些啊其他足裔的优秀分子一个上进的机会，是吧？来吧，少奋斗30年。
-- [03:18:36] **speaker_0**：你们信不信？如果我是一个美国穷苦出身的其他主裔的人，我估计就答应了，你知道吗？
-- [03:18:47] **speaker_0**：你只能说感谢我爹挣的钱是吧？能供我上学，你只能感谢我爹是吧？我只能感谢我爹。
-- [03:19:02] **speaker_0**：让我要让我腰板挺的直，我自己也没少挣是吧？那没办法呀。
-- [03:19:39] **speaker_0**：我前女友你们算是行的，我都受不了。哎呀，感谢感谢风吹剑圣美曲就山老哥打赏。劳威昂萨白人，如果从1840年到目前为止，也就185年。
-- [03:19:56] **speaker_0**：就开始走下坡步了，王朝年龄不如代明。如果从他们发家开始算，从1725年开始算，也就300年。王朝年龄不如两汉，我实在不知道昂萨白人蜜之自信是从哪里来的啊，宗教给的宗教给的，他们绝大多数自信都是宗教给的，称他们自己是天选之人。
-- [03:20:24] **speaker_0**：前女友怎么都算不合格是啊，就他那个脾气，他同阶层的美国白人男孩早都受不了了。
-- [03:20:35] **speaker_0**：那不很正常吗？谁受得了他那个暴脾气呀，对吧？也也不是吹牛，就他那个脾气，一般一般男人受不了，我就算温柔的了。
-- [03:20:51] **speaker_0**：讲真，我我我真的是很温柔的人，知道吗？哎。
-- [03:21:14] **speaker_0**：哎呀，这这没办法哎。
-- [03:21:35] **speaker_0**：啊，我们接着讲，就是由由于犹太人利用种族大混顿的属性，这个这种美国现状不叫属性，应该叫现状。
-- [03:21:46] **speaker_0**：成功的踩在了庞萨人头上。那对于其他的想通过娶白人或者嫁给白人，改善自己血统，得到双重buff的人，在美国数不胜数。
-- [03:22:02] **speaker_0**：就是美国白人也没办法，我谁他妈也受不了，总有人骑在自己脑袋上。本来我是一等人，怎么他妈还有人骑在我们一等人脑袋上啊，拿着其他种族的那种亏欠优越论是吧？二等人优越论，再加上白人血统，他妈的反倒骑到我们纯重白人脑袋上了，这他妈能忍忍不了。
-- [03:22:29] **speaker_0**：对吧哎，我没办法。
-- [03:22:43] **speaker_0**：不然而已经是事实了，既定事实很多时候是因为是因为荷尔蒙的问题是吧？
-- [03:22:52] **speaker_0**：我亲爱的，我没忍住射进去啊啊啊亲爱的，我没忍住是吧？就啊这种混血儿是很多的。
-- [03:23:13] **speaker_0**：我们我们我们接着讲，就是我们回来。那么在种族大混炖这套逻辑下，哪个哪个二等人或者说哪个其他的人种效率最高呢？
-- [03:23:26] **speaker_0**：啊，拉丁人就是拉丁人另外一个成功的地方，他们有成为新时代犹太人的可能，为什么呢？
-- [03:23:35] **speaker_0**：因为拉丁人对于其他的底层穷白人来说，吸引力太大了。首先，绝大多数阿丁人都是欧美人和本地印第安人的混血。
-- [03:23:47] **speaker_0**：他们的很多性征，他们的很多样貌，他们的很多三观和脾气都是昂萨人那一卦。
-- [03:23:56] **speaker_0**：所以他们的三观很近，很容易产生感情。其次，昂萨女人要求低啊，不是昂萨女人要求高，拉丁人要求低。
-- [03:24:10] **speaker_0**：哇，拉丁人的要求能低到什么程度呢？请参观讲师，请参观我那两个拉丁小妹。
-- [03:24:20] **speaker_0**：要求非常的低，就是给口饭吃，我就给你生孩子，就这么低。那点的拉丁小妹，大家还记得吗？
-- [03:24:34] **speaker_0**：我给他们的我给他们的待遇其实并不高，我无非就是管他们吃饱，还给他们点钱，就是让他们不至于在街头上出去卖。
-- [03:24:45] **speaker_0**：也就这点标准，他们最后对我的回馈就是我要给你生孩子，就这么苦。你看看讲师，讲师那个德性都有女人，兄弟们，你们想象一下。
-- [03:25:02] **speaker_0**：兄弟们，讲师那个水平，要饭啊都有拉丁，就是他无非就是要饭要的比较牛逼，他有台房车。
-- [03:25:12] **speaker_0**：所以有阿丁女人跟着他，那我就更不用说我把阿丁小回当人是吧，还不欺负他们。
-- [03:25:23] **speaker_0**：就是你想一想，跟昂萨女人比起来，拉丁女人就跟不要钱一样，无过是三观样貌，还符合昂萨人的要求。
-- [03:25:37] **speaker_0**：那你想吧，拉丁人起飞，那简直太快了。你说是不是美国牛排一家也高是啊。
-- [03:25:51] **speaker_0**：尤其是像在我这种兰州那种小资女出没的地方，你们不会以为昂萨女人的要求就低吧。
-- [03:26:02] **speaker_0**：不会的，兄弟们，昂萨女人的要求一样高，而且昂萨女人的要求高到一般的白人，一般的一般的昂萨白人男人做不到。
-- [03:26:22] **speaker_0**：比如说我前女友，他喜欢我，为什么？就是我这种家境远超一般普通白人家庭的人。
-- [03:26:36] **speaker_0**：才能和他平起并坐。普通的底层的基层的白人，完全不符合美国这些小子女的要求。
-- [03:26:50] **speaker_0**：你可以说是新自由主义的魅力啊，还是女权的魅力。不过你怎么说吧，就是昂萨女的要求一点不低。
-- [03:27:00] **speaker_0**：那拉丁妹那就那就跟不要钱一样，白捡是吧？
-- [03:27:14] **speaker_0**：有很像国内小仙女是啊，你对老中男人那么刻板，刻那么刻薄，老中男人只能去外找。
-- [03:27:24] **speaker_0**：对于美国白人来说是一个逻辑，你们他妈昂萨女人要求那么高，我还得我还得想娶老婆呢，我还想生孩子呢。
-- [03:27:40] **speaker_0**：懂吗？那是吧？那你想一想普通的美国老哥们还有什么选择？
-- [03:27:52] **speaker_0**：歪曲呗，至于你说下一代，至于你说下一代当不成白人了，我这一代都活不过去了，还管什么下一代是吧？
-- [03:28:05] **speaker_0**：让下一代去叠buff去吧，对吧？正好下一代同时有白人血统，还能还还能有二等人优越位是吧？证明一下白人对自己其他另外一半血统的欺压。
-- [03:28:19] **speaker_0**：懂吗？更好要条件。你说美国女人也对资本的异化很严重吗？非常严重，兄弟。
-- [03:28:35] **speaker_0**：非常严重，还鸡逼得我前天直播第一次约会就让我娶他是吧？还让我给他出学费。
-- [03:28:44] **speaker_0**：这种要求大言不惭的就敢说，好吧，对吗？对于对对于很多昂萨白人来说，先有先有后人再相信后人的智慧。
-- [03:28:59] **speaker_0**：对，就上一叫TF一样的，好吧，美国美国逆天逆天白女的要求也很多。
-- [03:29:15] **speaker_0**：自己卖自己自己卖自己明码标价也没什么不好是吧？但是那也不是那普通昂萨好哥是吧？普通昂萨白人就没得选了。
-- [03:29:35] **speaker_0**：唉，所以所以就是美国以后一定会变成这种种族冲突的大本营。为什么？因为几乎所有的种族都被美国白人欺压过，每一个种族都是觉得自己是二等人优越问的优有者，我祖上被白人欺负过。我祖上被白人当作奴才过，我祖上被杀害，被白人杀害过，我最有资格当二等人。
-- [03:30:01] **speaker_0**：罗马人之下我第一，我和罗马人一换一懂吧？啊，罗马人之下，我无敌，罗马人之上，我和他一换一。
-- [03:30:11] **speaker_0**：这种感觉那罗马人最好祈祷他们还能占到主体优势。
-- [03:30:20] **speaker_0**：对吧那有一天罗马要是没了，你放心，底下这些二等二等拥有二等人优越论的民族，一定会被争取谁是最正宗的美国人而打出人脑袋，打出狗脑袋来。
-- [03:30:41] **speaker_0**：你放心，美国会和罗马一个死法复刻罗马文献。
-- [03:30:53] **speaker_0**：一定的就是美国白人一旦解这个这个这个这个整体群思想一旦解体，一旦没了。
-- [03:31:07] **speaker_0**：你放心，其他的种族为了证明自己是最优秀的最优越的，一定会复刻这一套。为什么？因为白人本身也是二等人优越问日的受受害者，或者说拥有者，你别忘了在罗马帝国时期或者罗马时期。
-- [03:31:26] **speaker_0**：长萨人或者说日耳曼人是吧，是被当做奴隶，大规模的应用在罗马的。对于日耳曼人来说，我是罗马人最最忠诚的奴隶，对吧？罗马人把我们当狗用是吧？
-- [03:31:43] **speaker_0**：他们自己本身也是信奉这一套的啊，罗马人是天人，天神是吧？我们就是二等人，我们是最优秀的二等人。我们为罗马出过血，我们为罗马出过地。
-- [03:32:01] **speaker_0**：那罗马人一枚那神没了，那我们就成我们就成最高贵的了。那么到今天仍然在复刻这趟国辑。
-- [03:32:14] **speaker_0**：那就是复刻这套逻辑嘛哎。
-- [03:32:35] **speaker_0**：嗯，真的。
-- [03:32:48] **speaker_0**：这里面你可以想象一下是吧？日本人来中国杜种这种这种抽象行为。
-- [03:33:04] **speaker_0**：有说候怎么不讲印度裔呃，我不讲印度裔，是因为印度裔没有二等人优越问，他自己就认为自己是最优越的。
-- [03:33:13] **speaker_0**：他不是二等人优约问兄弟，那个巴嘎特大成营学还是太牛逼了。这个这个巴嘎特不是二等人优约问兄弟。
-- [03:33:25] **speaker_0**：就他们是另一个维度，他他们并不属于今天的讨论范围，他们有点过于超模了，好吧。
-- [03:33:33] **speaker_0**：就就就他们他们不具备讨论空间，嗯，人家在心眼里自己从来没当过二等人，好吧，哪怕他们被大英帝国殖民的时候啊，他们都是觉得他们赢了。
-- [03:33:49] **speaker_0**：好吧，人家不觉得人家讨一天二等人都在自己心里没当过。好吧，这个印度人不讨论好不好？
-- [03:34:14] **speaker_0**：真的这就是印度属于另一个维度。
-- [03:34:20] **speaker_0**：你要知道，二等人优越问的一个非常重要的非常重要的核心工具是自己的种族曾经被白人奴役过，曾经被白人欺压过。问题是印度人自己压根不觉得自己被白人昂萨人欺压奴役了。人家觉得昂萨士人是来帮他建立国家的。
-- [03:34:43] **speaker_0**：就你他脑回顾不一样，你你他妈的没法往公室里套，感心有个打赏。我意的问过问题，在欧美足裔里面的希腊人和意大利人在美国的种族叙势里是怎么个生态位？希腊人不好说，意大利人几乎是最低贱的白人。
-- [03:35:06] **speaker_0**：啊，这个印意大利人是倒数第一，爱尔玩意大概是倒数第二吧，反正。
-- [03:35:20] **speaker_0**：有人说印度至勇大哥，那个他和巴基斯坦的空战被6比0剃头，他都他妈能宣传自己赢了兄弟。
-- [03:35:30] **speaker_0**：你根本就不理解他们的赢，好吧。呃，老A，我做个补充啊，那个意大利人他不是最差的，最差的是爱尔兰人。
-- [03:35:41] **speaker_0**：我觉得爱尔克应该是倒数第二，不不不，爱尔兰他是倒数第一，爱尔兰可是和。
-- [03:35:48] **speaker_0**：和华裔和在希腊的华裔过一桌的，我我是这么想的，你最起码有两个爱尔玩意当过总统，意大利裔还没当过呢，我是这么算的，不不不不，我指的不是他在最高地位上的越跃薪或者什么？因为他实际上不算上限，越过的地位以后不算上，为什么呢？因为他实际上先。
-- [03:36:11] **speaker_0**：越进到了上层的爱尔兰人，最终也被同化成的昂撒人，就那一套体系里的昂萨昂萨系的人。
-- [03:36:20] **speaker_0**：而意大利人他相对于爱尔兰，他相当于相对于爱尔兰人，他比较好的一点就是他第一，他符合了大部分红脖子的那种保守家庭观念。
-- [03:36:32] **speaker_0**：啊，意大利人是很富家的，和东南人很像。然后第二点，意大利人的抱团能力其实比爱兰人强多了。有时候爱尔兰不是爱尔兰水管工，是意大利水管工兄弟，你以为马里奥的形象是胡编冠造出来的吗？
-- [03:36:51] **speaker_0**：呃，然后然后再说一下，爱尔兰人虽然比较开朗，但是他们爱喝酒和爱酗酒导致的爱尔兰亦在希大的整体印象是非常差的。
-- [03:37:03] **speaker_0**：就你甚至你甚至很多人他们会说二郎直直接直接骂他他们drunk，就这样的。
-- [03:37:21] **speaker_0**：哎呀，马里奥你以为呢？mario这是非常点的意大利名字。兄弟，你整个你整个你整个马里奥系列都是他妈刻板印象，好吧。
-- [03:37:38] **speaker_0**：兄弟，意大利最低贱的水管工追一个桃子公主，追一个啊金发碧眼的昂萨公主兄弟。
-- [03:37:48] **speaker_0**：这太我告诉你，也就那个时候也就那个时候社会环境还比较宽容。你现在给做给我做个马里奥出来，我看看你怎么死。
-- [03:37:59] **speaker_0**：兄弟，loigy当然也是意大利人啊，你以为呢marmory和loigy本身就是刻板印象的意大利名字，好吧。
-- [03:38:14] **speaker_0**：你们不知道你们不知道马里奥这个游戏是很恶意的吗？兄弟，意大利水管工去追求一个金发碧眼的昂萨公主。
-- [03:38:28] **speaker_0**：我我我告诉你，很多游戏的很多游戏一开始做出来都是很恶意的，好不好？
-- [03:38:44] **speaker_0**：我跟大家讲过下水美国的下水道是什么样的吧，然后你要扮演一个低贱的意大利人去在下水管道里面探险杀出重围。
-- [03:39:13] **speaker_0**：我告诉你是，有些游戏根本就经不住推敲的那个恶意，简直是爆表的。兄弟，下水道里面有食人花，有鳄鱼，有各种恶意的东西。
-- [03:39:28] **speaker_0**：懂吗？整个马里奥就是最初始的那几版马里奥简直就是刻板印象和恶意大合集，好不好？
-- [03:39:41] **speaker_0**：怎么变强变大，吃蘑菇还还还需要我接着讲那个游戏有多恶意吗？
-- [03:40:02] **speaker_0**：很多东西的恶意程度是爆表的，你凭什么吃个蘑菇能变大吗？
-- [03:40:18] **speaker_0**：你要说你你你做张意大利比意大利披萨在那啊。
-- [03:40:34] **speaker_0**：那还行，也就是当时那个年代，意大利人发声还不是很猛的呀。
-- [03:40:52] **speaker_0**：而且你看他那个马里奥再往上升一阶，他是变成厨子。就是你们意大利人最牛逼的形象，也就是当厨子，你赶紧滚回你的意大利人聚集区去后厨做饭吧。
-- [03:41:13] **speaker_0**：懂吗？你那个能发能发波的那个能能发武器的那个那个那个是是厨子，兄弟是厨子，就是最牛逼的意大利人，也就是当厨子了。
-- [03:41:29] **speaker_0**：早期早期游戏的恶意是吧？
-- [03:41:39] **speaker_0**：你不懂很多文化符号，你不觉着你如果你懂那个文化符号，那个恶意的就都快溢出来了。
-- [03:41:58] **speaker_0**：哎，行，不讲讲讲话了讲什了。这个那种族大官盾，我们说回讲回这个种族大官盾。
-- [03:42:10] **speaker_0**：种族大官顿之前最成功的是犹太人，现阶段最成功的是是是是拉丁人，就是拉美人。
-- [03:42:20] **speaker_0**：o啊，而且我跟大家讲，早晚有一天，早晚有一天昂杀人或者说白人会绷不住的。
-- [03:42:33] **speaker_0**：我我我就我就说个抱问吧，你信不信早晚有一天美国政统在中国，当美国再持续衰过些年头。
-- [03:42:45] **speaker_0**：美国白人实在是受不了这群这这群这群其他种族的人，你信不信美国白人会大规模迁移？
-- [03:42:55] **speaker_0**：迁移回哪儿呢？你们觉得他们会迁移回那个已经被已经被什么穆斯林和黑人占据到欧洲吗？
-- [03:43:04] **speaker_0**：他们大概率只能去两个地方，要不然他们去俄罗斯，要不然他们来老中，就是还记不记得我上次说的，他们得重新定义白人，对吧？啊，中国人就是白人是吧？我白人和找白人结婚没问题啊，中国就是白人国家。
-- [03:43:30] **speaker_0**：有人说这不好吧，你阻止不住了。我就问你就这一代中国男人，现现在从美国来个白妞要找你结婚，你你你你你拒绝的可能性有多大？
-- [03:43:47] **speaker_0**：你不要骗自己哦，你不要骗自己，好吧，要时候看不上。
-- [03:44:00] **speaker_0**：再说吧，中国光棍多着是呢，你不要骗自己就行。
-- [03:44:14] **speaker_0**：有人说候怎么不讲怎么不讲阿拉博义呢？阿嘎博义由于宗教问题，实际上他们很难成功。
-- [03:44:29] **speaker_0**：阿伯弈有宗教问题，他们很难论证自己的二等人优怨论，他们比一般的种族还拧吧。
-- [03:44:40] **speaker_0**：很很很难过的啊，对，碎成很多块之后的拧吗，是吗？
-- [03:44:57] **speaker_0**：是，就是他们的宗教优越感，又让他们无法向无法向一基督教徒接进那个那个低头。然后同时自己的经济基础又迫使他们低头。
-- [03:45:12] **speaker_0**：说白了，阿拉伯人在那反复就是仰卧起坐呢，你看呃我的大阿拉伯帝国。
-- [03:45:25] **speaker_0**：已经没了。
-- [03:45:40] **speaker_0**：呃，实际上据我所知，在西大的一大批拉丁裔。我说的这个拉丁裔应该或者说叫拉丁系的白人，他们是实际上对于。
-- [03:45:55] **speaker_0**：那帮昂萨人是非常非常的烦感和鄙视的。是，就你们知道我说的拉丁戏指的是哪一系人啊？
-- [03:46:08] **speaker_0**：以法国、意大利、西班牙啊是吧？
-- [03:46:16] **speaker_0**：曾经只要是罗马曾经占领过的受罗马文化影响的以及血脉影响的地区啊，但凡有点文化呢都非常鄙视西岛。
-- [03:46:28] **speaker_0**：呜呜呜我的奥斯曼帝国没了。然后对于然后这一帮人对于希大的未来未来希大昂萨人的准备的反攻暴算。
-- [03:46:42] **speaker_0**：我只能说那真是太精彩了啊，那不是一般的精彩，那可太精彩了是吧？感谢似水流年老哥打赏是吧？点播视频，传统美国人被逼的跑到俄斯去了。
-- [03:47:01] **speaker_0**：啊，这个这个额乌开战以后就有了啊，how beautiful is this.
-- [03:47:11] **speaker_0**：miracle literally就之前我跟那个法国哥们，还有那帮那个德国西班牙啊。
-- [03:47:23] **speaker_0**：跟他们聊天的时候，那真的是太有意思了。我的天哪，就你你总能从他们嘴里听成各种各样的王发剂的笑话。
-- [03:47:34] **speaker_0**：啊，甚至甚至那个那个德国德国人他也是拉丁那个拉丁系的啊，最搞笑的一集，感谢金嘉军呃打赏，让我们回想一下最后一个辉煌的伊斯兰帝国啊，是奥斯曼，那没事了。
-- [03:47:49] **speaker_0**：啊，你看土耳其今天那个抽象样子，你你就知道很多阿伯人是实际上和奥斯曼土耳其和和和和土耳其是尿不到一个湖里的。
-- [03:48:07] **speaker_0**：知道吗？这个西班牙现在有点颓，你但凡给西班牙老哥这个不是现在这个样子，你的你的西班牙魔怔人绝对要对着心教徒举刀子呢。
-- [03:48:22] **speaker_0**：我跟你讲的最地域的就是实际上为什么奥斯曼他是他是中国马政统啊，因为他拥有着拥有着对于阿拉伯世界的绝对的教法学辩护权，就监监护权。
-- [03:48:38] **speaker_0**：然后呢，一一个是还有一个就是他他完全继承搜罗马法统及拜占庭帝国的法统。
-- [03:48:48] **speaker_0**：啊，这这是他们自己所承认的这这怎么还有傻逼说奥斯曼和土耳其是两码事，他叫奥斯曼土耳其啊。兄弟，是我头一回听说能把奥斯曼和土耳其拆开的。
-- [03:48:59] **speaker_0**：我操啊开准确的来说，现在的土耳其他都共和了。是你觉得他还多我他还多我马屁德吗？啊，感谢风神剑圣媒你介绍老哥大赏，今天可以润邪恶老中，明天说邪恶老中人是白人，后天就可以化身富尔泰，什么白人，你全家都是白人，老子早就是爱人了。
-- [03:49:19] **speaker_0**：他们玩了一套很纯柔的，比人说他为什么说庆祝圣诞节他会哭呢？这个由于美国的兰州，红州还好一点，我跟大家要解释一下，在美国的兰州现在是一种什么情况呢？就是。
-- [03:49:33] **speaker_0**：由于政治正确，在美国很多兰州其他族裔聚集的地方，你在圣诞节是不能放圣诞歌的。
-- [03:49:44] **speaker_0**：你懂吧？就是啊打引号的不照顾其他种族的那个民族情绪，你懂我意思吧，就是。
-- [03:49:53] **speaker_0**：你不能在就是就是在一些种族主义LGBT盛行的地方，你是不能庆祝圣诞节的。就是啊基督教是白人强加给其他人种的，还记得我说过黑人吗？
-- [03:50:07] **speaker_0**：对，就是其他的种族也有样学样是吧？基督教是白人强加给其他人种的。所以所以为了表示悔过，你们白人为了表示忏悔，你们不能在圣诞节放圣诞歌，就你只能happy holiday,不能happy christma ,merry christmas.
-- [03:50:26] **speaker_0**：啊，就你懂吧？就是对于很多传统的保守红脖子白人来说，这简直就是不可饶恕的。
-- [03:50:35] **speaker_0**：群人在圣诞节不能庆祝基督是吧？嗯，你提起这个啊，我问问下就是加勒比海盗那个。
-- [03:50:48] **speaker_0**：泉那一集那一部啊，最后那个经典场漫，西班牙老哥冲进来，把地方把这个不老泉砸了。
-- [03:51:00] **speaker_0**：这个这玩意儿亵渎耶葛，这是不是新教徒，对于这个传统那什么的刻板印象？呃，也算也也也不错，就是它都沾假，但是它也不是完全那么沾。
-- [03:51:18] **speaker_0**：有或者说他他粘的更多的是心教本身的刻板印象。因为我们首先要讲一个地域笑话，实际上在搞猎污活动的时候，真正搞的最多的其实不是。
-- [03:51:29] **speaker_0**：呃，罗马教廷不是梵蒂冈，而是新教，，就是最保笑的一点就是。
-- [03:51:41] **speaker_0**：我都不好说他到底是串还是豚了，我操，这太串了。
-- [03:51:56] **speaker_0**：是吧你看他说我实在是太幸福是吧？又能重新沐浴在主的荣光之下。
-- [03:52:05] **speaker_0**：Breaking happy Merrry Christmas, everybody from Moscow, Russia., How beautiful is this.
-- [03:52:18] **speaker_0**：就是你你可能不你你们现在能理解为什么美国的劳劳保把俄罗斯当成敖宝神国了吧。
-- [03:52:36] **speaker_0**：就有时候差点归，什么叫差点皈一？人就是基督徒好吗？
-- [03:52:50] **speaker_0**：就是你你说不好，现在美国是还能有多少比例的正常人，俄罗斯不是东正教，也是基督教，你在说什么？兄弟。
-- [03:53:04] **speaker_0**：那呃我其实想说的一点就是低基督其实也是基督的一部分啊，东正教才是正统好吧，东人家叫东方正教。
-- [03:53:16] **speaker_0**：兄弟呃，东正教是以拜占亭帝国开创的，他们之呃是这样，就因为当年当年发生了点矛盾，然后结果罗马他封了嘛，他分成东西了嘛。然后呢，那个校廷一直在西边。
-- [03:53:35] **speaker_0**：啊，然后然后结果蹲开的说我不干了，我他妈每回听你的，我每回保护你，结果教廷还不相信他还各种猜忌他，然后结果他直接单干了，然后结果就。
-- [03:53:48] **speaker_0**：都正叫说来啊，大不首，大概就是这个状态啊，看过这个发面发面饼跟死面饼这整他妈总别太到位了。
-- [03:54:09] **speaker_0**：应该是发面糖饼和豆沙饼，我觉得更像是这样，就是外表上还是一样的，内核不一样。
-- [03:54:25] **speaker_0**：哎呀，可服我了，要时他自己入籍都难。
-- [03:54:36] **speaker_0**：不需要自己入籍都难，他只要生个孩子就行了。比如我个人接受不了豆沙饼，那你看你看。
-- [03:54:45] **speaker_0**：有人爱吃啊，那你咋整啊，对吧？那那。
-- [03:54:54] **speaker_0**：所所以你看我会说啊，迪基督也是基督的一部分，就是这个原则，你说他是不是一部分嘛。那你那那那你看基督教导这种敌我同源的事儿还少啊。
-- [03:55:10] **speaker_0**：唉，我就我我我说回刚才的话题哈，就是你你放心，早晚有一天。
-- [03:55:22] **speaker_0**：美国白人他一定会受不了这种种族大官炖的，每一个种族都从他身上沾点，每一个种族都从他身上沾点。
-- [03:55:31] **speaker_0**：它粘不动，它早晚会粘不动的，对吧？这条就是这条鱼，它早晚有一天要炖烂掉，豆腐有一天吸收的太多了。
-- [03:55:42] **speaker_0**：对吧你又不往这里面加鱼，只往这锅汤里面加豆腐，你多大的一条鱼，最后那个养分也也架不住豆腐吸。
-- [03:56:03] **speaker_0**：啊，老版的事儿，这种种族大官盾你会把白人盾飞掉的。
-- [03:56:22] **speaker_0**：一定会这样，你们你们放心吧，早晚的事儿，白人早白人早晚会受不了美国这个环境，往老中和和和俄罗斯跑的。
-- [03:56:38] **speaker_0**：比人说他们不会往欧洲老家跑吗？你放心，欧洲老家的白人正也也是种族大官炖，欧洲的白人也在被其他的主裔在欧洲这么搞。
-- [03:56:50] **speaker_0**：你不能让美国白人从一个锅里跳到另一个锅里吧，可能往俄罗斯跑的人更多。
-- [03:57:00] **speaker_0**：呃，我觉得不会，因为人都是看经济的，你让他选择是融入融入中国还是受穷。
-- [03:57:19] **speaker_0**：你觉得呢你觉得早几十年，甚至包括现在很多人跑美国，你觉得他是选择融入这个国家呢？
-- [03:57:29] **speaker_0**：还是选择在在在在原来的地方受穷呢，懂吧哎。
-- [03:57:48] **speaker_0**：微信收款20元，感谢我的大赏。告我以后会出现美国出现派送牛奶、白糖炖筋头巴脑、方面饼，谁不吃就杀谁的活。
-- [03:58:01] **speaker_0**：现在就有啊，这还用以后吗？兄弟，我在讲美国部落化的时候，已经讲的很明白了，就是最到最后就是是每一个群体，每一个社区。
-- [03:58:16] **speaker_0**：每一个社每一个小的那种社群都会有自己的标准，并且以此为壑来来互相攻击。
-- [03:58:26] **speaker_0**：那不是很正常吗？那还那还用未来吗？现在进行时好吧，有时候让白人永远保持现状。
-- [03:58:41] **speaker_0**：呃，我不太懂你说的所谓让白人永远保持现状是几个意思？你的意思是还能维持现在的地位吗？
-- [03:59:00] **speaker_0**：那是不太可能的。比如说国内牛排龙子，你要鼓逼他们去兄弟。
-- [03:59:12] **speaker_0**：你要鼓励他们去啊，知道吧？你要鼓励他们润。
-- [03:59:30] **speaker_0**：懂吗？就是应该把他们出清，懂吗？
-- [03:59:40] **speaker_0**：你不要害怕出情，你们想象一下，把这种人留在中国，等到有一天白人跑过来的时候，你猜猜他们会发生什么。
-- [03:59:50] **speaker_0**：你不如把他们先送到国外去，懂吗？就是有垃圾不怕，微信收款30元啊，清理一下就行。
-- [04:00:04] **speaker_0**：感谢我二肉陪跟老哥打赏，我看一下啊啊，又他妈上图，哎呦，我操。
-- [04:00:13] **speaker_0**：哎呦哎这等美食大厨放在西大白人里算是什么水平？
-- [04:00:25] **speaker_0**：等我上一下啊这个。
-- [04:00:39] **speaker_0**：别人都给我上美食是吧？腊肉培根老哥很有想法啊，悉尼大厨太难吃了，给自己吃拉肚子了。
-- [04:00:49] **speaker_0**：你们猜猜这是啥啊，生猪肉咋能吃不吐啊，宝宝快去挂号，不是，这是我做的松饼。
-- [04:01:06] **speaker_0**：啊，等会儿啊，我操那个我给大家看一下松饼是什么样的。
-- [04:01:19] **speaker_0**：就是这等会儿啊，我我我我给大家上张图，我给大家看一下正经的松饼是什么样的。
-- [04:01:35] **speaker_0**：这是这是这位大神做的松饼，有有点有点有点刻意啊，。
-- [04:01:45] **speaker_0**：这是正经松饼，我给大家看一下，右边这个是正经松饼，左边这个是某位大厨做的松饼，大家对比一下。
-- [04:01:55] **speaker_0**：我不知道他加了是吗哎。
-- [04:02:11] **speaker_0**：左边拿什么，我不知道左边拿什么做的，太他妈逆天了啊。
-- [04:02:24] **speaker_0**：我怎么知道他是粉色的，我抽象派大厨呗，仿生身他妈仿生猪肉都来了。
-- [04:02:45] **speaker_0**：哎，我有我我多少有点没帮助，哎呀，我天哪。
-- [04:03:02] **speaker_0**：哎啊，我们我我接着讲就是。
-- [04:03:11] **speaker_0**：我们现在讲到这儿，就是我是我我预判一下美国以后会发生什么，我们再重新讲回，我我们之前讲二等式优越问的时候。
-- [04:03:20] **speaker_0**：我还我还有一个点没跟大家就是呀我再给大家说一下，就是你们知道二等人优越会的一个一个一个缺点是什么吗？
-- [04:03:33] **speaker_0**：它有一个最致命的漏洞，就是二等人优越论最大的问题它是可以无缝切换。
-- [04:03:49] **speaker_0**：他们可以无缝切换，这个是我们要小心的。我之前说美国的白人有可能跑到中国，跑到俄罗斯，他们好歹是一等人。
-- [04:04:09] **speaker_0**：啊，但是大家要明白，如果有一天中美开片，美国输了这些拥有二等人优越论的人，发现白人也不是第一等的时候。
-- [04:04:23] **speaker_0**：你们猜猜他们会干什么？就是我们家的老爷被打败了，说。
-- [04:04:34] **speaker_0**：脊梁股我跟你打，我只能说我只能说行印度故事了，对吧？你说白人，我刚才说的是白人跑过呗。
-- [04:04:45] **speaker_0**：一等人跑过来，我们现在想一想，我们回到二等人优越问的框架里面，这这是感叫日月换新天了，头顶上这片云才换人了。
-- [04:05:01] **speaker_0**：你们猜一猜是白人跑过的比例大呢，还是这些之前的二等人，现在的三等人跑过的概率大呢？
-- [04:05:16] **speaker_0**：你们想一下啊。
-- [04:05:30] **speaker_0**：而且理由是现成的对吧？啊，我作为美国人是吧？你们攻击美国，你们把美国打赢了是吧？哎呀，我遭糕罪了，你攻击我了。哎呀，你们中国人轰炸我了。
-- [04:05:46] **speaker_0**：他玩起这套东西了，已经非常纯熟了，但是不好意思，东大是一个非常非常非常清楚自己应该做什么。
-- [04:06:00] **speaker_0**：所以他们敢搞这种类似于颜色革命的东西，这种这种都不是颜色革命。你说中国国籍很难拿呀，你架不住中国光棍多呀。
-- [04:06:17] **speaker_0**：对呀，所以他们想想想让公大多来点牛排呗，好吧。
-- [04:06:27] **speaker_0**：其实我觉得这也不一定是坏事。呃，我我们要明白这样一个道理。
-- [04:06:37] **speaker_0**：他们他们在加入东坝之后，啊，呃我只能说最好东坝政府要握好教育的武器。
-- [04:06:47] **speaker_0**：对啊，你最好真的保有教育的武器。
-- [04:07:04] **speaker_0**：有时候有人自愿当光棍，你拉倒吧，没有女人往你身上扑，你说这个话很容易。你们想象一下，就拉丁小妹这种女人往中国男人身上扑。
-- [04:07:20] **speaker_0**：你告诉我你怎么拒绝，你不会真以为自己是圣僧吧，这这是。
-- [04:07:31] **speaker_0**：哥们就我就问你，就拉丁小迷粒有人拿着体检报告来找你，我想给你生孩子。你告诉我有几个中国男人就一口回绝说不行。
-- [04:07:46] **speaker_0**：有你别说你嫌累嫌苦嫌花钱，你别说你当时荷尔蒙上头，你能拒绝吗？就拿这个考验你，你这干部经受得住吗？
-- [04:08:05] **speaker_0**：我拒绝我拒绝的都很艰难是吧？中国有多少光棍，你觉得拒绝的比例能有多少？
-- [04:08:18] **speaker_0**：呃，我想反我想说一下弹幕一个事儿啊，就是有人说不要说不要不要说什么五胡乱法和这个啊某些事情的负面，你光看负面影响，其实也有正面影响。
-- [04:08:31] **speaker_0**：就至少至少在民族融合以后，双方的就呃米米赛的武德是提高了好几个量级的。就问题就是融合的过程是不可避免的，有着。
-- [04:08:44] **speaker_0**：矛盾和冲突还要流血，呃这种事情是最磨砺一个民族整体的武德和这个血性的。
-- [04:08:53] **speaker_0**：所以我是很快乐，因我们终于要碰到了几个难题了，困难是魔力人的。
-- [04:09:06] **speaker_0**：磨难磨难，哎，而且大家也不用担心是吗？他融入以后，你只要不是学昂萨那种疯狂的去切混血儿的基本盘，那他们会比汉人还害人呢？
-- [04:09:33] **speaker_0**：好吗？
-- [04:09:37] **speaker_0**：啊，感谢这老哥打赏，那就问他们w Americaica以及套用我之前对清算熬窝的想法，你峨美土地上的都别跑啊，就那种种大米养呃种大豆养玉米呃，养种种玉米养牛得了，反正真放过一定会有大量的冲突，甚至对我们民族主体的冲击，还是别放过来了。
-- [04:09:58] **speaker_0**：啊，哎。
-- [04:10:19] **speaker_0**：就我们要这么想，至少你你要你要你要这么想，就是你的大堂是在民族融合中崛起的。可能说未来未来的过程可能非常的。
-- [04:10:33] **speaker_0**：不太光彩，但是我们所能的得到的人才和回报的比例是更高的。
-- [04:10:43] **speaker_0**：是，有时候民族融合这么一句话嘛，就毕竟有这么一句话。
-- [04:10:54] **speaker_0**：入下为这叫什么啊，入下为下，你都进来了，那你想跑，那就难了。
-- [04:11:07] **speaker_0**：那你这辈子都跑不了，你这辈子都得给东大当当儿子当孙子，这就是恐怖的一点，就是汉文化圈是非常恐怖的。
-- [04:11:20] **speaker_0**：哈哈对呀，就是你不要学哈布斯网是吧？找事搞什么内部通婚哎哎。
-- [04:11:50] **speaker_0**：兄弟，你还觉着国内归男是不够多是吧？你不你不把外国女性放进来竞争一下，你想什么呢啊？
-- [04:12:04] **speaker_0**：哦对了，今天刚好刚好聊到归男这个反面，就是我不知道为什么，就群友群友有点奇怪，就是大家天天都在干骂归男，但是。
-- [04:12:13] **speaker_0**：呃，一遇到一些真一些事儿啊，他就反而归了。就实给我一种很奇怪，就是你明明知道什么事不应该做，但你非要去做。
-- [04:12:22] **speaker_0**：你这是不是有些扭曲了啊，好歹知心合意一下吧，对吧？嗯唉。
-- [04:12:41] **speaker_0**：真的就是别搞什么，他不一样是吧？你先把外国女儿放下来竞争好不好？
-- [04:13:08] **speaker_0**：有人时候就怕陷匿名程度，所以我说的是中美打仗以后打赢了，你怎么不看前提条件呢？
-- [04:13:18] **speaker_0**：呃，我也有一个补充啊，就是呃很多人担心这个外来移民在国内之后会闹事，然后导致一些问题。实际上你要这么想，就是在过去曾经在贵州发生过。
-- [04:13:32] **speaker_0**：发生过少数民族和当地汉人呃过去的汉人的矛盾。但是呃我们知道我在一场暴乱之后，我那个地方变成了汉族。
-- [04:13:43] **speaker_0**：是吧再多的话说机就不太好听了啊。
-- [04:14:00] **speaker_0**：有那不就是白毛中国人，早晚会有金毛和白毛中国人的，你不会以为。
-- [04:14:13] **speaker_0**：你不会以为像孙权那种闭眼子虚而少吧，或者像曹操的儿子曹章那样，黄虚儿是吧？
-- [04:14:22] **speaker_0**：都不少的，你不会以为这种情况不会发生吗？这是已经发生的事情，好吗啊？
-- [04:14:42] **speaker_0**：换句话说，你当东大的地盘是空话费送的。嗯，就我这么说，东大东大的北方一直是一个非常孔雀的部分。
-- [04:14:56] **speaker_0**：就只要但凡跟北方沾上边儿，他都多少占点恐率，为什么呢？啊好难猜呀，有的人嘛喜欢学白人，成天在这切割自己基本盘。
-- [04:15:14] **speaker_0**：学白人学的飞起啊，成天切啊，他不是汉人，他不是什么人，猛猛切比谁切的还快，还搞上美国那一套。
-- [04:15:26] **speaker_0**：啊，感谢似水流年老哥打赏点播视频，观众比老祖宗还迂腐，老祖宗其实不迂腐。
-- [04:15:37] **speaker_0**：呃，我这么说，就实际上你的呃在汉时期的这个曹俑就出现了非常非常以太风急的伏羲啊。
-- [04:15:49] **speaker_0**：好俑就你们知道这是什么概念吗？就是你的在汉时期就已经开始了向外的这个征服和融合了。
-- [04:16:00] **speaker_0**：甚至这个争服和融合非常的成功呃，以至于西北西北现在呃你好，我不知道有没有人来西北看一看，就是嗯。
-- [04:16:12] **speaker_0**：西北这边的人的这个长相相貌基本都是汉人和国人融合的产。就比如说你们你们可以去你们青海啊吃饭了，烧饭店宁夏呀、汉阳。
-- [04:16:33] **speaker_0**：至于至于像孙权那种什么不言不虚啊，这种这很明显的和东夷融合的啥。东夷就是。
-- [04:16:42] **speaker_0**：哎，东移其实就是就是南岛，我没记错，东夷是南岛人不不呃，它有一部分的南导人系统，有一部分的白人系统啊。
-- [04:16:54] **speaker_0**：哎，为什么东为什么这个孙你要向这个东夷抓山岳去充当士兵呢？因为确实相对于汉人，尤其南南南方的汉人，他是更强壮的。
-- [04:17:10] **speaker_0**：跟他们告诉他帮他们把饭点了，我们那饭店还他也等着我呢，帮助点菜。
-- [04:17:20] **speaker_0**：再见再见这不是很正常吗？哪个种俄罗斯族俄罗斯族。
-- [04:17:43] **speaker_0**：有时候东夷人什么样呃，东西。
-- [04:17:52] **speaker_0**：南岛人就是巨石强森那种他们就比怎么说呢？有点大微带，然后比较强壮。
-- [04:18:03] **speaker_0**：然后呢，智力不，加上火了点火了点白人血统，比较忠诚。然后你像那个川蜀那边的那个原来的那边的蛮族。
-- [04:18:15] **speaker_0**：比较好玩，他们他们很像印第安人，就是比较喜欢拿各种羽毛啊，什么骨头啊，给自己做雨饰啊，那种做装饰品啊。
-- [04:18:25] **speaker_0**：呃，然后呢呃那边的人蛮族相较于其他也是比较高大强健壮的。毕竟你们要考虑他们的生活环境，不太高大健壮的是活不下来的。
-- [04:18:45] **speaker_0**：还吗。
-- [04:18:54] **speaker_0**：东夷是山东吗？不是东夷是一大片的统称，因为当时中国的基本盘是很小的，连一个省那么大都没有。你在商周时期是很小很小的。
-- [04:19:08] **speaker_0**：商周自己本身都是很小一片地，连个诸侯国都没有分封都是后面的话，当时的东夷只要是非周人的基本盘，都叫中东夷，懂吧？在东边的蛮人都叫东夷，他是他是一个范围概念，不是一个具体的地理名词。
-- [04:19:36] **speaker_0**：当时的南蛮是周朝很很很久的南蛮，是指河南，知道吗？你知不知道？
-- [04:19:46] **speaker_0**：他那会儿的南蛮和和你想的南蛮都不是一个南，好吧，当时河南都算南蛮，好吧，哎，中原吧中原吧。
-- [04:19:58] **speaker_0**：正常的非常正常。然后宋朝至少我们知道宋朝的时候啊，不见到不见到江到江浙到那个的。
-- [04:20:09] **speaker_0**：呃，到两广的，是是直接被划划分为眉山丸的，那边是出现了眉山丸。你你当时当当时周人的基本盘都拿不下整个陕西，知道吗？西荣很大，有半个陕西都算西荣的兄弟，你想什么嘞？
-- [04:20:28] **speaker_0**：北迪然北北，然后北迪你都到不了，你都到不了，河北再往上，就是北京再往上一点都就叫北迪了，兄弟。
-- [04:20:39] **speaker_0**：，我知道说到说到这个西荣，我就要称赞木工有德了啊，就木工木工见到这个。
-- [04:20:49] **speaker_0**：蛮蛮人啊声欢抢他的马，抢他的玉马，还吃了他的马，生吃了他的马，然后还不仅不仅不杀，还刺酒。
-- [04:21:01] **speaker_0**：就这种德行，后来收服了很多啊所谓的这个这个西戎啊，羌族呀、低族呀作为他的这个部曲和。
-- [04:21:13] **speaker_0**：或说直接被规划成了秦国人，他们从野人变成了古国人。然后秦朝的这个基本盘才起来的就。
-- [04:21:25] **speaker_0**：不要觉得汉汉朝跟秦朝还能学启士，是因为他本身武德就很强。不是的，他是先有基本盘，然后才能起来的。他这个基本盘是怎么来的，就基本就是融合。
-- [04:21:39] **speaker_0**：包括汉朝，汉朝也是融合了很多的西半派，包括少数民族也是融合进去了以后是吧？就哪怕是匈国人在汉朝也是能当王的。
-- [04:21:51] **speaker_0**：也不是不是不不，也也是能够当很高的这个职位的，是吧？能当三公的金密低嘛，对吧？
-- [04:22:01] **speaker_0**：哎，吉米弟还是匈奴王子的有的人啊喜欢切割自己基本盘，他甚至连中国人这个概念是怎么来的都不知道。
-- [04:22:18] **speaker_0**：他连他连汉族奠定奠定汉族的汉朝是吧？啊，项羽也好，这个刘邦也好，都是他妈楚人。
-- [04:22:31] **speaker_0**：在周代那都算蛮夷呀，兄弟，我们自己本身都是蛮夷当家做主。兄弟，你想啥呢？
-- [04:22:42] **speaker_0**：你你们不会觉得胡夫奇射披发所人是什么？就这句话是怎么来的，就包括我蛮蚁也这是怎么来的。
-- [04:22:54] **speaker_0**：啊，就这是一个很地遇的事情。就包括为什么近代有一位大佬也是也是这个这个这个。
-- [04:23:04] **speaker_0**：呃，人家就于老爷子嘛，于右刃啊，为什么要右刃呢？啊，因为右刃是文明的意思，就是。
-- [04:23:12] **speaker_0**：是国人是右刃的树发而右刃的，这是野人是批发而左任的啊，这是分辨国野的区别。看本质上国野，你可以理解为臭外地的用来我们的镐经来来来那什么了，你懂吗？
-- [04:23:32] **speaker_0**：啊，感谢那么老哥打赏，更正一下。随着川渝地区的考古发现，炎黄时期的川渝可能才是正统中原发祥地之一。
-- [04:23:40] **speaker_0**：强细去看看才报出来的资阳蒙溪河的考古，发现还有如果来过重庆，你就会发现重庆这地貌压根就不是自然能形成的。你可以看看河流直接从几个大自然中间流过。之前有教授指出，重庆可能就是大禹治水的结果之一。
-- [04:23:58] **speaker_0**：兄弟，你汉人本身都是蛮夷来的，也是融合了无数的概念来的东西。你现在好好歹把别人当蛮夷了，又不融合了。
-- [04:24:11] **speaker_0**：老祖宗是不顾自不不固步自封的，结果你们搞固步自封是吧？哎，有的人看，有的人光整天骂黄汉的啊，结果连皇汉都不如，连有一些皇汉都不如，真的。
-- [04:24:28] **speaker_0**：至少孙先生孙先生是直接说了五足融合的对吧？就嗯就为什么为什么真正的汉汉族义者是这种是孙先生这种。
-- [04:24:42] **speaker_0**：就因为汉这个是一个概念，只要认同汉文化这个概念，只要认同他的核心理念，那你就是汉人。
-- [04:24:54] **speaker_0**：是这样，哎，有人还说这确是为什么糖能够崛起，因为糖它吸收了很多。
-- [04:25:08] **speaker_0**：很多很多的湖人和这个西鲜卑人，包括南北朝的时候，汉人胡化呃，汉人鲜卑化了以后，也不妨碍汉人在之后又重新规化成汉人。
-- [04:25:22] **speaker_0**：啊，讲个更地域的呃，有文派其实是一个汉化的纤卑呃，汉化的纤卑人，而高欢是一个纤维化的汉人啊，就这么简单。
-- [04:25:37] **speaker_0**：那无所谓啊，以为他说我是汉人，那谁敢说他不是汉人呢？你说是不是嘛？
-- [04:25:47] **speaker_0**：学学学啥都不哎，学美国把就是巴昂萨人最糟粕的东西学啊了切割猛猛切。
-- [04:25:56] **speaker_0**：是吧嗯，宇文泰尽管给他的部下赐了好多鲜卑名，，我家祖上曾经还被赐信为贺兰呢，那那咋了？
-- [04:26:05] **speaker_0**：就是有些人吧，他他双标，你知道吗？就是等到唐朝一说如何，他就又不提他先背血统了。
-- [04:26:15] **speaker_0**：一提某些朝代就我只能说你要是纠结这个，那唐朝那唐朝也不是正统。
-- [04:26:27] **speaker_0**：隋朝也不是是吧，这都沾亲代故的，你让葡豆如你让葡豆如坚怎么办，是吧？
-- [04:26:39] **speaker_0**：感谢我哥打赏，不如想切割民族的话，你身份证至少要是411400和41146的4600开头的对吧？一说就是历史上。
-- [04:26:54] **speaker_0**：哎呀，就是就是强盛的我全要不好的，我全切割，好的那部分都是我的。
-- [04:27:03] **speaker_0**：的那部分就是我就切，蒙就蒙古人他也切就是。
-- [04:27:14] **speaker_0**：为为啥呢？那个那个名用蒙古人参军是吧？胡汉混合就如何如何非要切哪喊，我看。
-- [04:27:25] **speaker_0**：是吧？非要钱，就我我我说一个很地狱的事情啊，你弟太公啊，二凤千古一帝啊。
-- [04:27:35] **speaker_0**：别说是胡人，你你看他你看他当时那个表那个反应他急没急，他当然急了，你才胡人呢，你全家都胡人啊。
-- [04:27:46] **speaker_0**：那为啥呀？对吧汉文化概念就是你认为你是汉族，那你就是汉汉族，那就是这样，我觉得我知那我就是。
-- [04:27:57] **speaker_0**：军正的一个玩意儿，它是个概念，但这无所谓的。就是那就是你爱是汉人，你你是汉人，对吧？
-- [04:28:06] **speaker_0**：只要你你只要你跟我认同相同，那你就是汉。就是你你非要切，你猛猛切切吧。
-- [04:28:16] **speaker_0**：接着切学就是学谁不好，就一定要学昂萨人是吧嗯。
-- [04:28:34] **speaker_0**：圆也不行，虽然忽逼列顶这汉人把把哈哈和林打下了也不行，反正就是切一定要切。
-- [04:28:44] **speaker_0**：呃，不姑必代姓刘啊，兄弟，姑必代是大汉政统啊，你猜大金大元啊，大明啊，不对，大明不算。
-- [04:28:55] **speaker_0**：大今大夏大元都是大汉政统啊，但是代宋为什么不是大汉政统？听话呀啊。
-- [04:29:15] **speaker_0**：大夏市啊西夏宋你的宋就是很多人不提，就是宋是沙头人建立的兄弟。
-- [04:29:32] **speaker_0**：你的你的五代十国里面沙陀人建立的政权是很多的，透着沙陀一系的。
-- [04:29:42] **speaker_0**：那个就有人觉得宋朝好像做正统一样，就现在没有人提，就就是这个这个把宋提到这个正统的概念以后，就好像。
-- [04:29:54] **speaker_0**：没有人再提送的沙陀身份啊。对吧，而且而且你会发现就你你送的这个呃熟的稍大吧。
-- [04:30:07] **speaker_0**：啊，赵大武德还是可以的。你其他你你说过其他包除了神宗啊，神宗哲宗啊，不对，神宗不行，哲宗可以啊。
-- [04:30:16] **speaker_0**：那其他那几位哎，我也不好评价。对呀，就是就是你只能不讲血统，你讲血统，那多少中原王朝都是断的，那多少中原王朝都不正统。
-- [04:30:28] **speaker_0**：你讲血统的下场一定是这样的对吧？你你你你你送的你送的概念是从后堂那继承过来的。
-- [04:30:39] **speaker_0**：后堂是就后周后堂，就是对吧？他们一辈一辈传，你如果去看世戏的话。
-- [04:30:49] **speaker_0**：你你你你你聊着聊着，你就会发现你弟戴宋也不是汉人，对后堂沙陀呀就李克李克用就就是就现在的历史就是好像这就是李克用这个人好像是历史上不怎么讲的。
-- [04:31:08] **speaker_0**：就是很一个比较地域的事情。嗯，就是你的代送啊，你的代送是从五代十国来的。
-- [04:31:15] **speaker_0**：五代十国到底是一个什么样的精神状态呢？我记得我原来曾经说过，就是在五代十国，就是五代十国的抽象是源自于代。那代唐的抽相源自于哪里呢？左传。
-- [04:31:31] **speaker_0**：那为什么要自羽左传呢？因为有这么一个人，他叫杜豫啊，所以说我爱读左传，我我有左传心，李煜是南仓，不是后唐？
-- [04:31:43] **speaker_0**：然后在糖呢就你的超级巨唐啊，好多名人一看哦，文武妙啊，我操牛逼大佬啊，我们一起看左传吧，然后结果哎。
-- [04:31:55] **speaker_0**：唐朝的风俗文化就是呃像果传里一样一样生活啊，然后就出现了经简抽象名场面之，两个仇人见面啊，互相割肉烤肉，然后给对方喂置吃，然后喝酒以后一笑泯冤仇。
-- [04:32:10] **speaker_0**：然后然后也有这种呃像什么士兵士兵呃，将军想吃肉，但是营里没有肉啊，然后辱辱骂一个士兵啊，他全家老祖宗，然后把那个士兵逼急的跟他决斗，然后士兵决斗没决斗过那个将军，然后就被杀到了吃肉。
-- [04:32:30] **speaker_0**：有的说你你从这种环境上出来的，李存茂李存茂是后唐庄宗。
-- [04:32:38] **speaker_0**：感谢风言风雨我哥打赏，真正汉人是涂掉异族富族后融合了无数母族才成就的民族。只要后人像马超一样猛猛屠虎，那他就是正宗汉人。至于父虎母汉嘛，看他们时不识像。
-- [04:32:59] **speaker_0**：真的就是你不要去偷血桶是吧？中国人不是品种狗，谢谢啊，李存旭。
-- [04:33:13] **speaker_0**：为信收看20元啊，感谢宝哥打赏啊，感谢啊金海红老哥夷敌入华夏为华夏，夷华夏入夷敌则夷敌。一群现代人比孔子还古板是吧？
-- [04:33:27] **speaker_0**：看一下视频，这不是。
-- [04:33:40] **speaker_0**：不是帝，这不是帝皇杏软版吗？老表友们，我跟他说，这个我不是头河南河南妹子，这是个河南妹子，那俩一在背后跟他取求我。
-- [04:33:58] **speaker_0**：咦你看这闺女长得真黑，拐过来了吧，我没有吭气。
-- [04:34:07] **speaker_0**：然后她又说，你看这闺女长得合适合，长得还怪好看的。然后我跟他俩打招呼，我说耶爷，今这冷的天，你也出来玩了。
-- [04:34:20] **speaker_0**：然后他俩不敢吭气，他俩心里会想着，我这土生土长的河南小妮，咋会听不懂河南话，咋不会说嘞，是不是俺俩一道去都。
-- [04:34:33] **speaker_0**：打招呼，他也不敢理我，给我笑的。然后我跟他俩说以后后，他俩说哎呀，你这小军说这河南话说的真地道呀，我耶。
-- [04:34:49] **speaker_0**：我都从小都跟这长大嘞，啥我听不懂啥我都会说。老表们，恁说这到底是咋回事，我奶姐长得不像河南的。
-- [04:35:00] **speaker_0**：这高鼻子大眼的，不是还长6白，哪不像河南人，我觉得我哪哪都像河南人。
-- [04:35:09] **speaker_0**：老兵们，我跟你说，今个我不是进城去了，有事啊，我坐公交车。
-- [04:35:15] **speaker_0**：哪俩意该背后跟他蛐求我了，好吧？咦所以你说吧，所以我说吧啊，你看像这种虽然样貌有点跟跟这个中原中原人的相貌有一些差异。
-- [04:35:30] **speaker_0**：但们多多少少还是认同了文化和语言的，有了认同那就好办了。你就说他是不是汉人呢，感谢无敌，好哥打赏看一眼。
-- [04:35:42] **speaker_0**：前几天刚从塔什库尔干回来，讲一个不太冷的冷知识，塔吉克族是中华民族唯一一的一个窝窝巴人种。
-- [04:35:50] **speaker_0**：也是自称龙的传人。是的，你的炎黄子孙也有百种人，然后时间往前推到唐末五代十国，你的大唐孤中也是有不少百种人的。比如于申国、天李胜天本名尉池僧乌波上图，然后给直播间的老哥们推荐这个视频啊，先把这个图上一下啊。
-- [04:36:14] **speaker_0**：看看啊，这个图。
-- [04:36:25] **speaker_0**：核一下，我看看啊，所以所以你说一看大汉政统这个笑话，你头闹闹的不知道多少大大汉政统笑话啊，是，孙先生才是大汉正统啊，孙先生真的是大汉政统。
-- [04:36:42] **speaker_0**：不然他就不会搞五级入合了。哎，这图片怎么保存不下来呢？什么情况？
-- [04:36:57] **speaker_0**：等一下啊，嗯得了，这我这么放一下吧，这怎么。
-- [04:37:09] **speaker_0**：这截图还截不了，就直直接直接上那什啊，长这样是吧啊，白人。
-- [04:37:21] **speaker_0**：那躺袋那股味儿就出来了。哎呀，那你你以为。
-- [04:37:32] **speaker_0**：啊，放一下视频，真的哎，我待会儿想给你们看一看那个西浦的法国人，就在我们陕西这边宝鸡那边的那个法国老法国老公。
-- [04:37:52] **speaker_0**：人家说那陕西话西府方言戳的6人，待会儿你待会儿我发给老A，你给大家放，就你们你们看看那个法国人啊，就是你们还觉得那是法国人吗？从从生活语言各方面文化都是老板。
-- [04:38:11] **speaker_0**：就是老选，那就是中国人，那就是汉人。你你要是会血统是吧？那你你基本盘都切没了。
-- [04:38:37] **speaker_0**：就是不要不要学昂萨人，真的学谁都不要学昂萨人，昂萨人贼蠢。
-- [04:38:54] **speaker_0**：哎呀，有人说大学大学时有金化必眼，是英语四级不及格。我小时候见的多了，好不好，懂吗？
-- [04:39:08] **speaker_0**：哎，不正常嘛？俄语也不会说，英语也不会说，一一嘴东北大碴子味，那不很正常吗？
-- [04:39:28] **speaker_0**：20元，感谢marro培跟老哥打赏？天蓬元帅帐下海豚大将。
-- [04:39:39] **speaker_0**：什么玩意儿？当然我爸的时候配个老婆经常有些逆天新闻，我看看。
-- [04:39:54] **speaker_0**：深圳大梅沙野猪撞人，游客骨折入院，谁能想到海里有猪？
-- [04:40:06] **speaker_0**：还还得有一，我操哎呀，我不。
-- [04:40:22] **speaker_0**：有也猪行啊。
-- [04:40:33] **speaker_0**：哎呀，我天，我真他妈行，我操老爷，我发你的，你到时候给大家放，okK我看一下。
-- [04:40:47] **speaker_0**：我啊支付宝到账30元。
-- [04:41:07] **speaker_0**：我跟你们讲，这个法国老哥啊，每年啊还还在西浦那边收麦子，当麦克，他们家是售麦的。
-- [04:41:16] **speaker_0**：小麦的啊，他帮他那个老丈人收麦的，你可以听听他说话。雷老师，你吃眼吃呀一开眼俺吃。
-- [04:41:36] **speaker_0**：是呀是职业，你是俺代人，我是法国的那你是老外，对，陕西老外是陕西女婿吗？陕西女婿的，你媳妇是俺代的呃，俺媳妇俺媳妇是我啥的宝鸡的。
-- [04:41:53] **speaker_0**：你媳妇跟我子相的吗？哎呀，娘娘娘娘相哎呀。
-- [04:42:03] **speaker_0**：你吃呀不我吃了。
-- [04:42:13] **speaker_0**：有时候当那个高舞组别什么都往汉人头上啊，你看还是他妈往外切割，还记得我那个苏联老师吗？人家就写汉族。
-- [04:42:24] **speaker_0**：苏联才没几年啊，苏联没了。哎呦，我天又一起又一起，早上第你看景灵嘛，第四期了。
-- [04:42:44] **speaker_0**：哎，西雅图的治安啊，我他妈没话说了。哎，第四回了。
-- [04:43:04] **speaker_0**：汉我那苏联老师是不苏联才没个几年，人家身份证上都写的是汉人。
-- [04:43:13] **speaker_0**：你得给你不能你不不要学昂萨人，不给人规划的权利，懂吗？啊，感谢我哥打赏，有个老外道长，在中国久，头发都变成黑的了啊，是啊。
-- [04:43:28] **speaker_0**：啊，呃，不是那个杰克道长，我记得好像是紫袍，是，人家地位还挺高的。死紫袍死袍道长那是最高的气的兄弟。
-- [04:43:40] **speaker_0**：能当拆一团的那种级别，他可以单独出去立个倒挂吗。对。
-- [04:43:55] **speaker_0**：看一下双双江道双江道的老表们，那山药输了，你看那些也没人玩。
-- [04:44:07] **speaker_0**：没人挖，我经挖了，这个和那山药是熟的呀，也美了很啊，可选呀。
-- [04:44:22] **speaker_0**：这还可多了。
-- [04:44:23] **speaker_0**：弄啥了，我得失来，我这玩了，老你好，那我长得像外国人的农民大哥，我们是媒体的，想来采访你几个问题。啊，我这不是啊，我对啊，好，看就是咱这个这个啊，温县的这个这个。
-- [04:44:43] **speaker_0**：药这个可好，咱都是咱这个呃倒地药菜，然后这个也是咱这个四大怀药啥农这我我这农民啊，我在呃采访了，你说农民你这上一次来偷山药，你是来偷山药的吧。
-- [04:45:04] **speaker_0**：你那那些山鱼，我晚点，我给你咋着，中中中，那你拉吧拉吧，拉一车这这这东西，你那些鳝鱼我来点没快转州。
-- [04:45:14] **speaker_0**：这满载而鬼，好想到了老。
-- [04:45:25] **speaker_0**：有啊等会儿有人要这个BV号，我给大家发一下呃这个。
-- [04:45:35] **speaker_0**：啊，肿呃非常中是吧？发出非常重的语气，啊，放那链接链接我直接甩群里个，我直接把链接甩群里。
-- [04:45:49] **speaker_0**：嗯，你们觉得他是中国人吗啊，是吧啊这个也放这是吧，两个两个谁想看谁看，我把这链接甩群里。
-- [04:46:01] **speaker_0**：就是你的认知狭隘是吧，就会导致自己的基本盘狭隘，懂吧哎。
-- [04:46:29] **speaker_0**：他妈出烟了啊，就。
-- [04:46:41] **speaker_0**：兄弟，这个我我我我求求你千万不要有什么纯血的这个概念不太好。
-- [04:47:01] **speaker_0**：兄弟，就你要是你要是玩血统，我这一趟哎呀。
-- [04:47:11] **speaker_0**：我我觉得绝大多数人是不希望上纲，我我觉得绝多数人是不喜欢上纲上线的，真拉你去做DNA鉴定。
-- [04:47:22] **speaker_0**：是吧呃实际上就是真拉DNA鉴定，可能现在呃中原的汉人的血统呃，论汉血统的纯正可能没有大肉之人啊。
-- [04:47:34] **speaker_0**：可能没有塔吉克那边的人宝哥的血很。我我跟我跟某些人说一下，就是某些人他可能是没有学过生物，知道怎么才能得到纯血嘛？就是回教。就是你要和你妈接着生孩子才能才能生出来纯雪。你懂不懂我什么概念？
-- [04:47:52] **speaker_0**：就是有些人张嘴就说一些根本自己就不知道是什么意思的东西。兄弟，纯血是要回交的。
-- [04:48:05] **speaker_0**：纯血是要回交的，懂吗？就是有些人就是张嘴，就是一些。
-- [04:48:18] **speaker_0**：他根本就不懂的逻辑，懂不懂兄弟。
-- [04:48:28] **speaker_0**：是你只能是父女母子传代，你你你懂不懂什么概念，你确定是中国人的伦理道德，会准许这种事情发生吗？
-- [04:48:44] **speaker_0**：怎么你是你你要你要参赛是吧？参赛季害人。
-- [04:48:55] **speaker_0**：你确定你是纯血汉人吗？回已经比就回叫这个行为本身已经比打了巴马还要逆天了。Q。
-- [04:49:07] **speaker_0**：是你到底知不知道自己在说什么，他何乎周底吗？感谢感谢对客幕糊人老哥打赏。
-- [04:49:26] **speaker_0**：啊，不给其他逐一公民权的，麻烦了解一下意大利为啥叫意大利。听说过同盟者战争吗？就是当年罗马把公民权捂着，不给其他非活马人发，然后在罗马军团的同盟者不干了，他妈的一样拼命一样上战场送死，凭什么老子不是罗马人，然后没有公民权的同名者，自称意大利和罗马人打起来了。所以成天讲出血的傻逼，你是想拿着刀去和那些要公民人的公民权的人开片了，？
-- [04:50:02] **speaker_0**：我就是我我劝某些人张嘴就来一些概念的时候，他最好知道自己在说什么纯许，我的妈呀。
-- [04:50:15] **speaker_0**：你知不知道人类是怎么培养纯血猫狗和纯血赛马的？你不要说一些张嘴就来一些极其恐怖的东西。
-- [04:50:27] **speaker_0**：我们中国人是讲周理，是讲礼法的，感谢QQ吃王瓜哥大赏。
-- [04:50:41] **speaker_0**：啊，哦22分50秒到24分，应该看过哪个是我放一下啊，感谢沈老哥打赏，看一下啊，这个看过啊，这个是。
-- [04:50:54] **speaker_0**：看看22分50秒。
-- [04:51:08] **speaker_0**：嗯，等一下22分2240多秒开窗。
-- [04:51:22] **speaker_0**：哦，讲个笑话就实际上现在我知道在我身边有一些啊外国，比说他们在中大生个孩子，然后这个孩子。
-- [04:51:35] **speaker_0**：他们准备选择汉人，哎，而且这是合法的。
-- [04:51:47] **speaker_0**：哎，我只能说有一些人肯定要要愤怒了啊，感谢风神剑圣美女绝山老哥打赏说，这就是纯血国王啊，是。
-- [04:52:01] **speaker_0**：等一下行装老哥，我看一下啊，我先把视频放了啊，我先把视频放了。
-- [04:52:14] **speaker_0**：The North versus00 of China, they local only different races of people.
-- [04:52:24] **speaker_0**：The average height is significantly higher in northern chin as opposed to southern chin, the skin color is different.
-- [04:52:34] **speaker_0**：The language is is basically not decipherable from one another. It's like the dialects are different. The food is different. The culture is different. fucking g Nors.
-- [04:52:49] **speaker_0**：H Chinese is just a categorization Han Chinese is just simply a categorization of like your Chinese. It's like almost like a.
-- [04:53:00] **speaker_0**：Not an ethno religiouslig, but a ethno nationalist denomination and then this is before this is before you also move in, it's like saying white people in America.
-- [04:53:35] **speaker_0**：是吧。
-- [04:53:51] **speaker_0**：老爷问个问题，要不要直接把一个一000人给封进去封啊，你你是你是房管直接封，有些你一天是吧，直接你一天直接封是吗？
-- [04:54:03] **speaker_0**：哎，话说国外近亲结婚严重，老哥老哥，你是刚进直播间吗？你可能没看着我刚才上的图完了，我再上一遍。
-- [04:54:18] **speaker_0**：我给你看看美国南部的人，有人说纯雪，这是纯雪，你看看吧？美国南部喜欢冠文的是吧？
-- [04:54:30] **speaker_0**：你让你们看看他长得有多疼啊，这是这是纯雪兄弟。
-- [04:54:39] **speaker_0**：这是纯雪哥们儿，这是纯血，不让你看看纯雪人是长什么样的。
-- [04:54:48] **speaker_0**：长得是很恐怖很丑的哈布斯堡那个大大铁铲下吧。
-- [04:54:58] **speaker_0**：美国美国南部中南部的那些乡村的那些人是吧？近亲结婚，这还不是这还不是同亲呢，这是不是血亲，就是内部的这还只是什么表亲啊，堂亲之类的结婚就已经这样了。
-- [04:55:16] **speaker_0**：你们是不喜欢纯雪的，最好不要嚷嚷什么陈雪。比如说汉族复系基因的纯度极高，母系伯杂呀，兄弟。
-- [04:55:33] **speaker_0**：你猜猜中国历史上中国的领土是怎么来的？中国的父系是很纯的，母系是很薄杂的。兄弟，你不是纯学。
-- [04:55:42] **speaker_0**：哥们儿，因为中国人在历史上赢麻了，赢了太多种族的女人好不好？你不是纯雪，你只是复系比较单一而已。兄弟，复系单一不叫纯血。哥们儿。
-- [04:56:02] **speaker_0**：你只能说你只能说这片土地上的男人砍人太成功了，征服过太多的女人，那不叫纯雪，哥们儿。
-- [04:56:12] **speaker_0**：这叫纯雪，你看看纯雪人长得有多多长吧，那家族内部回交，征服不了外族女人的才会这样，知道吗？
-- [04:56:24] **speaker_0**：兄弟，这才叫这这种样貌才叫征服不了外族女人改善基因的模样，轨德性，懂吗？像日本那种劣化的基因，就是内部回交的太严重了。
-- [04:56:38] **speaker_0**：父系纯而母系薄杂，就是因为你出去操的女人多，懂不懂？你说这不就是变种人吗？这不是变种人，他恰恰就是因为没变种。
-- [04:56:54] **speaker_0**：基因多样性基因多样性暴跌。好吧，你看看那个霓虹太子，父系来源单一，母系来源驳杂。
-- [04:57:12] **speaker_0**：是很简单的征服者，因为我们祖上是征服者，征服了大量的土地和外来人口的女人才会出现这种情况。
-- [04:57:21] **speaker_0**：好，有时候他们没学过生物。
-- [04:57:34] **speaker_0**：哎，这不是这不上头还有人说自己是纯雪汉人的吗？把自己把自己当赛级品种了。
-- [04:57:46] **speaker_0**：所谓的纯血就是缺乏外部基因的摄入，多样性暴跌。对呀，纯血就等于隐性基因缺陷开会而还是开大会，知道吗？
-- [04:58:07] **speaker_0**：唉。
-- [04:58:23] **speaker_0**：纯水检其实500种，兄弟，不止你说的那种超过500种，那是小型犬，大型犬轻轻松松破千。
-- [04:58:41] **speaker_0**：对呀，纯血基因等同于隐性基因缺陷疯狂回归。是的呀，有说那为什么要纯血马呃，纯血猫纯血狗。
-- [04:58:56] **speaker_0**：因为那是人类某种畸形的审美，果然是那句话，胖局不好看吗。
-- [04:59:14] **speaker_0**：哎，这我不知道有人还他妈以为他是鸡贼呢，妈纯血鸡贼是吧？
-- [04:59:32] **speaker_0**：我求求大家千万不要是说什么纯血之类的，太鸡巴恐怖了。
-- [04:59:42] **speaker_0**：就是没有一点生物学的知识，就拍着自己胸脯说自己是纯血，你最好祈祷你不是纯血。你要是真纯雪，我要报警了。
-- [04:59:57] **speaker_0**：兄弟，真的，你不是你最好别是纯雪，你真是纯雪，那我只能报警，谢谢。
-- [05:00:06] **speaker_0**：支付宝到账20元就咱们正常点当当个正常的，感谢退客幕糊人老哥拿赏。
-- [05:00:26] **speaker_0**：微收看30元。嗯，我看一下啊，说到纯血，我再举个例子，老也应该知道猎豹移植器官是不用配型的，为什么？因为根据基因研究，猎豹最危险的时候只有7个不同的基因样本，所以猎豹是所有猫科动物里幼崽畸形最严重的，而猎豹的基因缺陷也是最多的。猎豹可能是灭绝的可能最最有可能灭绝的猫科动物，非洲猫科动物。
-- [05:00:53] **speaker_0**：行，然后我这边读下啊，感谢QQ私信ID眨眼老哥。
-- [05:01:03] **speaker_0**：你追这解释没意思，你就问他刘邦是楚国人，但他祖父是魏国贵族，落魄了才迁到楚国，而且刘邦不是他父亲正妻生的，他三弟后来。
-- [05:01:14] **speaker_0**：楚王刘娇才是嫡子，还唐，你大汉跟上都不是意义上的正统，那影响我遗汉当五胡吗？是啊。
-- [05:01:22] **speaker_0**：感谢老哥打家赏，我们小学影响最深远的一句话，就是我们班主任教我骂人，说有人骂你杂种怎么办？你直接回怼，你妈你爸你妈，你亲兄妹，你是个纯种啊。
-- [05:01:39] **speaker_0**：啊，感谢风神先生没哥上老哥大赏，看看我的黑白杂交猫是吧？可还行。
-- [05:01:55] **speaker_0**：哎，等一下啊，这是。
-- [05:02:05] **speaker_0**：这收看20元，这是剑圣老哥的猫啊，看一下子，感谢重庆奶牛老哥打赏。
-- [05:02:22] **speaker_0**：我看看借用干借用埃米尔西西奥南的一句话，人类并非生活于国家之中，而是生活于语言之中。正因如此，母语才是我们真正的祖国。人类是依靠语言和共同文化分类出为的种群。这也是老祖宗说的，入华夏则华夏之入夷敌则夷地之的含义，而不是像那些抽象B一样，一天到晚切割这儿切搁那儿的，别到时候自己把自己切了，。
-- [05:02:47] **speaker_0**：啊，是啊，等一下啊，这还有感谢金香秋雪大宝哥打赏，我看一下。
-- [05:03:01] **speaker_0**：啊，给大伙看看我们本土培育的猫猫，这山东临清狮子苗不好看吗？非要纯雪猫是吧？
-- [05:03:14] **speaker_0**：嗯给大家上一下，这是经常窃缺男宝哥的猫。
-- [05:03:34] **speaker_0**：哎，真的就是大家千万别说什么纯血啊。
-- [05:03:47] **speaker_0**：太恐怖了。
-- [05:04:06] **speaker_0**：异色同啊，是啊，有时候好多品种猫又傻又神经又有病，是不是因为纯血？对我就这么说吧。
-- [05:04:17] **speaker_0**：很多纯雪生下来的又有又有精神疾病，又有那什么疾病啊，这不是你的，这是网上找的是吧？啊，就像秋学南老哥说，这是他找的，他没养猫。
-- [05:04:28] **speaker_0**：啊，但是挺好看的啊，牛头牛头梗那个就更不用说了。
-- [05:04:50] **speaker_0**：你说折尔厄尔是典型的人工培育的，非常恐怖，疾病贼多。
-- [05:05:12] **speaker_0**：哎，他妈哈小白猫主播哈气是吧哎。
-- [05:05:31] **speaker_0**：服了，我也是主是沙皮狗都是兄弟，沙皮狗都是人工培育的，很糖的。
-- [05:05:41] **speaker_0**：啊，来点广来点正经广州吗，什么神他妈正经广州吗。
-- [05:06:02] **speaker_0**：无毛毛那就不用说了。
-- [05:06:15] **speaker_0**：感谢今天雀谢南阳老哥打赏，我们本土的田园犬、狸花猫，还有狮子猫啥的，大部分非常健康。哪像欧美一身病，身体健康，精力充沛。
-- [05:06:26] **speaker_0**：是梨花猫战斗力强，就是因为就是因为它的谱系广啊。
-- [05:06:47] **speaker_0**：那都是真正大自然筛选出来的，好吧。
-- [05:07:06] **speaker_0**：比说沙皮狗是本土豆犬，沙皮狗当然是本土豆犬，它也是经过培育的。好吧，它不是没经过培育的，只不过这种筛选停止了而已，所以它的性状不明显，那种那种畸形性状不明显而已。
-- [05:07:28] **speaker_0**：梨花和大菊肯定是猛中猛啊，那还用说嘛，猛的很好吧。
-- [05:07:53] **speaker_0**：外面狗气0啊，感谢今天去非来宝哥打赏。外面狗其0阿哈斯加萨摩耶哈士奇也挺好，毕竟是北极地区工作权，可惜武汉不能养。
-- [05:08:04] **speaker_0**：你希望热死这种狗啊，他是几他是含带狗，兄弟，饶他吧。
-- [05:08:12] **speaker_0**：有人说为什么二哈傻，你在你在温带和热带地区养寒带的品种狗，也不把他们放出去雪地里玩。你那地方半年一年都下不，几使省得十几二十年都下不了一次雪，你希望它不傻。
-- [05:08:28] **speaker_0**：那不那不有鬼了吗？你在这武汉这冲中国四大火屋之一，你要养你要养寒代工作犬，我的天哪。
-- [05:08:50] **speaker_0**：对的，西伯地亚就不傻了，你来东北养，你来东北养就没事了。
-- [05:09:05] **speaker_0**：啊，感谢小白一支老哥打赏，我看一下，我看看啊。
-- [05:09:17] **speaker_0**：，上图什么图？日本黄氏DNA检测结果流出与贵州某村族谱完美匹配。
-- [05:09:28] **speaker_0**：啊，这有什么新闻吗？我操，这是这是真的啊，不是当年大秦。
-- [05:09:40] **speaker_0**：是吧包括有一些战乱以后，某某某些啊某些中原人论到。
-- [05:09:52] **speaker_0**：润过去当海岛骑兵馆也也挺多的，所以这种事儿倒是不奇怪。2024年6月底。
-- [05:10:03] **speaker_0**：一份标注为而且我还要哎，你说很清楚。2024年6月，一份标注为绝密的基因研究报告突然在学术圈内流传，我怎么没听说？
-- [05:10:15] **speaker_0**：日本宫内厅委托京都大学进行的皇室DNA检测中，竟然发现今天天皇家族的外染色体单被群与贵州黔东南同族聚集的。
-- [05:10:27] **speaker_0**：巴沙巴沙苗寨某支系族谱完全匹配。更惊人的是，寨中珍藏的明代龙氏族谱清晰记载，祖上龙太郎东渡扶桑改姓袁氏啊。
-- [05:10:44] **speaker_0**：消息曝光后，中日两国网友集体萌旋啊，关键证据，日本皇室男性成员特有的。
-- [05:10:54] **speaker_0**：D1B1A2单被群占日本人口不到0.5%。在是在巴沙战红姓男子中检测出率很高达62%。
-- [05:11:05] **speaker_0**：祖谱记载的龙太郎生于洪武25年，1392年，与日本南北朝终结，足地已满统一的时间完全重合。好吗？这种组团的青铜妖刀纹样与京都陆苑寺金阁寺藏图啊藏室图案高度相似。
-- [05:11:28] **speaker_0**：这么一演吗？太扯了吧。然后我再讲一个比较搞笑的，其实。
-- [05:11:39] **speaker_0**：呃，我说的这句话可能会比较难听，也比较隐喻吧。就是你们知不知道，就是其实狼犬就是阿拉斯加这种犬。
-- [05:11:52] **speaker_0**：阿拉斯加有一个非常典型的特点，就是如果他的狼的基因越多，就是或者从狼移传过来的那一部分基因越多。
-- [05:12:02] **speaker_0**：啊，他反而越温顺，越听话。如果是长期的。
-- [05:12:11] **speaker_0**：啊，和其他的犬种杂交以后出现的呃阿阿斯加啊，他的他反而会变得非常的闹腾。
-- [05:12:22] **speaker_0**：啊，就这种notote故体现在你的家具上，家里的一切东西吧。而。
-- [05:12:31] **speaker_0**：狼雀艇占比较多的阿拉斯加，他不会唉。
-- [05:12:51] **speaker_0**：感谢今天秋学咱老哥打赏上图送给润润。
-- [05:13:02] **speaker_0**：送我味，我操，我看看这都是啥呀。
-- [05:13:17] **speaker_0**：可还行，就换句话说，因为狼。
-- [05:13:27] **speaker_0**：或者说狼它本身基因中带着一部分的特性，导致了它在啊构建狼群的社会关系的时候，它是强服从性的。
-- [05:13:42] **speaker_0**：所以导致了大部分犬类永远无法比你狼的和风程度。有时候迅狼。
-- [05:13:53] **speaker_0**：这个是那你以为狗是怎么来的那不就是从狼训来的吗？那不很正常，哎呀，真的是。
-- [05:14:15] **speaker_0**：哎呀，就是所是最后用问政这么半天纯语。
-- [05:14:26] **speaker_0**：我求求大家让种心胸开阔一点，千万别问证什么自己是纯血之类的，是是。
-- [05:14:36] **speaker_0**：千万不要说一些生物学上很逆天的玩意儿，好吧？就是。
-- [05:14:46] **speaker_0**：生物学上不成立的东西，咱们就不要再说了，好吧，不然他不然会有大问题。
-- [05:15:09] **speaker_0**：杂交不好看的，这挺好看的。剑圣老哥这个毛多大呀，真的就我要想一个非常低遇的事情就是。
-- [05:15:26] **speaker_0**：因为因为倭因为倭人的某些人啊，倭人其中的某些人为了追求纯许。
-- [05:15:36] **speaker_0**：他们真的搞了回交，所以你懂的，就大家懂的，你们知道我是我是我是什么态度的对吧？
-- [05:15:48] **speaker_0**：那就是糖完了，兄弟，那真那是那那是那是真的糖，那是真正意义上的唐是人，好吧，不是吧，这么恶心。
-- [05:16:02] **speaker_0**：在日本在本子历史上，这种事发生过很多次了哎。
-- [05:16:13] **speaker_0**：纯血制人纯血之人他他他活不下来。兄弟，纯血之人缺陷基因缺陷太大了。
-- [05:16:28] **speaker_0**：就现在的人类啊，现在的智人啊，呃，我这么说，就是为什么现在的智人会有感冒和发炎啊，这两种性这两种状态呢？
-- [05:16:42] **speaker_0**：，包括流鼻涕和鼻塞这两种状态是因为很简单，因为我们的祖先呃吃掉了尼尼安德克人的雄性。
-- [05:16:53] **speaker_0**：然后又跟尼安德特人的雌性发生了关系，就是这样。
-- [05:17:04] **speaker_0**：然后我们现在的智人基本都拥有了流鼻涕和感冒的能力。比如说欧洲就早有传统，身体不好点，不够白的是贵族跟下人生的。
-- [05:17:22] **speaker_0**：不够纯是吧？哎呀。
-- [05:17:49] **speaker_0**：就有人不是很明白什么叫做回交。那我跟大家解释一下，呃在匈奴服从王化之前，或者匈奴彻底的服从于王化之前啊。
-- [05:18:03] **speaker_0**：为什么蔡文姬会写出悲愤是吧？悲愤诗呢？啊，因为因为他的儿子。
-- [05:18:13] **speaker_0**：就他的儿子在蔡文姬的丈夫去世了以后，及老可汗去世了以后，变成新可汗以后呢，娶了蔡文姬。
-- [05:18:24] **speaker_0**：并且和蔡文姬生下了一个儿子，这叫回交啊，要说一切受周里所教导过的人都无法容忍的一种行为。因为这违背了伦理。
-- [05:18:40] **speaker_0**：我我就这么说吧，就是说白了回交就是爹和女儿，儿子和妈懂吗？感谢今天秋学打老哥打赏。说到匈奴这个，你猜猜为什么张骞被匈奴人抓了之后，狂给他塞女人？
-- [05:19:01] **speaker_0**：改善血统来了，有时候别说他逆天。对，不是我逆天呀，这不是这之前有弹幕说他是纯血汗人吗？那咋整啊？
-- [05:19:20] **speaker_0**：对吧那那这不是这不是直播间有小唐人说自己是纯血吗？那那咋整，就给他科普一下呗，那没办法呀，我我。
-- [05:19:31] **speaker_0**：可能是说错了，要么是蔡文姬，要么是王昭君。但是蔡文姬我记得也般啊，，基本都是这大遇去了那个邮牧那边。
-- [05:19:42] **speaker_0**：新的公主基本都是这个待理，找不着。
-- [05:20:00] **speaker_0**：啊，那位我师说应该是王昭君，应该是王昭君。对。
-- [05:20:30] **speaker_0**：狮子喵，那你猜猜它为什么叫狮子喵，好吧，他长得像狮子，脾气也像好吧，他除光毛是白的。
-- [05:20:55] **speaker_0**：哎，来，我来念一下王昭君的这个历史啊，就是庆元呃庆宁元年啊，南匈吴首领呼韩爷单单于第三次来头自省为帝。
-- [05:21:11] **speaker_0**：汉元帝江良家女子啊，王昭君刺列单于，昭君和呼韩爷单于共同生活了3年，生下一子，取名医图治牙师。
-- [05:21:25] **speaker_0**：为幼日楚国王，期建始2年，乌寒爷禅怡去世，王昭君向汉庭尚书求归汉成帝。
-- [05:21:34] **speaker_0**：是令从湖俗。
-- [05:21:36] **speaker_0**：头牧民族收祭婚制腹驾呼寒爷单于长死，父诸磊若齐蝉于，两人共同生活11年，育有二女，长女名须补居次，次女名当呃当于居次。
-- [05:21:58] **speaker_0**：IC感谢蔡鸟老哥打赏。问题是现在小红书上还有鼓励回老家，有傻逼，你还学傻逼吗？
-- [05:22:09] **speaker_0**：太逆天了，哎，要时不出不出五福，肯定都逆天呀。
-- [05:22:26] **speaker_0**：比时取我妈更多理解为政治操作。或我我们是是这样，你生下孩子是个生理操作，兄弟。
-- [05:22:37] **speaker_0**：哎，我这么说，就是呃如果对于对于唐人是没有理解的话，你可以去看一看金，就是你的大金王朝。
-- [05:22:45] **speaker_0**：它的这个呃回收概率和乱隆概率。
-- [05:22:50] **speaker_0**：有看他里头的基本基本只要是个王，都和周边无数的王妃都有关系。是这样，就是如果你娶欢老妈，把老妈放在另外一个地方和他分居，那叫做政治操作。你和你妈生出来一个孩子，那不叫政治操作。
-- [05:23:08] **speaker_0**：弱智知道吗？那不叫政治操作，哥们儿，你生出孩子，那是一种标准的生理操作。谢谢，我不傻。
-- [05:23:20] **speaker_0**：你不用解释，兄弟，感谢主播学到一个米新名词回京。
-- [05:23:28] **speaker_0**：呃，就这很多人没有生理学和和生物学尝识哎。
-- [05:23:40] **speaker_0**：没办法，就是我就是有些人还是书读的太少了，理工科的有些知识还是得普及一下。
-- [05:23:50] **speaker_0**：以防止就像刚才直播间某些人是不，张嘴就说我纯血汉人，你你最好是不是你最好不是纯血汉人，你真是纯血汉人，我除了报警还能说什么呢？
-- [05:24:12] **speaker_0**：有时候学梦德尔就教过，有些人上生物课是不听课的。你们你们有几个人上生物课，有好好听课的。
-- [05:24:30] **speaker_0**：啊，就我这么说啊，新朝灭亡的有很大一分原因，就是因为后人过于旁实，是至于为什么后人的那些贵人如此的旁帅呢？
-- [05:24:42] **speaker_0**：你就要问一下金朝那些锋芒和呃和这些皇室相关相关人员的中心之间的乱伦乱伦行为的次数和呃朴系之繁杂之之错综复杂的。
-- [05:25:00] **speaker_0**：就就他他们金朝的乱伦乱伦级别就根本不是大家所能够想象的，也不是现代人能够想象的。
-- [05:25:09] **speaker_0**：它的抽象程度已经到达了一种呃通过不断的翻阅和检测DNA来来编排补气的时候，竟然很多都对不上，但是就是莫名其妙有一些就是明明没有任何关系就对得上。
-- [05:25:24] **speaker_0**：的这种状况，已已经能在历史学和生物，尤其是生物历史学上达到一种高峰。
-- [05:25:39] **speaker_0**：老魏照片发直播间里没有啊。
-- [05:25:48] **speaker_0**：啊，不是这猫不是我他妈的，我我把猫撤一下。
-- [05:26:01] **speaker_0**：神神神神他妈神他妈的，哎，我就成天点小白猫吧，你们就点吧。
-- [05:26:12] **speaker_0**：到时候到时候我该到时候我做个周边是吧？做文化T恤衫是吧？我给我给大家看一眼是吧？
-- [05:26:26] **speaker_0**：做手办，做做礼智那个是吧？到时候做T恤衫啊，就做这个是吧唉？
-- [05:26:43] **speaker_0**：那是啊啊有人说这中国有没有，现在有没有还有内部通婚的群体啊，有的有的兄弟有的来给大家看一眼，中国中国在历史上呃也也也通内部通婚的群体，是吧？
-- [05:27:00] **speaker_0**：啊，就是有的有的呃，我举个例子还是新朝啊，有这么一位皇帝，他叫王颜亮啊，然后。
-- [05:27:09] **speaker_0**：马彦亮干了什么呢？呃，他对宗室展开血型清洗之后呢，他还把这个他的这个宗氏的这个。
-- [05:27:20] **speaker_0**：亲啊，还有他们的哪怕是嗯母亲啊，都纳入了后宫。
-- [05:27:29] **speaker_0**：呃，有的是他的堂姐妹，有的是他的侄媳啊，然后呢呃不断的乱伦回交，还有呃各种行为之后啊。
-- [05:27:44] **speaker_0**：他。
-- [05:27:45] **speaker_0**：就是他直接直接被砍死了啊，就我我我本身怀疑，因为在王元亮之前就出现了大量的回交和乱伦的行为。所以我我不妨这么怀疑，就是因为不断的回交和乱伦，导致了王元亮的智商是如此之低啊。
-- [05:28:07] **speaker_0**：至于在政治上一点智慧都没有。然后关于国内现行还有的这个乱伦的这个。
-- [05:28:20] **speaker_0**：呃，不符合周理和正常伦理观念的这个行为是存在的。呃，比如说一些地方。
-- [05:28:29] **speaker_0**：呃，应该说是地方宗族会有这种行为啊，呃而这些地方宗族呃，他们大概率的智商都不是很高啊，我只能这么说。
-- [05:28:43] **speaker_0**：哎，王彦亮就是神经病。
-- [05:28:55] **speaker_0**：完颜亮铁神经病，好吧，你在想什么呢？有人说完年蛋和大正一样神经病，你们不会以为是就是回交的缺陷仅限于生理缺陷吧，他们精神缺陷也很严重的。
-- [05:29:12] **speaker_0**：呃，至于戴青是这个自称为后金，认为是呃后金政策啊，呃我只能说确实蛮符合的。因为他他在他也搞过这个纯血和这个回交乱伦的行为。
-- [05:29:28] **speaker_0**：然后导致了非常恐怖的行为，就是呃他后代的就是他之后的后代好多逆战皇帝都十分的尝试啊。
-- [05:29:41] **speaker_0**：只能说令人感跑，不要搞这种有的没的，真的不要搞这种，不然会变得不正常的。
-- [05:29:55] **speaker_0**：行要午我操12点了，晚安，兄弟们，我操播了5个半小时，今天我操。
-- [05:30:04] **speaker_0**：今天今今今天讲嗨了，我今天播了5个半小时行吗？歇歇午歇，操12点了，明天还上班呢，我天。
-- [05:30:16] **speaker_0**：哎呦，笑吧，兄弟们，晚安晚安，晚安晚安，哎呀。
-- [05:30:27] **speaker_0**：生物学知识多讲讲，嗯得碰上逆天，我就我再科普一下是吧？不碰上逆天也就还好。
-- [05:30:37] **speaker_0**：晚安兄弟们，晚安，行行行。
+- [00:00:01]：滴滴滴滴滴滴滴哎，开过哎呀哎。
+- [00:00:13]：开播开播开播开播嗯，大家晚上好啊。
+- [00:00:23]：哎呀嗯哼哼哼哼哼哼哼嗯。
+- [00:00:34]：呃呃，是他妈放过来了。嗯哼哼哼哼哼嗯。
+- [00:00:50]：。
+- [00:01:00]：大家晚上好啊，这我在这呢吗？听不到我声音吗嗯。
+- [00:01:13]：嗯嗯。
+- [00:01:24]：嗯听到就好，我还以为没声音了。哎呀。
+- [00:01:37]：哎呀，OK完事。
+- [00:01:47]：然后把声音打开呀，听了就卡，不至于吧。
+- [00:01:59]：至于金额就卡吗，我这显示都是正常，看看哈。
+- [00:02:12]：哇嗯啊这可还行。
+- [00:02:25]：行吧，哎喂喂喂哎呀，兄弟们呐，你们可是不知道啊。
+- [00:02:34]：哎呀啊像唱片跳针一样卡，卡的还挺有节奏的。我头一回听说像是唱片跳针一样卡。
+- [00:02:49]：我头一回见到这种形容，我填行吗？这样就好，刷新一下，不会吧，我这显示都正常啊。
+- [00:03:03]：今天有亲身经历吗？有的是亲身经历是吧？
+- [00:03:10]：哎呀，傻逼嘛，在那个那个在美国这个社会遇上傻逼不是比国内还正常的事情。你别看美国只有3亿多人啊，和中国14亿比差，就只是中国一个零头，但是我傻逼的比例，那可比中国高多了。
+- [00:03:28]：兄弟们，光之不似人形，的逆天有的是要多少有多少哎。
+- [00:03:40]：真的，这也也算是赶上好时候了，是吧？赶上这个正在堕过向下的美国，让我看见了人人间人间各种奇景。
+- [00:03:50]：我能说什么呢？我前女友那种算不算算啊，本身就是我遇到的最大的奇葩之一，好吧。
+- [00:04:05]：嗯，正常啊正常啊，不出几个傻逼，你以为你活在你以为你活在梦里是吧？
+- [00:04:18]：只要你备主的人够多。
+- [00:04:33]：就能遇见个股煞逼。对对对对，泪人群星闪耀之时，知道吧？一点不开玩笑的说。
+- [00:04:47]：为人群星闪耀之时，对，各物神仙，斗志和耐性更是技精四座。我告诉你。
+- [00:05:01]：老精彩了，兄弟们真的不开玩笑的，哎呀。
+- [00:05:12]：这个有剑圣老哥点的视频啊，先放一下，剑圣老哥提前点好了，来放一下。
+- [00:05:22]：那也是美国美国的相关视频，两个先看头一个吧，我看看。
+- [00:05:31]：直播间啊，行在直播间人还差不多，哎要先放一下吧。哎呀，什么情况？
+- [00:05:44]：You know, I think the only thing worse than not having health insurance is having health insurance.
+- [00:05:53]：对的，呃，在美国很多人认为有医疗保险比没有还糟糕。 Like we live in a country with the best healthcare care in the world.
+- [00:06:05]：美国啊那什么跟大家说一下，美国有3分之1的人没有任何形式的以往。跟大家说一下啊，美国今天有差不多3分之1到4分之1的人，或者说4分之1到3分之1的人，没有任何形式的那个那个以往，好吧。
+- [00:06:29]：but you cant use it对就是美国人为什么不买医保呢？就是他们看见了美国医保的太多狠活，就是这也不保，那他妈的也不保，什么鸡毛也不保，就不如不买好吧。
+- [00:06:46]：嗯，感谢老哥打赏，我看一下哪位老哥嗯，感谢退坑的幕红人老哥打赏，我看一下。
+- [00:06:59]：嗯，看看那些啊那些找你要秋天第一杯奶茶的傻逼们，群要我给他发这张图就行。
+- [00:07:10]：呃秋茶不是秋茶这个一开始不是秋茶这个暗梗，不是91上的暗梗吗？
+- [00:07:23]：怎么还有怎么还有傻逼洗，有有的女的还喜欢这个梗呢，要奶茶呢。嗯，感谢我哥打赏，各位麻烦看一下QQ私信啊，感谢贵物中的贵物哥打赏，看一下。
+- [00:07:37]：啊，放下这个，这不会又是另一个版本的小白猫之类的吧。感谢陈重的蚂蚱老哥大赏是吧？这个视频能不能放？
+- [00:07:49]：我没看着老哥，你发啥了，这个陈重蚂长老哥，你把你要发你要你要你要放那个视频发我。
+- [00:08:01]：还是你要发的东西被屏蔽了，看不见。
+- [00:08:08]：So我先把这个视频放完视频放 unless you're, you know, whatever Joe Rogan and you're a millionaire and you're you know, oh I got this regenerative therapy I'ma disc in my back and it's only $6000 is like you have to have done because your health insurance is going to cover it.
+- [00:08:25]：I'll tell you what happened to me, its I'm going to try and make it short it's kind of a long story, but this is how screwed up like having health insurance is so if we go back a year.
+- [00:08:36]：My son turned a year old and got dropped off Medicaid now we had a appointment scheduled for him to have tubes put in sea.
+- [00:08:47]：As he was getting constant ear infections, okay, that surgery costs like $11,000 and.
+- [00:08:53]：he was dropped off Medicaid.我跟大家说一下，美国有经常有这种事情，就是在你要进行什么重大医疗手术的时候，保险公司还有那种医疗部门核算了一下，他们觉得你会用医疗补助的总额超额，他就直接给你取消了。
+- [00:09:17]：对你没听错，就是他觉得你会额外多花钱，他就把你的资格给取消了。尤其是在你要做手术的时候。
+- [00:09:33]：Like a week before the surgery was非常精准非常的精准。美国有好多人为什么不再买医保了？就是因为这种情况特别多。
+- [00:09:44]：他可能原来有医保是经历过这种事情，你们想象一下，他还可能要医保吗？懂吗？有人说纯住生。对呀，纯住着schedule and。
+- [00:10:00]：The thing was we had to schedule that appointment like seven months out ass early as they could get him in so if we were to my有些行 me schedule the appointment who knows how long we would have had to wait at least another six seven months and in that amount of time I didn't have time to like find health insurance and all this stuff beforehand because it was literally scheduled for a week later so we paid cash price the cash price was.
+- [00:10:31]：Less than half of the cost of the surgery if you had health insurance to like $11,000 I ended up paying like 5,000 now the only thing about doing that was you had to pay half the price up front so I had to come up with $2500 bucks.
+- [00:10:49]：Half the price, the day of the surgery, which I did, drained my savings and.
+- [00:10:58]：配我跟大家讲，2500美元是绝大多数美国人拿不出来的，400美元都拿不出来，别说2500了。
+- [00:11:08]：啊，2500美元几乎是要他的命了。
+- [00:11:17]：Dme on it collections, I don't really care, but it gets worse because I got health insurance after that and now neither one of our employers offer health insurance.
+- [00:11:32]：er offers insurance for me just the employee and it's expensive and so I don'tI don't have that I don't even have their health insurance so we got a private康 from United Health.
+- [00:11:46]：Right before那个联合健康联合健康就是那个就是那个被路易矶崩的那个。
+- [00:11:57]：啊，他就买了他们家的保险。
+- [00:12:01]：Th happened to him right that I can't say on TikTok So then I start finding out how terrible Uniteded healthcareca is because of that news story right and they start talking about how they deny all these claims and all this stuff which is great because that's what we had and it's literally like the next cheapest option was like at least $300 more a month than what we were paying with them which跟大家一下.
+- [00:12:21]：就是如果你一次性出不起的话，你也可以买医疗贷啊。银行提供高额高息医疗贷，就是你差不多他这种每周还300美元的算是不错的。
+- [00:12:35]：啊，每周还300美元算是呃从总额度上来说，甚至算是不错的这么一个一个贷款。 can afford I can't even afford to pay them alone and pay more then。
+- [00:12:50]：Like a month ago, my wife had to have her goalllbladder taken out and it was pretty urgent like it had to come out soon so they scheduled an appointment for like a week later and I decided to call the health insurance to make sure that it was got to be covered and to see what it would cost and all this stuff now our insurance broker that we went through,
+- [00:13:05]：Told us that we had a $5,000 deductible this was freedom life insurance is a broker I guess that we went through the Fo health insurance plan our agent told us we had $5,000 deductible with our plan.
+- [00:13:14]：Turns out that's not the case the to get a $5,000 deductible would cost an extra $6500 a month to have a plan that came with a $5,000 deductible.
+- [00:13:25]：So for the low price of $1180 a month, you would get the privilege of only owing $5000就是你每个月要额外交1150美元才能最后再做手术的时候再交5000美元.
+- [00:13:40]：比说黑哥每个月还多少？黑哥每个月还4000多，但是他卖蘑菇，你就不要和他比了，好吧，黑黑哥每次每个月还4000多美元，好吧。
+- [00:13:54]：啊，400七八百，反正将近5000多美元，但是他是卖那什么的对吧？他是卖蘑菇的，你你你你你就不要想象说正常人能和他比划。
+- [00:14:05]：Oh did you use it so our insurance brokers.
+- [00:14:10]：Suggestion was to go ahead and have a surgery done And that, you know, you could file for financial aid and the hospital might write off some of the bills and all this stuff. Okay, that surgery cost $15000. then she had to stay of the night at the hospital because vacation. Okay, so far, I've gotten another $12000 almost in bills from that overnight stay.
+- [00:14:28]：we're looking at like感谢我哥打赏。OK感谢李晨光辉Q名夏末小生向啊。
+- [00:14:37]：向老真与邢海老哥在社会讨问题道歉，但是也请具体问题具体分析啊，抱歉，老OK你这又又讨论啥呀，我天27000 that we owe now. And so far the insurance has covered $900 of it。
+- [00:14:54]：Like two months of my premium, that's all they're paying towards it, even though I've paid on it for a year and I've paid them over $6,000 in insurance premiums.
+- [00:15:03]：They covered $900 of the total bill I mean, is that not a scam, I mean, imagine any other business model where they said, okay, you just pay us like an entire paycheck every month and we might cover.
+- [00:15:14]：Something, you know, and even if we do cover, you're still going to owe us like a bunch more money on the debt so the conclusion I made was that I paid these people $6,000 a year for the premium and that doesn't even come with the duckpot I have to pay $100 a month to get the duckpot right?
+- [00:15:28]：If I pay them like $6,000 a year to not even have the duck, why wouldn'tI just put that $6000 in like a high yield savings account?
+- [00:15:36]：use it if you need to have something done啊。还有啊我跟大家讲，就是你在美国说你如果不买这个医疗保险，他给了你一份相对而言比你有保险更低的账单。你把这个钱付了以后，你就会进入一个系统，就是什么系统呢？就是你虽然没有医疗保险，但是付得起费的这么一个系统，就是你会被医院特殊标记。
+- [00:16:06]：就是什么叫你会被医院特殊标记呢？就是你一旦进了这个系统，就是你只要有一次成功性的在保险之外付了钱。
+- [00:16:18]：你几乎就是终生会被进入打入这个系统。在这个系统里面，你被医疗集团处理处理你的疾病的时候，你会被排在最后面。
+- [00:16:30]：就是有保险的人先来，你排在后面。仅如此，从此以后，你的医疗品的价格。
+- [00:16:40]：更高会更高是你被当成凯子。
+- [00:16:55]：原种档啊，对你也可以理解为原种档案啊，人傻钱多送还差不多差不多，他 just pay the cash price because the cash price is like half of what it is if you run your insurance。
+- [00:17:06]：Which by the way is what I was going to do for my wife's surgery, I was going to, well, we does not even use the insurance, we' just cancel it and I'll just pay the self pay price, turns out I can't do that because the hospital will sue you and they find out you have health insurance.
+- [00:17:17]：Because they make more money if they charge your health insurance I mean who wrote that law, we have to ensure her that you're getting screwed, there's no way out of it so it's fun because you know, we're want to try to move soon try to save up money for that so we can have another kid people wonder to why the birth rate is so low.
+- [00:17:31]：Which honestly, I'm not going pay any of this bill either jail I will start paying你看不看这老哥，他准备直接搬家，然后不付钱了.
+- [00:17:41]：这种会让你至于更危险的情况。兄弟，就是我我我坚决不建议你学他哈，就是我不打算付钱了啊，我觉得这个钱不合理。美国法律有规定，就是你觉得这个钱不合理，你可以不付账。
+- [00:18:00]：啊，这个也是很多直人拿出来说的这么一个东西。但是我要跟大家表明，就是这种我觉得不合理，我搬家了，我也不付钱，你千万多加小心，你别落在他手里。
+- [00:18:18]：你比如说你出过车祸或者病危了，那医院很有可能不抢救你直接把你器官给你摘了，然后弥补他们的损失，你懂我意思不？
+- [00:18:34]：比说这些医院也不挨着呀，美国八成以上的医院都属于那么极少数几个医疗财团，所以说你跑不掉，你懂我意思不？
+- [00:18:46]：就是你最好祈祷你这辈子都不要再生病了， if they can design a system that actually works。
+- [00:18:55]：Doesn't discourage scare everybody over you number one cause for bankruptcy is medical debt why is it that人那如果你不是 donor就是美国那个做身份证的时候，他问你是不是 donor就是捐赠者就是你说你如果不是 donor的话他能摘吗？
+- [00:19:11]：他也能摘，兄弟，他强制摘，你欠他钱懂吗？对，就O得这么说，就是。
+- [00:19:22]：但是那医疗财团之间是串通的我这么说，美国前四大医疗财团有两个半呃前四大医疗财团有两个半都和黑石有关系，你懂我意思不？你跑不掉的。
+- [00:19:40]：懂不懂你不要想说什么，我跑到另一个医疗财团的地盘上就没有这些问题了。你觉得他们之间互相沟合的概率大，还是还是把你放走的概率大？
+- [00:19:54]：Because that's all any of this. it's all a scam, it's all designed to screw with you over and take your money the people that have no money gift billion billionaires.
+- [00:20:04]：他他起家跑到东大开工市场的主要主要的起家资金，就是因为他爹当年攒钱，然后花了很大一笔钱在黑石比较糟糕的一次金融危机的。
+- [00:20:17]：这个这个之后最低点购买了大量的黑股票，感谢重庆南京哥打赏是吧？点首哥，我看一下。
+- [00:20:35]：行，我看我等会儿等会儿放啊，先先先放这。
+- [00:20:41]：呃，感谢追老哥打赏。老魏，我想点播两个视频，以及还有个问题。老伟偏远乡村一般基层和家庭医生工作者的压力，是不是有一个视频老说的这么困难？是啊，第二个视频也算和今天晚题主要，就是有点瞎眼和社暴了。
+- [00:20:58]：等会儿这啥呀，等会儿我先先先先把这个视频放一下，等会儿还没我这个还没放完呢。
+- [00:21:08]：This is regarding student loans ift还有那个老哥就是放一个视频，放一个视频，我收一次SC的钱，你要放俩视频就收两次SC的钱。老哥。
+- [00:21:20]：Both student loans you can just be on your way I have been paying on my student loan since 2008, I have never been delinquent, I have never missed a payment and I've always made the payment that is requested and even I've made additional payments or sometimes more than my payment.
+- [00:21:38]：I have been in the forgiveness plan since 200我刚才说这个 forgiveness就是所谓的就是宽恕计划或者饶束计划.
+- [00:21:48]：就是理论上能让你还的学贷更少。听好啊，理论上啊。
+- [00:21:58]：Now when I graduated college with my degree in education, I left with a little under 28000看着啊2008年有28000美元的 student loans.
+- [00:22:12]：I've paid37到了2025年他已经付过37000 back since 2008.
+- [00:22:21]：But I still owe他还欠58000，就是2008年贷了多少钱呢？2008年贷了28000。
+- [00:22:32]：再还了17年以后，到了2025年，再还个38000的情况下，还欠58000哎。
+- [00:22:46]：兄弟们你们想想 the math isn't nothing I'm not great at math, but the math isn't math there so I've actually paid off my student loanss I was rolled over to the save plan and if you aren't aware Sa plan currently is in litigation and it has been in forbearance, which means.
+- [00:22:59]：That you do not have to make any payments and there's no interest accruing however a lovely government has now decided that starting August 1 less than30 days notice interest is going to start accruing on your student loans so yes think about that your loan is in forbearance it's in the middle of litigation law of students.
+- [00:23:14]：But now interest has been approved which means it's just basically going to drive every balance Can you make payments towards just the interest yes of course you can but I've been seeing a lot on TikTok people are like you need to find a way to get out of the save plan Okay let's go see I applied back in January was told I wasn't eligible.
+- [00:23:28]：They would then consider me for some other type of plan Okay well here to is July 10th and I contacted my servicer advantage and they said they don't know they directed me back to student aid because its been more six months they told me to submit an application working on my application it now tells me my repayment plan option Yes my payments are going to double and I'm looking at about 900贷再还17年学贷以后告知自己的学贷每个月翻番要付多少钱要付900美元.
+- [00:23:57]：900兄弟们，你们知不知道900美元什么概念？一个普通美国人，一个月就是4000多出头，税后就是3000多。
+- [00:24:07]：你租房子可能也就1千二三1千四五，现在还学贷要额外还900，你就想想这日子吧。
+- [00:24:17]：恐 it's an estimate the problem I have with this is as of today in the save plan, my forgiveness is now January of 2028 prior to the litigation and everything going in for abearance my forgiveness was January of 2027.
+- [00:24:34]：I still make payments even though I'm not required and those payments do not count towards my payoff, they're just payments if I opt according to the studentai.gov, if I opt to go into the only payment plan.
+- [00:24:46]：I'm given my student loan forgiveness starts over according to this says I will now start again for 25 years, so 300 months, which means my forgiveness now would take effect of May of 2032.
+- [00:25:03]：Make this make sense, make make this make sense to me like I am almost there, so do I just sit in the save plan and pay the interest until the government who has already said they're getting rid of the save plan and then I get forced into something else.
+- [00:25:17]：But then I lose my forgiveness like this administration is really.
+- [00:25:23]：有人说这个这个宽恕计划每个会怎么样？就是他会把你这17年中欠的所有利息在接下来的7年当中都收回来。请听好，就是他是追及数过往的，就是你之前17年没有交过那部分。
+- [00:25:41]：利息他要追回来，甚至还要有罚息，你懂不懂什么概念？这宽恕计划本身是为了减低利息的？
+- [00:25:52]：但是宽恕计划被取消了。那么在这期间里，他所有享受到的减息都要重新在接下来的几年内翻着背，翻着背的给回来，你懂我意思不？
+- [00:26:08]：I'm sorry, but they're trying, they don't want to have an education, they don't want to help you get out of this like I've been paying on my student loan since 2008 with 20 year forgiveness and I am almost there.
+- [00:26:19]：Now they're trying to tell me if I get out of the save plan I start over like there's anybody out there in the world of student loans that's feeling this, frustration, anger, like need anybody need a degree in early childhood education, I will Photoshop my name off and push on there and you can gladly have it.
+- [00:26:36]：这已经是西藏这已经是这个什么封建奴隶是什.
+- [00:26:49]：Donn my time I have paid off my at就最变态的是，他甚至不是哈耶克神 but the is me think this makes sense.
+- [00:26:58]：Like make this make sense so anybody has any advice, can you comment, drop me a message if anything I am at a?
+- [00:27:09]：I don't regret going to school and getting my education and my degree, I don't really use it, the world of teachers is suffering and I lost my job as a teacher to budget cuts.
+- [00:27:18]：我天真这个女的还失业吧，我天服了，行吧。
+- [00:27:29]：50元等然后把歌放去。
+- [00:27:38]：感谢我哥打赏是，我看看还有好好几个视频。
+- [00:27:52]：一收看30元啊，感谢我哥大。昨天去我看过南京照相馆，感觉需要对着来一场真正的审判和革命来介告慰世界各地受日本军国主义的受害者，来一首神圣的战争。
+- [00:28:11]：啊，我要问一个问题，中国患者去经去看病故上被人搞到情绪崩溃，导致人伤残怎么算？
+- [00:28:24]：这个我还真不知道这个我还真是不知道我这这这个我还我还真不知道怎么办这个的事情。
+- [00:28:38]：哦，我要讲个地域笑话了，刚才看到弹幕有人说外校呃，是这样的，我之前我在我在那个东大这边的一个一个大学里碰到一个外校，就是那个外校刚好是。
+- [00:28:52]：他甚至不是西大人啊，我先说明下，他甚至不是西大人，他是英国人，他叫josey啊，然后呢。
+- [00:29:00]：他有一个比较搞笑，就是他尽管现在已经42岁了，他仍然欠着3万多多磅的。
+- [00:29:12]：欠款就你们知道这是什么概念吗？他现在仍然欠着3万多磅的贷贷款，3万多万，我操。
+- [00:29:25]：33万多吧，OK啊，出感谢充去奶油啊，放图是吧，等一下啊。
+- [00:29:37]：我把图放一下，等会儿啊，看看能放能放等会儿，我我都下载下来了，我这里挨个放好吗？
+- [00:29:59]：啊，这什么雕图战地六可以拖队友，队拖队友会有血迹。好嘛，这这请什么都没用我，太他妈逆天了。
+- [00:30:12]：啊，感谢风尘剑生明月上老哥大长杨思昌与崇祯听之莫位。代明若如此收睡，还没有闯君与大齐军造反，代明可延续万世。
+- [00:30:31]：天哪，那真是就你你们要明白，就就算是代明，戴明死了以后，达清还在说疗啥。
+- [00:30:45]：这个声音是非常地域的啊，还有哈我跟我跟大家说一下啊。
+- [00:31:04]：就是就是当我们说那个给贷款的时候，美国人他会给你的贷款改利息啊，改一些罚款啊，是不通知你的。
+- [00:31:21]：他会什么时候他会什么时候告诉你呢？他会在你已经发工资的时候告诉你。
+- [00:31:30]：什么叫已经发工资的时候告诉你呢？就是比如说你这个月的25号拿到工资，或者说你这个月的十几号拿到paycheck。
+- [00:31:41]：他大概率会在你拿到payche的前一天或者同一天告诉你你的你的利息变更了，或者是你的那个罚款变更了，你需要额外交一笔钱。
+- [00:31:57]：这笔钱来这这笔罚款和钱他会来的非常精准，就是恰恰好当你有一笔现金流进来的时候，它会卡在这个东西上面。
+- [00:32:14]：但是请注意啊，这是额外收过一笔钱，就是不管你对原来对你的工资有什么安排，你几乎是必必须立即马上把这笔新增的钱先交上。不管他收的合不合理。
+- [00:32:30]：哪怕是他算错了，你也只能事后再追回，还能变吗？能的呀。
+- [00:32:53]：Oh.
+- [00:33:09]：有人说这这都行行的呀，行的，兄弟，你没有听错，你没有听错，这是行的兄弟们。
+- [00:33:18]：啊，很多美国人都是这么被逼疯的啊，那有人说他撑不住怎么办？那他去接赔 their own。
+- [00:33:32]：就是发薪日贷款，就是你哪怕今天发，那你哪怕今天发薪，甚至要额外贷一笔款才能活过今天。
+- [00:33:47]：所所以我会说，为什么这也就是为什么希腊现在其实到处都充满了缅军和太平天国军诞生的土壤。
+- [00:33:57]：只不过他们缺乏一个信念啊，比方说信念崩溃，对吧？更能更容易出现像老真说的那种情况。
+- [00:34:12]：就我不知道你你们有没有看过一个老电影叫做宋醒师，就是讲演军的啊。
+- [00:34:23]：至于琴是为什么呢？啊，因为达清要在当地弄一个团练，弄一批团练啊，然后这批团练是干嘛的呢？
+- [00:34:34]：答镇压汉人，然后呢向当地汉人征税，结果汉人本来都没钱了。
+- [00:34:43]：兴还要跟当地汉人跟百姓争税，那大家过不下去了嘛，那大家只能去山东发盐了嘛。
+- [00:34:53]：是吧哦，山东祖传啊贸易行贸易产业研发，大家只能学黄朝了嘛嗯。
+- [00:35:04]：感谢风生剑圣明学胜老哥打赏，老我给红脖子老哥看看，他交的税都让唐螂干这个去，还搞得这么丑。这个伞为什么像像像那什么呢？是我的错觉吗？
+- [00:35:17]：这是这是特朗普搞的啊，我的天哪，我我啊，然后放下这个。
+- [00:35:30]：贵物中的贵物哥点的歌声吗又是小麦猫，我感觉我放一下吧，就美式仰望星空。
+- [00:35:43]：我不知道这玩意儿花我多少钱，你别问我，我哪知道啊，这玩意抽象个一匹，好吧。
+- [00:35:55]：我哪知道啊，我们放哪我们放点南崩新闻是吧？
+- [00:36:08]：我们看看斯拉夫抽象大区的新最新狠活啊，普京授予美国中情局官员讲，其儿子为俄罗斯战斗牺牲。
+- [00:36:21]：我他妈的啊。
+- [00:36:30]：我他妈真是难不，我操，我我我他妈感觉我第一时间读到这个读到这个新闻的时候，我是他妈大脑升级的。
+- [00:36:42]：啊，老布，其实我觉得挺正常，因为你想希腊有都不做人啊，那确实就虽然发列宁奖章这个事儿就大就俄罗斯发列宁奖章这个事儿已经是一种低于笑话。
+- [00:37:01]：虽然虽然我们知道这个地域笑话，但是他给一个希腊人发列宁奖然后这又是另一种地域笑话呃，他甚至取得了一加一大于是二的效果啊哼。
+- [00:37:13]：俄罗斯的父亲拉里格沃斯是一名伊拉克战争老兵，更他妈地狱。他在接受华盛顿邮报的采访时表示，他和加蒂娜并不知道他们的儿子在乌克兰，也不知道他加入了俄罗斯军队。
+- [00:37:28]：可能吗？阿里跟沃斯说，在等待他回国的过程中，我们最大的担心就是莫斯科那边某个人会根据事实推测搜出他的母亲是谁，然后利用他作为道具。
+- [00:37:41]：啊，这他妈逆天，我操啊，这他妈牛逼，我不知道说什么好，你们知道吧？
+- [00:37:58]：就毛子大区还是一如既往的抽象啊，还有给。
+- [00:38:08]：大家看点更有意思的。这个新闻有两天了，微信收看20元。
+- [00:38:17]：感谢我哥打赏啊，感谢ZZP老哥打赏，我看一下老哥，你还没发我，等会我先看看这个苹果CEO给特朗普献上24K金大礼。
+- [00:38:30]：顾客当场送货量身定制的24K黄金底座纪念品，还是中文吗？兄弟。
+- [00:38:40]：这还是中文吗？24K纪念品，我的天呐。
+- [00:38:50]：黄金哪哎。
+- [00:39:04]：不是懂王什么时候，就是美国什么时候已经沦过到需要这种手段来讨好总统了。
+- [00:39:16]：这也太他妈抽象了，我真的不是在看我真的不是在看某些非洲军阀吗。
+- [00:39:29]：嗯啊，感谢ZZP老哥打赏，点首为恶我师服役，那可还行，我们抽象子一匹。
+- [00:39:44]：我感觉我我我感觉美国这个操作已经是已经是压根儿不是人能想象出来的东西了。
+- [00:40:03]：然后这是哪个老哥点的视频来着亲哈，你抱我的头柄的决心。
+- [00:40:12]：问你们全家都放弃美国国籍了吗？这个问题我们已经回答过了，然后其实 Oliver其实这什么电影的预告吗？这是。
+- [00:40:25]：台湾拍的审问啊，中国的一架预霸侦察机是在今天早上10点越过南海，在东台湾太平洋坠海消失。
+- [00:40:36]：歼8军就以这种名义出动大批海空军往东海以及南海挺进。目前，大批的海空军形同包围条战。
+- [00:40:49]：网路段是已经超过24小时，这是台湾拍的什么逆天电影啊，这是假的。
+- [00:41:01]：微信收看25元，什么逆天东西，老威感老AQQ私信OK看一下明还会保佑我相信X老哥打赏。老威首先就强制社保问题在群内相关讨论向欧人和星海老哥道歉，可能是因为我表述不清玩。
+- [00:41:22]：等想我之所以说强制社保措施扯着淡了，不是说这个措施本身有什么问题，而是这个政策就目前来看只是简单粗暴规定需要达到效果，而没有严格规范被执行的过程。现实就是任何一个资本家都会毫不犹豫的靠降低工资工人来控制成本，以获得竞价优势。然后就是全行业压榨工人无需内卷，既然和老板斗争，我当然支持，我不反对斗争，但是问题在于斗争，由谁来组织斗争过程中又该应还应该如何为参与斗争的个体提供物质保障来确保斗争的可持续性。这就是我在群里说的，谁来补偿打工人的损失，你不能只在其他低收入工作者，因为强制社保。
+- [00:42:03]：是大背景下，资本家的不做人行为而遭受实际损失产生的时候，说一句这是必要的牺牲，就打发过去了。我不知道我把这一点指出来，对群友的斗争思想做出补充，怎么成规规吧，或许是我思想境界不够高。
+- [00:42:17]：好嘛，不真的由横店还他妈有日本人。
+- [00:42:37]：谁再这离开明德大饭店呢？牛多峰投降，不想把他打死。
+- [00:42:51]：吓死老A，你等一下，待会儿我会跟那个老罗解释一下，为什么我会骂他是归鬼的这。
+- [00:43:05]：这会已经开始了。
+- [00:43:27]：还有别的视频放一下啊，有人点再放一下吧。
+- [00:43:37]：我他不意看ology thank you so much for coming Did you know there's an elderly gentleman out front sawing wood?
+- [00:43:47]：Oh yeah that's just Jasper he's building himself a chair I guess he wants to sit down well I'm concerned he's not wearing any safety glasses I know I've told him he said he's fine with safety squints.
+- [00:44:02]：呃，放完了视频没有老，我问个问题，视频放完了没有放完了，放完了，我还始解释了啊。
+- [00:44:12]：呃，首先起因是群里下午的时候再聊，有关于这个呃先是聊武大大学生的这个事儿。
+- [00:44:20]：啊，呃武大大学生这个事儿，我们得出的结论是，从此以后，武大内部大部分男男呃武汉，包括所有的男生都必须做做些警惕，包括。
+- [00:44:34]：呃，其一开始处理事情的手段都要变化，这是一个主旨。然后呢，就是讨论到一个问题，就是当时邢海老哥说，如果这个男生开始的时候。
+- [00:44:46]：就使用了断指为视的手段，你也看了，老云，你明白我是什么意思，断指为士是什么意思？它就在文我们的文化里头又是什么东西？
+- [00:44:58]：以及他在我们的儒文化里，他到底又代表了什么啊啊？我跟大家再做一遍解释什么是断指为氏，断指为饰就是连身体发肤都不太在乎。
+- [00:45:10]：断指为誓就是一种呃证明你我之间再也没有任何可以妥协的。
+- [00:45:20]：斡旋的余地啊，这代表着就是你死我活的斗争。啊，这就是我们的汉文化最精髓的部分之一。
+- [00:45:29]：可惜现已经被丢掉了很多啊，如果如果是使用这种方法，那开始的时候，武大的武大的上层领导根本连碰都不敢碰这个事儿。
+- [00:45:40]：啊，我们得出的结论是这个，但是当时那个老枪毙枪毙我枪毙我枪毙我，等会儿吧啊，顶这怎么傻等会儿。
+- [00:46:14]：哎，我跟你说明白，然后差不多之后之后就是那个人说了几句不太好的话，就是说为什么为什么政府会直接选就武大的上层会选择不管，而是而不是。
+- [00:46:32]：继续派人去把那个人抓起来啊，然后我跟邢海老哥的结论就是因为武大的上层一般都经历过当年的狂野时代。
+- [00:46:45]：破废管子，哎，刚进了主播去哪了？这被封了吗？被封了一分钟，那咋整？
+- [00:46:56]：哎，我会这不戳戳某些人的废管了，那咋整啊？对呀，那你说想一想断指为是，的有的人就是受不了，是吧？
+- [00:47:09]：那我我接着说吧，就是我会说的较隐晦一点。就是这种情况下，如果就在这个前提条件下。
+- [00:47:20]：如果有人会会问你说，为什么那些上层还会接着去，就你已经跟他说了，如果他真的这么做了的话。
+- [00:47:29]：啊，那个上层是不会去管的，也不敢去管。这个时候就会就有人啊，就刚才那个发达木那哥们质疑说，为什么他们不要去管，难道他们不会派一帮傻子来管吗？但？
+- [00:47:41]：但实际上我们都清楚，只要任何一个在社会上工作的人都知道这种情况下，如果一个人已经那样做了。
+- [00:47:50]：断指为是的啊，都已经不用戴天了，你还去敢阻拦他。那你面临的代价，那那你你一般是要做好。
+- [00:48:00]：呃，你要牺牲掉你的这条命，你才能够甚至也阻挡不了这种事情的发生。人家会把你当成某一些人的宠物人。
+- [00:48:11]：呃，在这种情况下，那怎么说呢？这个哥们儿他还认为啊。
+- [00:48:22]：会有傻子去阻拦这样的人没什么不一样。然后甚至有的老哥说，为什么不去当亚伦布什那尔，为什么不去当亚伦布士那尔？然后当时我们邢海老哥的解答很简单。
+- [00:48:37]：第一，亚伦不什那尔震撼世界，也只能是在短时间世界死了以后，他可就说不了话了。朋友们。
+- [00:48:47]：就他在死后，他是说不了话，死人也说不了话。然后他最后重新又变成了一个被塑造成了精神病的人。
+- [00:48:57]：我们当然我们任何人都清楚他的内核是什么，但是没有关系，他死了以后，他就是会被塑造成一个无害的神像啊。
+- [00:49:08]：因为他说不了话呀，把自己把自己当柴烧了是吗？对呀，就我们我们我我我再用我再用那一句话来说啊。
+- [00:49:21]：我记得应该是HA说的，我们无法阻止保尔喝察金燃燃烧自己去开辟革命的道路，对吧？就是这样的。
+- [00:49:33]：当亚能不施内尔，结果就是你被当成无害的神像。那你说现在医疗保二克拉金啊。
+- [00:49:42]：都知道他是一个伟大的在文学中出现的一个革命者。但是长话短说咱们长话短说，但是但是但是保尔科查金啊，他后来现在大部分人的概念中，他除了是个伟大的革命者以外，一无一无是处。
+- [00:50:01]：这是最大的问题，所以必须先活着，活着才能发才能去产生，或者说才能去使用你的力量。
+- [00:50:13]：对你可以玄武一体，反正是发力改变。，就是这样，所以这也是为什么我们会去说它是规模。
+- [00:50:24]：为刚开始他居然想的是碰到困难，去想之后会怎么办，而不是去，而不是第一时间去想他妈的老子不干了，老子先干你。
+- [00:50:35]：如果世界上都是这种人，就没有革命了。不会这么说，那都给自己报了，是吧？
+- [00:50:49]：Your eyes from high speed projectiles, it's worked all as live, says if it ain't broke, don't fix it, but that's not evidence based medicine oh actually out here it is.
+- [00:51:07]：Hey, doc Leroy called Deilah headbuted him, her horn got him right in the eye, oh no, can he see anything out of it, no, he says the inside of his eye is now on the outside of his eye.
+- [00:51:20]：Lroy has an open globe injury and we need to place an eye shield, get a CT scan start IV Moxy foxs and then transport him to the university.
+- [00:51:33]：He wants to know he can just get a paraized it's okay just tell him we'll come see him in a few minutes I'm frankly appalled by how little this community cares about the health and safety of their eyeballs that's because we have two eyeballs you expect farmers to care when they have a backup ready to go well clearly you need my assistance.
+- [00:51:52]：Absolutely, we have a lot of people here who need cataract surgery, okay, then just point me in the direction of the slit lamp biomicroscope.
+- [00:52:06]：We don'texco美国农村地区的医疗跟没有差不多。
+- [00:52:16]：observatory on the roof of his gas station he did T Mike is quite the star dance I'm sure he could help you out okay, but I need a microscope, not a telescope it'sa scope.
+- [00:52:29]：not Jonathan you to go to Texco Mike's gas station Observatory and help fashion the slit like biomi.
+- [00:52:41]：spare telescope parts do you need anything else yes, who do I send my cataract patients to for preoperative cardiac clearance?
+- [00:52:55]：Your, you're a medical doctor, right, Good morning, you must.
+- [00:53:07]：真你们下我我得做点规定了，真的，兄弟们，你们下次点歌或者是点视频分开点吧。
+- [00:53:16]：你发一大段SC，然后又他妈点个歌，然后发视频也是你们先看看视频的时长。兄弟们啊，感谢今天缺学来宝哥打赏。哦乌盟呃欧盟与巫呜在加速成为菜单。
+- [00:53:29]：不是菜嘛，而是菜单嘛？可还行，那他们属于没救儿啊，我我会跟你直接这么说，他们连菜单都不是。
+- [00:53:41]：他们甚至指菜单上的原材料，就就是菜单上那些菜的原材料，就是他们就是欧盟和乌克兰，我看看。
+- [00:53:55]：不参与俄美会谈，基辅当局当不接受两国谈判结果啊，是啊，他接受不了啊。
+- [00:54:05]：只有让乌克能坐在谈判桌前，尊重我们的主权，不承认占领，才能才能实现可靠持久的和平。停火是必要的，战线并非边界，可还行。
+- [00:54:18]：英国还能提出这种活呢，哎呦他们将无法取消会谈，只能给特朗普一个百脱不堪危机的机会，将所有成本转嫁给欧盟。
+- [00:54:33]：挺好的嗯，挺好的，你不能只在俄罗斯有大优势的时候才讲这个。
+- [00:54:44]：前两年觉着还能维持一下，现在觉着维持不住，我就想谈判，哪有这么好的事儿，我觉得属于想多了。
+- [00:54:55]：我也不知道为什么，就是欧盟他一副非常自信的样子，你们知道吧？就他觉得他好像还是起就他好像还是谈判桌上的团手。
+- [00:55:07]：觉着自己在桌上，那我只能说他确实在桌上哎呀。
+- [00:55:23]：有时候点歌点歌，你直接加微信打微信或者支付宝就行。点歌我上点我上我我往我这点屌图上完是吧？
+- [00:55:35]：，给大家看看有意思的，这个驱逐软件。
+- [00:55:44]：我们鼓励所有非法留在美国的外国人使用海关和边境保护局的CBPhome应用程序自我驱逐。通过这个应用程序，你可以免费获得返回原国旗的机票。返回原国籍后还可以获得1000美元的津贴，同时免除所有所有此前因未能离境而而所支付的罚款。
+- [00:56:07]：就哇，我觉得我觉得这是全美最糖的小软件之一。
+- [00:56:16]：啊，就就是啊你可以你你是可以买单程票去美国，然后让他们把你送回来。我我我不知道美国人怎么想的，哎我天。
+- [00:56:31]：哇，那就是找个机会让你滚是吧？有时候终身有效还是一次性的，肯定是一次性的呀。
+- [00:56:41]：那肯定是一次性的，唉，怎么可能是那怎么可能还有第二次，你如果是这么回国的那他肯定是把你加入黑名单了呀。
+- [00:56:55]：不可能让你反复刷的。哎，以说这真的不是钓鱼软件吗？
+- [00:57:04]：那肯定是钓鱼软件，那还用想吗？哎，我又突然想起来福建老乡了，整个东南亚，还有这个呃呃世界各地，只要有华人的地方，基本都比较怕福建人，有有妈祖免签章是吧？
+- [00:57:26]：大家看看更有意思，更好玩的也是俄乌相关的。说到这不。
+- [00:57:36]：乌克兰为应征的阿美雇佣兵提供全方位的培训，涵盖所有知识和装备，每月支付高达4200美元。随后发现这些阿美雇佣兵跑回墨西哥卡特尔。
+- [00:57:50]：全都是毒贩放出钓鱼的兄弟们哦，对我忘我甚至忘了说一件事儿，就是那他们会回到墨西哥以外，他们在离开美国的时候会顺一大笔钱啊，就这个钱他甚至是0元购我。
+- [00:58:07]：嗯，免费培训是这免费培训免费领取啊嗯，免费拿到啊，免费离开。
+- [00:58:20]：呃，感谢抖S名奥鼠当这人老哥打赏。老A看一下B站私信，加个联系方式，好打赏。OK啊。
+- [00:58:33]：等会儿啊，我跟我跟大家说个事儿啊，就是美国卡特尔，就是美墨边境上的卡特尔经常搞这种事情。
+- [00:58:45]：你们懂吗？就是他们会把自己的人送到军队，送到警察局，先去学知识，这是人家是真正知道知识的重要性的。
+- [00:58:59]：他们学完了知识还会干嘛呢？他们还会进行理会研究。。对的，你没有听错，就是卡特尔这些毒贩集团，他们也会研究的。
+- [00:59:12]：他们会把他们从不同地方学过来的知识，学过癌的理论体系综合一下。
+- [00:59:22]：根据他们所处环境，再量身定制一遍，然后用在自己的帮派战争和对国家的反抗当中。你懂我意思不？人家是有实际、有理论相结合的。
+- [00:59:38]：军阀集团，你懂我意思吗？就是如果有一天美国真的和墨西哥开打毒品战争，我并不觉得美国人能赢，你知道吧？
+- [00:59:54]：就我真的不觉得美国的军队会赢，尤其是在那个呃说更地域的，就是甚至他们会派人到希大学习教友军队。
+- [01:00:06]：教友是怎么建立军队的？他们抄的原汁原味的搬回了墨西哥和南美，是这是真的。
+- [01:00:21]：而且他们还有钱，就是你们不要忘了，有人说他们学这些东西有用吗？有人有用啊，他们是毒贩集团啊，他有钱的呀，你不要以为他只是学会了，没有装备，不是的，他们能买的。
+- [01:00:37]：你真的觉得美国的军火商就不会把这些东西卖给他们吗？即便军火商在明面上不能卖CIA不会卖给他们吗？
+- [01:00:54]：啊，感谢风水燕山冰雪上我多打赏。哎呦，我实在是不明白欧盟在想什么，采取三部原则，不投降、不谈判又不打仗，这不就是纯粹等死吗？
+- [01:01:05]：这里借皇太极给崇祯一句话，今日不和谈，那么明日你代明爷和和谈的资格都没有，就是没有和谈的资格了呀。
+- [01:01:15]：就你你知道我想到了什么？啊，肖宝卷在幼年时啊，曾经有两个府政大臣，这两个府中大臣，一个叫姜氏，一个叫姜氏啊。
+- [01:01:28]：然后呢呃当肖宝铉被这个他手下的李居士等人挑拨，正要御欲图铲除府政大臣的时候啊，姜持和姜氏兄弟呃，是是姜持问姜氏说，我们应该怎么办？姜氏说，正应以境待变啊。
+- [01:01:49]：就颇有欧蒙县的味道，我只能支付宝到账2嗯，哼哼真的。
+- [01:02:00]：不好说什么，呃，感谢不知所措的马龙宝哥打赏，我看一下。
+- [01:02:11]：呃我哥发我红光是谁？
+- [01:02:19]：啊，那那等一下，欧盟不应该在桌上，而是在桌下一边嘴里叼着欧美，一边给老钟玩寸纸。
+- [01:02:31]：啊，这啊太他妈恐怖了，兄弟看到了看到，不是好你这个行容让我想起一些本子来。
+- [01:02:40]：哇，就有有有点太具象化了。是啊，就你们知道你们知道刚才我说的这个故事，它的结尾是什么吗？就在姜赤说正英以性带动呃，正正英以性带变之后啊。
+- [01:03:01]：神神之后，他们两个就双双殒命了，哼直接被斩杀啊，那那欧盟现在何其相似，我只能是啊不一有不一样的地方，就是欧盟还不知道自己要死了。
+- [01:03:17]：不，其实姜十跟姜四两个人也知道也不知道自己要死了哎。
+- [01:03:30]：这是什么自愿联盟，各国无意向乌克兰派兵，而是更倾向于加强乌克兰的军工生产。没人愿意派遣自己的部队在乌克兰送死。
+- [01:03:40]：哎呀，欧盟就这么支持不可兰啊，这水平也太差了。你就说这种水平。
+- [01:03:52]：这种水平怎么怎么怎么上桌呢？你就说人说冯寡妇故意的，他不故意的也没啥用啊，你这你不会真觉得欧盟能去救吧。
+- [01:04:07]：哎，挺好的挺好的啊。
+- [01:04:15]：给大家看点新新闻是吗？莫牛学生在奥被群殴制重伤。兄弟们，水晶之夜很快就来了，兄弟们。
+- [01:04:26]：啊，有人问我为什么要在美国组织一群教友来回打架，你要知道我心里的不安全感也是很强的，我自己不组织点兄弟，我他妈哪敢现在在美国混。
+- [01:04:41]：你们懂吗？未成年人殴打。
+- [01:04:50]：无端遭当地未成年人殴打，想想吧，而且我告诉你，人家是未成年人，就是殴打你都不用负什么法律责任的，好吧。
+- [01:05:01]：就怎么说呢？经典英英国为首的呃英联邦国家的tage啊，是逆天极了。就甚至你你在大街上走路，你去商店买的东西，他们会跟你说，你能帮能不能请你帮他们买一点币啊，这就是以英联邦为首的tage者的精神状态啊。
+- [01:05:27]：那你怎么办吧？太后现代了，朋友，他们那个法律不是说这种会有惩罚吗？不会的，呃，几乎几乎所有英联邦体系下的国家对于teage者的逆天保护程度是超过美国的。
+- [01:05:43]：是超过美国的，像是这种情节恶劣的，也不会发生什么。基本上就是呃口头警告。兄弟们，你别看他们差点把人打死啊。
+- [01:05:54]：但是口头警告就差不多了，未成年几乎就是免死福免死金牌啊，未成年未成年畜生保护法，你只能说是。
+- [01:06:09]：而且还有这种就是越是小年轻的，越容易被煽动。针对中国人的情况就越多哎。
+- [01:06:30]：有人说有人说他们还会干这种类似的事情，还还就就是是那那那个力度大嘛，很大的兄弟们，我这里说力度大是什么呢？
+- [01:06:42]：就是美国还有一些英联邦国家的人，他们会有目的的煽动中煽动他们的年轻人，对中国人下死手。
+- [01:06:55]：人又不用负法律责任是吧，他们还有钱呢。呃，有人有人在弹幕里说，如何让澳大利亚变成一个红区啊，我会这么说。
+- [01:07:08]：呃，首先你得让澳大利亚缺水呃，你让澳大利亚缺水问题就解决了一半。这种群年罪犯就是解游人教唆我好吧。
+- [01:07:26]：或者是他们受到的宣传，就是长长期宣传中国如何如何，你挨打是非常正常的。
+- [01:07:34]：甚至你挨打以后，那个他们把人打死了以后，甚至呃如果被起诉的话，很快就会被保释出来。并且尤其是得到当地社区的保释，而且会是被牧师保证说，或者说那个律师保证说这是一个非常非常虔诚，非常非常非常善良的孩子啊。对，他没有做错任何事情。
+- [01:08:00]：就像我说的，有一颗金子般的心。对，就是我常说的，他有一颗金子般的心，你懂吗？
+- [01:08:09]：你不要以为我经常你不要以为我经常说的一些事情是没有原因和道理的，就是你只能选你只能打不过就加入，知道吗？
+- [01:08:22]：你们不会以为我成天顶着一群叫法兄弟在干什么吧，懂吗？你要么自己也组织一帮人，要么你就你就期盼着你能躲过他们。
+- [01:08:36]：就反正我的态度就是对方澳大利亚很简单，把他的水利设施全都摧毁掉。嗯啊，就尤其是大部分他们的储水的那些设施。
+- [01:08:49]：你把它变成洪水，其实澳大利亚就已经废了一半。因为它澳大利亚是一个非常非常非常非常非常严重缺水的国家，以至于导致他们当地的蔬菜和。
+- [01:09:01]：呃，跟植物相关的任何食品都无比的昂贵，包括生活用品都非常的昂贵。
+- [01:09:17]：有时候注意安全，我不带人打着他们就不错了。好吧，你以为为什么？你以为为什么我出去打架的时候。
+- [01:09:26]：啊，都是要戴小白帽的，是吧？拿着经书，你以为我会乱搞吗？吧？
+- [01:09:38]：我是不会逛岗的，说明我前程。
+- [01:09:49]：啊，前程啊前程没什么用，兄弟，主要是你要掌握暴力，懂吗？你要掌握暴力，光前程没有什么用。
+- [01:10:00]：念那个死就是经书也得活用，好吧，不要念死书，懂吗？你拿着本经，不能把对面说死。
+- [01:10:10]：光毒经没有什么管用，你得打架哎。
+- [01:10:27]：支付宝到账20元，感谢五安军老哥打赏是吧？我为特朗普作为种族主义标志女星点赞这件事，我本来看了没当回事，国内也没什么波澜。但是最近几天我在美国的思位朋友和一些新加坡马来赞美人士不知道为啥非常恐慌。
+- [01:10:46]：啥叫现在才非常恐慌，一直都非常恐慌。好吧，我想问一下，这是不是特朗普掀起反华运动的狗哨，类似英特尔CEO事件，难为一个新加坡人展示反华意志，正常啊。
+- [01:10:59]：太正常了啊啊，感谢不知所措的马农老哥打赏。作为在加拿大生活十年的老流子，想来给昂萨国家的朋友们一点建议，你必须要有和对方抱恶的勇气，不然只能被欺负。记住一点，见法官永远比见法医强，在黑暗森理生活就要遵守黑暗丛林的法则，是啊。
+- [01:11:19]：否则我为什么组织人呢？啊，哎，我的建议是，你最好和当地的一些地龙蛇有点好的联系啊，是的。
+- [01:11:30]：就是为什么我在希腊过得比较如鱼得水，是因为我跟当地的一些地头蛇是真的比较有联系的，是，甚至包括犹太人。
+- [01:11:42]：嗯，这个这就是那个街头广告，是american啊ele挺好挺好挺好。
+- [01:11:53]：还有这个。
+- [01:12:04]：不然的话，你就会变成一种呃，我想想该怎么形容，你甚至不是那儿的，你是一种怒啊，是就如果你不做这么做的话，你会变他成怒整。
+- [01:12:15]：这个这个正好和我今天要讲的关系是强相关的。美国的种美国的白人种族优越论和优越感是极强的兄弟。
+- [01:12:25]：不是你能想象的强的，懂吗？是非常非常的强，就是强到什么程度呢？就是。
+- [01:12:36]：他们甚至强调了无时无刻，必须从生理上、心理上以及言语上向其他的种族展示这一点。
+- [01:12:47]：他们是憋不住的，或者说在他们内心深处是必须张扬的，又开始卡了吗？
+- [01:12:58]：嗯，感谢风吹建设媒体就上搞哥打赏。欧盟被唐王收过15%的关税，强制买新国马的液化天然气与石油，还要掏几千亿美元买新国马过期武器，还觉得自己的利益要被维护，还觉得自己有影响力，还能对着许愿池里的王八随便许愿。
+- [01:13:17]：啊，这听着这听着好像很像某个群体是吧？那不奇怪。
+- [01:13:29]：冯德湾哎，我我我们先我们先讲这个就是讲过这个美国种族主义。就是有人说在在在美国的就是这些这些华人为什么那么敏感，就是会感到恐慌。
+- [01:13:45]：就是因为当美国人对着特定的某一个种族，及非白人种族展现自己的优越的时候。
+- [01:13:56]：他本质上是在判另外一方死刑。
+- [01:14:05]：我再跟他再强调一遍，就是比如说特朗普这种要求英特尔CEO下场，就是那个离职，或者是说美国的整体意识在倾向于针对某一个种族的时候。
+- [01:14:20]：让这个种族展现自己的优越感，或者是在当众，在大家的面上直接去霸凌这个人。
+- [01:14:30]：这是要对他动手的前奏，能懂我的意思吗？就是你可以理解为在雏行场上或者是罗马斗技场里面。
+- [01:14:45]：一个决斗士向着另一方展现自己肌肉的时候，那是准备干你了。就是你可以理解为赏金猎人上标记这种事情。
+- [01:14:57]：能理解吗？所以或者我换一个说法啊，就是呃战犬那个战犬。
+- [01:15:06]：呃，有一个战犬试图在和你呃试图和你打绝血，跳进跳进雪坑里，和你打绝血，并且向你用大拇指抹了脖子。
+- [01:15:18]：就你明白这是什么含义吗？我我用一个比较站锤的说法说，就是这样。那他的意思就是他想把你杀了，因为他本人是绝血，就是死斗了。有的时候想怎么除去标记，你除不去标记。
+- [01:15:31]：你改变不了美国以白人为主体的这么一个结构。你改变不了，要么你滚蛋，要么你活在活在提心吊胆的世界里。
+- [01:15:44]：这个事情和你有没有钱没关系，你的钱并不是钱，兄弟，你的钱并不是钱。
+- [01:15:54]：懂啊？你不会以为对于整个白人国家体系来说，你是什么英特尔的CEO，你是什么take talkok的运行主席，执行主席。
+- [01:16:07]：执行CEO或者是你是什么大拿或者什么科学家之类的，有什么用吗？你在整个国家体系面前是毫无管用的。
+- [01:16:17]：你既然想给他孝忠或者当孝子贤孙，你想当狗，你就别怕他有你的主人有一天吃狗肉的时候。
+- [01:16:27]：吗？
+- [01:16:35]：比如说直接是物体在物体物体形态消灭，呃，暂时还不能物体形态消灭，因为还毕竟还没开战嘛，你现在物体形态消灭，反倒是会导致提前开战，而美国又没有这个胆子。
+- [01:16:52]：哎，美国实际上他就是色地内任，他实际上在大面上又没有做好和中国开战的准备，所以他现在暂时还不敢杀人。
+- [01:17:05]：只能说很快。
+- [01:17:18]：我曾经说过，希大有一定的说非常可怕的右倾倾向。呃，反正chris快来了吧。
+- [01:17:31]：对呀，北京职夜快吧。完了我我们再看这个是吧？
+- [01:17:43]：给你们看看美国南方人是吧？啊，美国南方人保持自己种族优越的方法就是外文。
+- [01:17:51]：让大家看看美国南方人长什么样，南部中部乡村的美国白人。
+- [01:18:03]：红脖子让大家看一看啊，呃，在你你你你放之前我先要说一下。呃，首先说明一下，我曾经留学的地方叫做犹哈州嗯。
+- [01:18:18]：啊，然后在我们当时有这么一批人，他们有他们有很奇怪的表征，就是这个表征有多奇怪呢？
+- [01:18:29]：奇怪就怪在他们的脸，非常奇怪有多奇怪呢？眼睛中间是鼻子，就很多人不明白什么叫眼睛中间是鼻子。
+- [01:18:41]：就是他那个他那个脸畸形了，畸形到了眼睛直接在鼻孔这一线，就鼻孔底下有一条线跟你的那个。
+- [01:18:54]：鼻翼两侧你直接向两侧延伸，就是他的眼睛，就是他的他的鼻子不是在不是在眼睛中间的正下方，而是在在眼睛中间。
+- [01:19:14]：有，这就是这就是犹他州的一部分奇怪的信仰，就或者说纯学论的结果，你就说纯不纯学吧。
+- [01:19:26]：真是纯纯又喜许啊，哎有人时候有人说候能能长成这样吗？能呢。
+- [01:19:37]：你你们仔细看看这些这些人，就是你你你好好看看这张，就是最中间这一张是吧？就这个你你仔细看这些人越奇怪，就是他那个鼻子越往上，就是越往那个两个眼睛中间挤，你们看一下。
+- [01:19:56]：啊，你看一下就是这个图是吧？最典型的大家可能看到这个就是啊现在就是我现在在屏幕上这个第一排的最右边这个。
+- [01:20:07]：你看看他那个鼻子就是已经很很接近于两眼中间了，一越往下看，你就能看出这个就是就是你觉得他们很奇怪的一个点。
+- [01:20:18]：就是鼻子不是长在眼睛下面，而是长在中间啊，有是说这是近情搞出来的是。
+- [01:20:29]：你们看吧，就是他们基本上都符合老师说的，就是鼻子是在眼睛中间，而不是在鼻子下面，而而不是在眼睛下面。
+- [01:20:40]：啊，我说致命弯道对致致命弯道里面那个就是最极端的微信收款30元。
+- [01:20:54]：感谢我哥打赏，看一下，别说第一个还像某个小胡子啊，那那其实不大像是吧？有时致命弯道那个现实吗？致命弯道那个挺现实的。
+- [01:21:11]：致命弯道还真的挺现实的，那个东西他是怎么能凑出这些人来的？
+- [01:21:19]：我哪知道他是怎么透出来的？神奇的很啊，你们不要我我只能说大家不要侮辱硬私毛私人。
+- [01:21:29]：斯茅斯人在变成申请者之前，还是很帅的。生理学奇迹生理学奇迹，兄弟。
+- [01:21:42]：这就是美国人，而且这是他们人种优越会的一个证明是吧？啊，对呀，就是他们认为自己有蓝血一样啊，就我说一下中世纪很多贵族认为自己有蓝血啊，并且保持苍白的皮肤，这是一种高位的证明。
+- [01:22:05]：啊，但是这很奇怪的是，如果按照录像学来说，现在希腊的尤其是以近亲结结婚，并且产出的这些畸形而为首的这样一批人是过不了录像学检测的。
+- [01:22:19]：他无法被归纳入人类人类的范畴。嗯，感谢风尘剑圣媒体就是我个打赏。老爷，那么悠人亲王是不是也是这样？是啊。
+- [01:22:32]：你的幽人亲王就是唐氏儿好吧，日本天皇日本天皇以普系里面也是万文种，好吧。
+- [01:22:42]：就丑了一逼，就毕竟曾经有几个天皇，一个是娶了自己的亲妈，一个是啊一个是和自己的亲亲妹妹结婚的。
+- [01:22:54]：然后找补这是后找补吗？不是你以为他们是后找补吗？他们是天生这么认为的。兄弟，他们不是因为已经存在的某种怪现象给他找补，而是他们主动达成这种效果的。
+- [01:23:09]：吗？他们不是找补，这是最恐怖的地方，懂不懂？他不是因为我们有这个缺陷，所以我们给自己这么找补。他们是因为自己主动这么做才有了这种缺陷，能明白吗？
+- [01:23:26]：这不是找补，他主动追求的，他们心里是极度变态和扭曲的兄弟。
+- [01:23:37]：你你以为我直播预告说他们的心态扭曲是假的？不是的，他们是集体大规模有意识这么操作的。
+- [01:23:49]：听好了，他们是集体有意识大规模操作好吗？他们不是愚昧，就是他们很清楚自己在干什么。
+- [01:24:04]：大家还记不记得我在讲白人心态问题的时候给大家讲过，有的白人是怎么验证自己够白呢？就是你是不是对什么东西过敏，你是不是对肤质过敏，你是不是对糖过敏，你是不是对花生过敏？
+- [01:24:21]：他们把自己先天性的基因缺陷当做验证的入门入门门槛，他们是有意识追求的。
+- [01:24:33]：你可以想想他们实际上有多扭曲，能明白吗？我说糖不是人体需要的东西吗？还有水过敏呢，兄弟。
+- [01:24:50]：就最变态的甚是甚至是他们甚至呃怎么说呢？比较崇拜于呃玻璃症，就是那个凝血症、凝血障碍和脆骨障崇拜于脆骨。这个他们的脆骨病就是。
+- [01:25:07]：骨头特别容易脆，先天性的软骨，他们崇拜于这些，认为这是贵族的象征。，是的，因为这些曾确实是几个比较有名的贵族的遗传病。
+- [01:25:20]：还有啊给大家看点东西，这个正好讲到日本嘛，日本这个傻逼傻逼皇室。
+- [01:25:33]：啊，我又想起外部省的傻逼操作，我还给大家看看是吧？大夏天纸包纸果穿和服去哪儿了，去橘子州。
+- [01:25:46]：大家知道橘子洲有什么不啊，大家知道橘子洲头有什么吗？
+- [01:26:00]：校员像吗？对，有校员像，有校员雕像啊，穿日式和服。兄弟们，现在是夏天啊。
+- [01:26:15]：兄弟，湖南啊又潮又热，纸包纸给我穿和服啊。
+- [01:26:31]：目径依赖，兄弟故意的。
+- [01:26:43]：这就是故意的兄弟，这就是纯粹故意的。
+- [01:27:02]：呃，实际上我想说的是，好多所谓的奇装异服去这种比较有有名的地方。
+- [01:27:11]：虽然只能说不太常见吧，也只能说比较罕见了。满20。实际上我知道有很多国企相关的企业去那边一般是要穿工服去的，就是穿工作的衣服去。
+- [01:27:34]：都起名字，我给他打赏是吧？啊，挂图哎，别才不爱乎呢。
+- [01:27:48]：就是兄弟们，我跟他家讲，你们就是前些年在那个南京大屠杀纪念日穿军装的，穿日式军装的那种人，现在他们是不敢了，你知道吧？
+- [01:28:07]：就现在只不过那种明着搞的，他们不太敢了，现在都是找什么和服文化之类的，很傻逼的。
+- [01:28:16]：哎，来，这个我就有经验了，我来说啊，这个从上下就下。呃，老A，那个我你现在话题离你专题开还久不久，还有段时间讲，我就现在那行，我正好讲个三五分钟吧。就各位其实还是我我以前说过一个很老的案例。
+- [01:28:35]：呃呃，各位啊，记不记得前前几年有一个叫某妹的玩意儿，跑到跑到大连的某个地方去啊去跳跳跳所谓。就是那个时候他们是最蹬鼻子上脸。
+- [01:28:48]：就他不仅去了，还要搁那跳舞。然后反过来说，哎，我不知道他妈的怎么可能不知道整个大连。
+- [01:28:58]：多少就是多少这种有纪念意义的地方，就是而且这个地方如果他作为就是我我敢肯定说那个地方作为一个重点保护的单位，那附近有我可以跟跟各位讲，那附近有什么？
+- [01:29:14]：中军司令部就址，然后大连的那个旅顺旅顺口区博物馆。对，还有很多就是当年清，还有那个苏联，我们叫白塔嘛，就是当年我们跟苏联就是苏联援军就是做的一个纪念碑，这么多的就。
+- [01:29:29]：就是这么密集的地方，他能跳出来，然后跑过去跳个舞，你觉得他正常吗啊，这是第一个。然后接下来就是我们更熟悉就是啊某那个那个解放碑啊，解放碑的事情。
+- [01:29:42]：就老爷，你应该还记得，就是有个女的穿的那个去解放碑嘛，对不对，穿啥，你会发现早些你该还有穿日式军装的。
+- [01:29:51]：啊，对他们在一步一步的去试探我们的底线，就是他们要试探出我们容许的所谓的啊文化的兼容的那个底线出来。
+- [01:30:03]：要知道，就是你看他们他们的动作是他们的动作是有一系列降级的。然后直到到了现在这个我这个度，你会发现有些人开始说，哎呀，有小女孩嘛不懂事嘛，就穿个衣服好嗯，这个时候他们就觉得哎我们四撑到底线了。那我们就在这个地方蹦极呗啊，反正你们你们的你们就是在这样觉得，那我们就在这蹦极啊，所以这个就最可恨的地方。
+- [01:30:30]：然后所以各位你们包括其实还有一个群体是什么呢？就是那个某某学院啊，把那个把那个731部队的那个那个事情啊，给那还还他妈搁那乱乱搞。
+- [01:30:45]：就这个东西各位不用想，遇到这种人，就直接就你不用跟他讲什么道理了，他他肯定是有所准备的啊，肯定是有所准备的，不用不用想。
+- [01:30:58]：行，我说完了嗯呃，我补充一点读，但是实际上呃行了，你先读牙是感谢不知所措的马农老哥打赏是吗？
+- [01:31:08]：我看一下啊，有个同学曾经在美国乡村当实习教师，跟我说，班级小孩的过敏源列表比美国历史书都厚啊，一下呜呜两个是吧？
+- [01:31:19]：可以呃，我来说好吧，呃，就是实际上现在国内出现的这种大量的这种情况。
+- [01:31:33]：或者说这种挑战底线的行为，我会这么说，虽然我并不喜欢某一段时间。
+- [01:31:44]：呃，或者说被否或者说前30年和后30年互不否认中间那个不可说的那1年的政治敏感性是否太过于敏感。
+- [01:31:54]：但是你缺乏政治敏感性，这是否有些是吧？
+- [01:32:03]：我们首先要明白一一点，一个很重要的一点就是生活就是政治，政治就是生活。
+- [01:32:16]：这两个是一体的，互相辩证的，存在着也是我们不可否认的。包括我们讨论的历史啊。
+- [01:32:26]：所有的近代史所有的古代史啊，就所有的现代问题，所有的古代史。
+- [01:32:35]：都是近代史一个道理的朋友们，一个道理的。
+- [01:32:47]：就是有的时候不要说什么不要说什么政治挂帅是真所，这这帮弹幕啊差不多得了哎。
+- [01:33:06]：这个。
+- [01:33:07]：有人说政治敏感，这是这政治不够敏感才会这样，知道吧？那个那个什么各位，你要知道，就是前段时间就是啊抱抱贼了鬼惠子妹的那个卡卡西，现在人家已经美美的开直播收到米了，就这机会在你面前，你要把握住呀是。
+- [01:33:30]：感谢老哥打赏，下次就是穿十二单一或者巫女服进行纪念馆，或者什么遗址搞卫灵仪式了是啊，你以为呢？
+- [01:33:43]：呃，我没记错的话，曾经虽然我我们都知道有一个人犯过错，至少他的直播里我就29.99元。
+- [01:33:54]：好，我曾经和一个叫做阿酱的老哥聊过关于日本鬼子在战后，在中国试图挖掘。
+- [01:34:08]：日本在中国被杀掉的那些侵略者啊。
+- [01:34:16]：呃，遗古或者是试图搞捐一堆钱，在那个陵园里啊，给他们修什么纪念碑啊，但是呃政府都会常常去管理。
+- [01:34:31]：比如说在云南是吧，龙岩啊，比如说在广西某地。
+- [01:34:44]：嗯，太多了，支付宝到账20元。
+- [01:34:52]：感谢我哥打赏，我看一下这怎么又又又不写名字了，我看一下啊，我一需要有人来次，不许说俄语，我那。
+- [01:35:02]：搞过了，兄弟们，你猜在东北的土地上没有出现协和语或者日语做方言是吧？回去看我东北往事那几期。
+- [01:35:13]：有时候日本我我这就是这就是要讲到当年我在我在这个是把东北往事里面讲是吧，有没有改开以后，有没有日本人来寻找遗谷呢？有的兄弟们来东北寻找遗谷啊，到村里来问，他说哎呀，那个大爷呀，你们村里人当年有没有来过日本人啊。
+- [01:35:36]：这个我爷说有啊，那有那那能没有吗？那那村里有的是啊啊，怎么可能没有呢，对吧？有那啥啊，你去那个八县他们家去看看吧啊，听说他们家那个地下有。
+- [01:35:56]：是吧啊听说他家有你去问问吧啊，问问吧啊，找到八彦老哥家，他说那个哎呀老哥呀，那个村里听说以前有有有日本人呢。
+- [01:36:10]：啊，巴彦我说有啊啊，咋的，和你有亲戚呀，他说有亲戚呀，您看看我花点钱能把那个骨头买回来不？那八彦老说行啊，那可太行了。
+- [01:36:25]：来吧啊，领着去哪呢？去猪圈啊，来来来看看啊，看看啊，这个猪圈猪圈里砌的强是吧？啊，那都有你们的骨头啊。
+- [01:36:39]：那你看看你要多少是吧？啊，那那太多了啊。对，那蒙古老萨满自己住住的金冠，你知道吗？
+- [01:36:52]：啊，看看吧啊，看看哪个是你爹，哪个是你亲戚。
+- [01:37:06]：吓跑吓疯好几个好吧。
+- [01:37:09]：我只能说致敬传奇通呃，那个通话支队魂江位于呃，应该是日料店老板，位于特别位于行动大赛冠军方虎山老英雄和亚军刘希元老将军。
+- [01:37:27]：这房子不我只能定两位老前辈，神他妈这房子不能要啊，这房子是好房子好啊哎。
+- [01:37:38]：啊，多多多好是吧？
+- [01:37:53]：我我只能说在宗教仪式里头有这样一个相关的一个东西，叫做把你的敌人，把你的仇敌啊放在你家的。
+- [01:38:03]：屋下在你的毛坑里，这也是一种最好的尊重和一种侮辱。比方说一身正气是吧？这这肯定镇得住的。
+- [01:38:18]：啊，感谢今天退学的表哥打赏是1960年9月14日，日本京都J罗伯特奥本海默在京都大学进行教学。
+- [01:38:34]：哎吧售后服真他妈售后服务，我操哎，有人有人说这这个猪圈最后怎么办？那不是有爱观瞻吗？
+- [01:38:53]：是吧那个不能这样是吧？那个有爱观瞻，下次别领着日本人去了，是吧？这个先哎先先挣钱是吧，先挣钱啊。
+- [01:39:10]：就像我之前说的是吗？这个哈尔滨某些军某些在在那个田野野外的那些军工厂是吧？附近他长他长那什么呀，他长相机呀。
+- [01:39:25]：啊，老乡这北京都下个调查组，他说你们这附近看见日本人了吗？啊，怂问老乡说没看着啊。
+- [01:39:37]：没有日本人呢，没听说呀啊没听说，那你这个日本相机是哪来的呀，不知道啊。
+- [01:39:47]：啊草垫子上捡的这不知道哪来的那你看这事搞的啊，北京那特派员就是说那真没看着啊，他说真没看着啊啊，那大爷，你这相机出吗？那是出啊啊，出是吗你？
+- [01:40:06]：您随便给个几百块钱，您就拿回去吧。啊，啊，就是草甸的这个东北的水土好啊，黑土地上长相机，你们知道吧？
+- [01:40:20]：这相机卖了相机哎，立刻就盖小房。哎，哎，我我要讲的地域笑话，就是。
+- [01:40:30]：其实你们知道吗？在西安的黄埔同学会，你们猜他在哪儿啊，他在张学良公馆旁边啊。
+- [01:40:43]：你们能体会到这个地域笑话吗？啊，嗯，就在张学良公馆旁边修了一一所黄埔同学会。
+- [01:40:55]：，感谢这老哥搭赏老挝对亚洲各国这么残暴以及各种类人思维和行为，跟他们自认为是亚洲最早西化的超级二狗子心态是否有关。
+- [01:41:13]：那会儿还不是二狗子心态呢，那会儿还是非常狂猖狂的是吧？东亚第一帝国形态啊，感谢沉重的蚂蚱老哥打赏，我是达利安人，经常参加漫展，真正的cosplay只会在指定时间指定地点穿一些指定啊。
+- [01:41:30]：这怎么给撤回了，我你就直接给撤回了，我没看着啊。
+- [01:41:41]：指定地点穿一些指定服饰，co色圈都是有自己的规律，又撤回先先等会儿吧。
+- [01:41:54]：哎呀，我只能说有有的时候每年每年的一些时候啊，出现一些奇装异服的人，嗯，这些奇装异服的人，突然就会使我使我手上的棍棒啊变得快速起来。
+- [01:42:10]：是会使我的棍棒旋转。
+- [01:42:17]：这种东西就刚才那位老哥SC啊，大连很多漫展，就是因为我在大连生活过嘛，我知道呃你那么多能去的地方能拍照片呢青海湾啊、黑石礁这些地方你不去，你那个还有棒棰岛，你不去，你他妈偏偏要跑跑到旅顺去，还跑到白塔附近，你他妈是永河去进啊，谁。
+- [01:42:43]：cos圈cos圈都是有自己规律的，反而不是cos圈的人叨上乱搞，在敏感时间敏感地带搞敏感的事情。哎呀。
+- [01:42:52]：知你知道兄弟们啊，你们在B站关没关注过一个up主，叫做武镇天王杰哥的啊，大家有关注吗？
+- [01:43:04]：我知道他怎么了啊，他他不是卖他不是卖那个武器装备嘛？是吧？啊，对对对对对啊啊，我准备我准备像像像像像杰哥是吧啊，订购一点订购一点小小的装备是吧？我看看什么价格哎。
+- [01:43:23]：我把这玩意儿穿着是吧？去和小日本打。
+- [01:43:27]：你懂吗？我准备你你知道你知道我准备整一套什么吗？我准备整整两套衣服啊，一套呢是代源是吧？一套是代元的确契削的确靴的战甲啊，一套是代名的战甲，要弥补两个遗憾，你知道吧？一个弥补一个弥补就是就是代源的远征日本失败。
+- [01:43:53]：啊，懂吗？
+- [01:43:57]：啊，远远远征远远远征远征日本失败是吧？要弥补一下代元的遗憾，然后然后再再再弄一套明明明代的装甲是吧？再弥补一下明代没有没有下海奏小日本的遗憾。
+- [01:44:14]：那应该是没有相灭倭寇啊，未能未能逃破敌球之遗憾呢。
+- [01:44:23]：我说来到地府在天之旅是我说来套你赛弄套明光铠也行。嗯，不是唐代打赢了就没有遗憾了。
+- [01:44:33]：啊，不，你你你穿唐代的明光铠，会使会使他们感到恐惧，这就够了啊，感谢唐是血脉压式了属。
+- [01:44:47]：感谢腾格袋子老哥打赏是吗？刚才在煮咖里逛来听就听到下半部分，正好白吃下午没买到好牛肉，猪肉用香料配蜂蜜酒腌制成假牛肉，又放点潮汕牛肉丸。好吗？胡萝卜豆腐啊，胡萝卜土豆出锅配成配了甜椒生菜、洋葱丝儿可以可以。
+- [01:45:08]：上下图是吧？啊，不能只有我一个人看见。
+- [01:45:15]：哎，老爷，我有一个奇想啊，你可以穿一下我们陕北的那个呃短打和那个那种黑裤子，黑长裤，然后加上那个头上裹那个头巾啊，然后呢你再你再买一把大刀啊。
+- [01:45:33]：有年纪的日本人看见你会明白的啊，我有年纪的日本人看见你会明白。我我再让我我再让我教友兄弟打点安塞腰鼓，是吧？
+- [01:45:46]：啊，不用你不用安31鼓，你只需要我们西北长川的老农民或者是羊圈的那种衣服。然后你再拿把大刀啊，有年纪的日本人会明白你这是什么意思。
+- [01:45:59]：支持老爷来一次是吗？微30啊，感谢539老哥打赏。
+- [01:46:09]：啊，不许说俄语啊。对，早就他妈该搞，不许说俄语了，不许说日语是吗？
+- [01:46:27]：对吧就是把代言的和代名的遗憾都弥补一下。，感谢金江去Q的老哥打赏是吧？
+- [01:46:38]：啊，刚吃完没拍照，这是我今天感冒期间吃的减脂餐，你这是什么减脂餐啊啊，兄弟。
+- [01:46:47]：这是减脂材呀，不对吧，兄弟，你。
+- [01:46:58]：不你们都该一个一个搞事情是吧？你这叫减脂菜，黑胡椒牛肉炒意面，蒜香鸡中意啊，孜然牛肉煲仔饭，我天哪。
+- [01:47:15]：哎，呃，没事，我今天也弄了点减脂30，今天天冷啊，呃今天西安温度才27度啊，天气比较凉爽。
+- [01:47:27]：然后呢有点馋，然后呢忍不住和老婆出去吃顿甜脂餐。那个图片发你了，你可以放放一下啊，这个更过分，我天。
+- [01:47:37]：月牙饼儿，然后羊肉羊汤可以啊，这是羊骨头啊。
+- [01:47:49]：羊骨都碎熬熬熬人真恶心啊。对啊。
+- [01:48:00]：那你以为嘞，微信收100元，感谢老哥打赏，感谢雨如播真刷鹅大，凑个热闹，出几个假片钱啊，感谢老哥。
+- [01:48:13]：啊，穿甲大小日打小日本之前，先记得去惩戒日本学姐啊，可以可以可以。
+- [01:48:22]：啊，你们是够狠的得吃顿好的啊，是就我我天天吃好的是吧？
+- [01:48:35]：我的遗憾，棒球棍能满足吗？0.01元啊，这是这是这是唯一难受的地方，是吧？这是唯一难受的地方，就是我可能只能用棒球棍，而不能用刀。
+- [01:48:50]：我那个539宝哥，那个我读吧，穿假大打小日本之前先去的去惩绩日本学姐，我毒吧，宝哥啊。
+- [01:49:08]：哎，难道不对吗？这这不是539539好哥吗？等一下啊，539，我这有点太多，我哥你你发我私信，你震一下我难道不对吗？
+- [01:49:26]：我记得我多过啊哎真的。
+- [01:49:40]：而且而且你知道哈，就是我我查了一下美国的法律，穿这种穿这种复古全甲啊，是不受那个防弹衣限制的。就是他在防弹衣禁定之外，就是你穿这种仿古的铠甲啊，人家会当做某种cos道具，为其收看20元，感谢史尔纳老哥打赏。
+- [01:50:03]：我看一下啊啊，看看乐子，8月10号一次举报威力还要大，可还行。
+- [01:50:12]：啊，钢四贴V一之创意工坊DM哎呦，我操这个不放老哥，那个感谢老哥，这个我就不放了，是吧？钢四的活刚钢四这摊浑食我就不谈了，这这个这个这个这个那什么。
+- [01:50:23]：钢四的这钢四的威力还是太大了，是吧？MMode的是吧？跟那个钢四modode的，还有那个维多利亚的那个我都不碰啊，这帮人这帮人太磨怔。
+- [01:50:42]：啊，尤其是涉击钢丝的这这个这个这希望老哥理解是吧？这个不放啊，也不涉及。好吧，那群摩托人，我离他们远点。
+- [01:50:56]：就是我穿我穿这种古代铠甲是吧？只会被人当做道具，而不会被警察针对啊，非常的好啊。
+- [01:51:13]：有人说能不能弄吃铁窑子，西夏铁窑子，我没有马，兄弟，那玩意儿没有马运不起来。
+- [01:51:22]：行那啊，感谢所以你看这也是为什么我会推荐你使用，就这也是为什么我会推荐你使用陕北大刀队的套装，而不是使用。
+- [01:51:34]：啊，是吧因为为什么不呢？因为陕陕北大刀对他的服装呃既好看还轻便，而且还不太热啊，最重要的是它的威慑力甚至比某些东西更能唤起某些某些这个呃存在于亚空间生物的这个血脉里的本能吧。可能说。
+- [01:51:56]：有时候铁窑子可以骑摩托，你的意思是让我一只手扶着摩托，另一手拿棒球棒削在他脑袋上是吗？那人就死了，兄弟。
+- [01:52:08]：那我就进去了懂吧？那个还是那个还是算了，铁窑铁铁窑子是巨装骑兵，重甲巨装骑兵，那那玩意儿一点也不好玩。
+- [01:52:23]：太他妈沉了，他他还不能是李。嗯，不你可以你可以学习一下西大老哥，就尤其我在西大见过的那种西大老哥，他们玩的那一套，比如说天法雷霆骑士。
+- [01:52:41]：我操一个摩托拿个那种那个那种专门砍木头，双人双人锯树的那种锯子。
+- [01:52:49]：啊，拿那个，然后一手抓住一边，然后直接平放啊平放，然后开着摩头过去就行。
+- [01:53:00]：有时候那盔甲超30斤，那不叫超30斤。兄弟，铁铁窑子全甲那玩意将近50斤。兄弟，你再算上兵器，那妥妥的六七十斤好吧。
+- [01:53:13]：想啥，那铁窑子那个假，你别说你别说人马他也受不了。
+- [01:53:25]：你把马穿的和你穿的加一块五六十斤呢，想啥呢？
+- [01:53:37]：呃，我想这么说，就是实际上如果你们呃了解一下紫外的那个那个巨装骑兵的那帮人的那个体格，你就明白了。
+- [01:53:48]：就实际上大部分的这种巨装骑兵，他们骑的马都不太高，甚至比较矮。
+- [01:53:54]：呃，至于为什么呢？因为马如果太高的话，它的腿骨它的那个是那个作用就用做工的时候，它的骨头是比较脆的啊，越短的话，同等材质它的做工效果越好，是因为它的因为随着它长度的减小，它的这个硬力它就越小。
+- [01:54:16]：哎，嗯，给读一下SC感的感谢懒得起名字，老哥打赏，你们太坏了，发现美食图片生在西雅图的奥A该咋办，他妈的整我是吧？都闪开让我来啊，对对对。
+- [01:54:34]：哎，嗯真的你们就发吧，是吗？我还是挺愿意看你们给我发中国的美食图片的，还能安慰一下我的心的。你们知不知道我在美国成天吃的都是些什么逆天玩意儿？
+- [01:54:47]：你们懂吗？啊，今天黑哥啊今天黑哥还说给我露一手是吗？让让他要做他家乡做的做法，做鸡肉，结果还他妈做糊了。
+- [01:54:58]：净他妈伺候他的猛过去了，哎，烦的要死，最后还是吃的吃的吃的那个汉堡薯条，哎，想一想我都难受啊。
+- [01:55:10]：哎，我真是他妈受不了哎这。
+- [01:55:32]：我我我我跟大家说一下啊，就是在吃这个就是我心情不好，在美国精神压力大。
+- [01:55:42]：另一个缓解的方法就是就是那什么啊，感谢摄影大佬给我打赏，换一个是吧？放战锤视频好，我老绿皮了，可以。
+- [01:55:51]：啊，这不是那年的圣诞歌吗？就是除了女人以外，另外一个能安慰我的就是。
+- [01:56:01]：是那什么吃点美食，然后美国还没有什么美食，很烦。
+- [01:56:14]：实在老哥打赏，往好处想到群友发的美食，你虽然看得到，但是你吃不到啊啊。对你看等我回国呢。
+- [01:56:23]：我是必必线下单杀你们哎，没事，我突然想起来一个非常恐怖的事情。
+- [01:56:36]：在西大吃的那个饭，就是我不是跟大家说过吗？我的房东原来是狱警，他在退伍以后加入了监狱啊，然后当了狱警。
+- [01:56:48]：那么狱警只会做一种菜，就是监狱的监狱餐。你们能理解我在吃一年半监狱餐以后的心态是什么状态吗？
+- [01:57:04]：唉，每那么回国甚至每每逢佳节胖30斤呢。对呀，我你知道我我当年从从西大回来以后，我我一开在西安，我吃五顿操。
+- [01:57:20]：一个星期一个星期胖了8斤，猪都不带这么吃的，我跟你讲。
+- [01:57:30]：太无打人了，我操微信收看30元，感谢老哥大卡。既然如此整个活点歌，我等的串还不爱，是是他妈我顶的串，还点的串还不爱。
+- [01:57:43]：嗯，大家看看这个日本新闻是吧？啊偷西瓜。
+- [01:57:58]：唉，呃，我会这么说，就我在西大待了以后，我回来我回到东大，我我下了我下了飞机第一件事儿。
+- [01:58:11]：在北京直奔一个卤煮火烧的店，然后吃了一顿卤煮火烧。然后我甚至觉得卤煮火烧是美食，偶尔这是我最他妈难碰的。
+- [01:58:22]：哎，有人说我我我我够完，大哥，你是我新粉丝吧，你是头一次看我直播吗？你知不知道我之前做多少吃的呀，就为了改善自己的伙食，我操，我花个老功夫，好吧？
+- [01:58:38]：但是你再看看日本这个南丰的长野县一处瓜田，被偷了600个西瓜，价值120万日元。
+- [01:58:48]：感感谢0，感谢屋敌老哥打赏一个月来哈，我看看老一上图可以试试这套装扮，轻便也不热，而且也很有威慑性，把涂上大刀换成棒球棍就行。按窝之前先往个球棍上喷一口酒，然后一秒6棍。
+- [01:59:06]：啊，可还行，碰议直行是吧？这下是真的像的大刀向鬼子头上砍去了。
+- [01:59:21]：啊，对，600个西瓜价值120万日元，1个2000日元，合人民币100左右。
+- [01:59:35]：我天，你就看日本人吃的这点玩意儿吗？感谢老哥打赏，我看一下。
+- [01:59:44]：啊，看看啊啊说到美国美食，今天早上想到今天早上看到个美国视频说为什么美国的肯德基越来越烂，而海外的肯德基越来越好，结果展示的肯德基照片确定这玩意儿是鸡肉能吃，一会儿找一下截图。
+- [02:00:04]：啊，能啊呃，我这么说，就是当年我在西娜吃的肯德基是什么样子？就希腊的肯德基跟中娜的肯德基是天差地别的。呃，我吃的那个炸鸡，它。
+- [02:00:17]：里头没有太熟，然后他外头那个糊糊是粘的啊，你没有听过他外头那个糊糊是粘的。
+- [02:00:26]：然后里头没有熟，他那个他那个挂的炸粉没炸全，里头没炸透。他那个挂的那个粉流出来了，很恐怖的哦，兄弟。
+- [02:00:38]：啊，感谢感谢风水剑圣美许就绍我和打赏，我看一下啊。呃，然后然后最恐怖的一点就是他除了卖这种炸鸡以外，他卖的饮料是掺了水的capps。
+- [02:00:53]：这是人喝的啊这是人喝的吗？幽幽幽默日本西瓜，我天。
+- [02:01:12]：哎，过于幽默了，我只能说。
+- [02:01:23]：唉，腾可蛋走个那个是那个给放了，你那个图放了，我再给你放里面这个吗？
+- [02:01:35]：放过1944日元，人民币按100算，刚称了一下，66.3斤，6.3公斤，划下了人民币8块钱一个。
+- [02:01:47]：这玩意居然叫赤色彗星下牙专用嗯。
+- [02:01:56]：感谢今天去跟咱老哥打赏是吧？然后天晚上天天啊飞机飞大飞机飞到大型转机的时候，我在大兴的饺子馆里跟两个女生一起吃了300块。然后晚上天天吃烤牛羊肉排，虽然我在减肥。
+- [02:02:11]：嗯，可还行，支付宝到账19.99元。
+- [02:02:20]：那可还行，这是什么来组，我看一眼啊，今江去学台老哥吃的很那什么嘛？啊吃的很节制啊，比上次吃羊排节制。
+- [02:02:36]：我个打赏，我看一下嗯嗯啊。
+- [02:03:02]：点播一下糖醋的经啊，这个是吧100多年啊，这个。
+- [02:03:13]：啊，先把这个放了是吧？这个老哥点的，我其实考虑了一些要不要放，最后考虑放一下吧，已经放了这么多美食了。那个能点外卖的去点外卖吧。
+- [02:03:27]：是可的。
+- [02:03:43]：啊，86，感谢86号哥啊。
+- [02:03:54]：The.
+- [02:04:12]：微信收10元啊，补下图片OK.
+- [02:04:24]：忠诚往是非。
+- [02:04:33]：我感觉我感觉点那个视频那老哥恶意很大。
+- [02:04:43]：完了，我们拿美国难吃的东西对冲一下嗯。
+- [02:04:52]：看看美国难吃的又干又柴的肯德基对冲一下啊，肯吃骂老子上视频的时候，抽象程度堪比凉炸鸡。
+- [02:05:09]：什么玩意儿，我天搜一下。
+- [02:05:24]：Oen.
+- [02:05:42]：我操不行啊，不行，我我他妈的啊，感谢今然去谢来老哥打赏。肯德基好像和苏超联动，我在想要不要去点份肯德基。
+- [02:05:54]：随便是吧？右边那是人吃了，美国就这样及。
+- [02:06:06]：就过去一生一世初心。
+- [02:06:18]：不放他不如可乐鸡翅呢，不行，再放一会儿，我人要没了。
+- [02:06:37]：你一说美利坚的美食，我就想笑，等会啊，还有这个。
+- [02:06:47]：这个这个等一下，我放一下，然后陈忠骂着老哥，这呃不是这个啊。
+- [02:06:56]：锅包肉是视频是吗？呃这个这大我也欢迎大家关注一下这位是吧？啊，老东北美食啊。
+- [02:07:07]：多年前200多年前，您家就这么做，外面在练锅。朋友们，大家好，今天做这个大家可以关注一下老东北美食，这个你们做的做的美食都是可以复刻的。
+- [02:07:21]：啊，我做过他的他家，他这个大舅的好多菜是吧？啊，这个都非常香，糖够底。
+- [02:07:29]：呃，加点素吃健常来，糖度里脊啊，是火遍大型南北。我这个菜是哪儿来的？。
+- [02:07:35]：从这个公平大当中然后呢这个那个。哎呀，说实话，我之前不是学无人机嘛，然后我们那个学校旁边有个东北人那个那个叔他做那个，他做的那个豆角豆角土豆。
+- [02:07:53]：做的那个哎呀，做的那个那个好吃啊，那真好吃。豆角和土豆一起炒了一下，好吃真香。
+- [02:08:02]：可惜美美美国没有那种东北的那种豆角大角是那豆角子那确实香，我觉得做好做好挺好吃的。原料2分之1深瓜。
+- [02:08:18]：等说这是糖醋底的，这个这个不是锅包肉，糖酥底的是糖醋底的。
+- [02:08:30]：神喂翻过来再写哦，你们再看这个书啊，是，那没事了，这个书还有一个咸菜滚豆腐，你们可以看看他做那个咸菜滚豆腐也挺也挺好的。
+- [02:08:43]：现在开始煎背，看看肉不用洗啊，不要直接抓大，把这个汁儿都抓到肉好，看看有时候豆角子和豆角子不一样，做起来方法都是一样的。
+- [02:08:55]：还可以啊这个我我只能说是吧？看看是吧，看老丢做饭是吧？啊，大舅做饭还是很很很很很赏心悦目吧。我这边就二位速，放完准备进正题了。
+- [02:09:13]：吃半的不能给多，哎，这样就行，加上15个油啊，看看鱼。
+- [02:09:24]：感谢云云河山附近院老哥打赏是吧？讲个亲身经历的笑话。我在土豪那会儿有一次当地一般人哥们来国内玩，我中午招待了他一顿铜火锅，这哥们儿炫了八盘羊肉，八盘二两半一盘吧，一般是还是三两一盘，二两半一盘的话，八盘，那他妈是两斤啊。
+- [02:09:44]：下午出门啊，下午是等会儿，我看看啊。
+- [02:09:54]：想下午出门看到卖肉松小贝的，有时候他又炫了一整盒，这哥们皮话挺对的，平时吃饭标准标准沙嘎鸡胸肉，我一直以为他这是自律来着，这不是自律，而是没东西好吃，你知道吗？
+- [02:10:09]：或者一两大都可以啊，你要吃个万带头是最合理的。里面加点香油。好了，面粉这是土豆面粉啊，土豆淀粉都香一般是三的呀，吧？那那那那20斤多啊，完了再进来咱们看个头啊，看个头吸不稀吸多少。
+- [02:10:27]：哎呀，我跟你说，我之前在西大，有一回我一个哥们儿，他那哥们是四川人，然后我们当时整那个。
+- [02:10:37]：整那个他们那边那种骨汤老骨汤火锅，他也没放辣的，因为他顾及到好多人其实吃不了辣的，他就弄那种清汤的嘛，骨汤的，然后结果整了哎，我我们整了好多那个。
+- [02:10:52]：涮羊肉涮牛肉，然后拿那个鸡蛋往上一打，然后一一和和完了就下上去那个煮嘛，涮，那香啊，那叫一个香啊，我我天我我现在都能回忆起来那个味道。
+- [02:11:05]：真的是乐久了，吃什么都香，只能说哎有人说这胃受得了吗？其实可以，偶尔一次无所谓，人的胃弹性挺大的。
+- [02:11:19]：挂红的就有金黄色，稍微浮薄一点露点厚的这个这种湖薄，呈现出来是个红色。难的，你再大眼的口干做才好啊，第一次就能做这辆拿的。
+- [02:11:29]：大舅，而且我跟大家讲，大家一定要关机，关注一下大舅是吧？他的菜都是你能在家里复刻的，我在美国都能复刻，兄弟们。
+- [02:11:43]：不要怕，真的，我在美国都能复刻，你们一定也可以有感多。
+- [02:11:53]：大好，这阳老师傅们啊，100多年前200多年前，人家就这么做的，就这么好看。好了，做好了。
+- [02:12:07]：好妈看一下子呃，还有一个视频，最后还有一个是吧？啊，抽象程度堪比梁炸鸡，我天。
+- [02:12:21]：that black sym event by the time I was three years old, I was indistinguishable from any other African Negro child.
+- [02:12:36]：the Negro father was a even by lose of Negro thing.
+- [02:12:46]：hy you damn people men say be in there, but what I remember most was an unwarranted hatred of the white man damn.
+- [02:12:59]：I remember him making me feel very for my very ownnesss just upset because he's lazy and the white man makes a.
+- [02:13:15]：跟大家讲一下，就是他为什么说说他是白人呢？就是因为他好好学习，你懂吗？
+- [02:13:30]：就是如果我我跟大家说一下，在黑人的社区里，如果你不酗酒，不抽烟，不吸毒、不打架斗殴，不抢劫，好好学习，天天向上。
+- [02:13:43]：你周围的黑人会管你叫白人，你听好，就是如果你在黑人社区里没有任何恶习的话，你甚至想好好天天向上好好学习。
+- [02:13:58]：你会被同社区的人叫成白人，大家还记得那个死的黑大个吗？在他的社区里，他就是一个标准的打引号的白人。
+- [02:14:09]：死的懂吗？会死的，最后会成为一个律师。呃，很不幸，他大概率成为不了一个律师，他大概率会成为律师之前就死掉。
+- [02:14:26]：Com on did please.
+- [02:14:36]：Just having fun with limits and Mr. I.
+- [02:14:51]：跟大家讲这句话非常爸爸国长大后想当医生、律师、法官、警察，就是任何正面的体面的，需要一定学历的职业。
+- [02:15:08]：就是这是一种非常典的，就是白人发言，就是黑人家庭中的白人发言，就是你敢在黑人家庭当中说这种话，接下来等待你的几乎就是无休止的殴打和虐待。
+- [02:15:27]：懂吗？兄弟们听好了，你在这是这这几乎是狗哨一样的口号。你在白你在黑人的社区里面说这种。
+- [02:15:38]：爸爸妈妈，我长大以后想当医生律师，什么教师，就是任何体面的好的工作。
+- [02:15:47]：你甚至会被全家暴力使猛暴力加暴力。
+- [02:15:57]：adopted Negro who I loved almost like she was white I loved almost like she was white.
+- [02:16:09]：这这个也是非常标准的，就是就是黑人的自毁性的发言，就是就是什么什么就像白人一样。
+- [02:16:23]：就是如果你被挂上这种词条的话，就是你在某个方面再向白人靠拢是极度危险的。
+- [02:16:34]：能能能明白我的意思不？就是你几乎是当一个黑人描述另一个黑人某种行为和形象，他的描述为跟白人差不多的时候。
+- [02:16:52]：' to that you she knew all my history.
+- [02:17:08]：啊，还有啊就是就是。
+- [02:17:18]：在黑人的社区里面，你可以喊口号，你可以搞BLM就是黑人的命也是命。
+- [02:17:27]：但是如果你真正意义上想去好好学历史，去回顾黑人历史上那些成功的有名的人，或者是成功的反抗案例的话，对于黑人来说也是一种某种程度上的不可饶恕。
+- [02:17:45]：某种程度上的不可饶恕，就是他见不得自己的历史上有任何一点闪光点。
+- [02:17:55]：就是自恨 more peanut algae death than anyone who ever lived. baby, why don't we read about Eli Whitney instead, He invented the cotton. He was a great white man.
+- [02:18:14]：就正好这这个视频放的非常好是吧？
+- [02:18:28]：我们各对于我们接下来要讲的内容帮助很大是吧？啊，感谢啊感谢一下沉重的蚂蚱老哥是吧？
+- [02:18:37]：本来是准备放另一个视频的啊，既然既然老哥点了这个视频是吧，我就正好这是一个非常好的切入点啊。
+- [02:18:48]：就是现在我们来讲哈，就正好直接就写入正题。我们先讲二等人优越论。二等人优越论。其实这期我先说一下这期本来的标题我想做的是什么呢？就是。
+- [02:19:04]：美国人的那个其他非白人主义的心态问题和他们怎么认知白人的问题。
+- [02:19:15]：后来我发现他们有很多草舌灰线是联系在一块的，他们某种意义上有很多的相似性。
+- [02:19:24]：其他的种族的世界观、三观和他们怎么对待白人就是。
+- [02:19:37]：他们的发言和心态以及各种作品，书籍也好，论文也好，还是时尚也好。
+- [02:19:47]：表现出明显的两种心态。什么叫两种心态呢？就是这两种心态能够同时存在在一个人的身上，并且是。
+- [02:20:00]：逻辑自洽什么样的心态呢？第一重心态就是我是最优秀的，就是我是最优秀的，我是最优越的。
+- [02:20:17]：而且我和白人他就是他首先第一点强调我和白人不一样，就是我和白人不一样，我是特殊的。
+- [02:20:27]：是吧白人没有完全规训过，我没有被白人完全规训，就是典型的就是什么呢？我们说美国第一个群体黑人。
+- [02:20:40]：他们有非常明显的这种心态，就是我们和黑人不一样，我们和白人不一样。
+- [02:20:52]：什么意思呢？大家还记得刚才看的那个短片吧。
+- [02:20:58]：就是我说那里头非常危险的一个发言，就是说你做什么什么事情和白人一样。为什么这句话为什么这句话危险呢？他危险就危险在他们打破了这种优越问。
+- [02:21:14]：就是我们和白人不一样，而且并且我们就是因为和白人不一样，所以我们优越啊？如果你和白人一样。
+- [02:21:27]：那么你的这种优越权就会被立刻回收，而其他还保持这种优越棍的人会立刻暴答你，消灭你。
+- [02:21:40]：有那有人说这种不一样，有的时候没意义啊。对，比如说白人能当律师，白人能当医生，白人能当警察，白人能当教授。
+- [02:21:52]：那么黑人就是一定要反过来，就是我们黑人绝对不当医生，绝对不当律师，绝对不当教授，绝对不当老师，也绝对不当警察。
+- [02:22:06]：那你说那体面的工作你都不去干，那意义何在呢？哎，重点就在这儿。
+- [02:22:13]：就是我因为不干这些事情，因为我的生理指标干这些事情有缺陷，反倒是我的优点。就是我正因为我的优秀，所以我才不能去干这些事情。
+- [02:22:31]：就是大家还记不记得我反复强调，你还记不记得有些白人把自己的生理过敏现象。
+- [02:22:39]：当做一种维持自己血统优越的证据，就是黑人也一样，白人这种优越感的证据是什么呢？就是。
+- [02:22:50]：我们把天就是我们白人把天赋都点在打架上了，点在烧杀抢掠上了，点在金融天赋上了，点在科技上了。我们在这方面极其的优越优秀。那么我们的天赋点可能不够用。所以我们有那么一点点小小的缺陷恰恰证明了我们的优秀。
+- [02:23:13]：你能懂那种逻辑不？这是我的天赋点用完了，我把我们的天赋点都投到什么上面了。所以因为我的天赋点用完了，所以我才在其他地方有那么一小内内的缺点。
+- [02:23:29]：黑人也一样，黑人的共成国辑是什么呢？我们的黑人音乐天赋很强，运动天赋很强是吧？所以我们在智理上面就可能是稍微偏低一点。
+- [02:23:41]：这正是我们优秀的象征，就我见过无数这样的黑人同学，就是。
+- [02:23:52]：被自己的同族欺负，你们不会以为那个就是我那个那个黑人同学死的那个黑人大黑人大哥。
+- [02:24:02]：小哥，就是他怎么死的，他就是被自己社区的帮派分子崩掉的。
+- [02:24:10]：为什么就是你怎么胆敢证明我们不优越，就是你学历史，你学数学，你学一些需要高智力才能证明个人的一种东西。你学这个就证明你的优势本身被取消了。
+- [02:24:33]：这不是否认自己的可成长性吗？他们自己是不承认的啊尤其是黑人，非常点。
+- [02:24:44]：我讲的最点的就是如果如果你去过黑人社区的话啊，黑人社区就是。
+- [02:24:57]：在黑人的社区里面非常常见的一种现象是什么呢？就是一些想稍微表现好，学点好的黑人小孩儿。
+- [02:25:09]：在社区里面啊什么样子呢？经常是领救济的时候，我见过太多了。
+- [02:25:19]：啊，是如果有一个黑人表现的想自强自立，说我已经很自强很自立了。
+- [02:25:29]：我不需要去领这些救济食品了，我想自强自立，你的同学，你的哥们儿，你的朋友就会或甚至是你的其他亲戚。
+- [02:25:44]：会反复的上你的门儿，让你去领救济，你不领救济，甚至他会打你。
+- [02:25:55]：如我好好努力工作，我我我已经不需要再当穷人了，我不需要再领了，不行不行。
+- [02:26:05]：因为领救济是黑人优越感的一部分，你看这是白人欠我们的。你看白人承认了自己亏欠我们的这就是我们黑人应得的。
+- [02:26:21]：不存在什么，你自强你就不领了。不是的，懂吗？
+- [02:26:33]：你说这也算优越队，他们的优越感非常的扭曲。
+- [02:26:39]：就是那你说那你不就是证明了黑白人骑在你们脑袋上能欺负你吗？对，这就是我说的二等人优越问，就是他们实际上没有把白人当做人，他们把白人当做什么呢？他们把白人某种程度上当做某种天然的机制或者是天威神威。。
+- [02:27:04]：你们懂吗？就是他还是基督徒那套受苦的逻辑，白人就是上帝的威严，白人就是上帝的意志。
+- [02:27:14]：他们来欺负我们，压榨我们是应该的，是必然发生的，是已经发生的，现在正在发生的，将来还会发生的事情。
+- [02:27:32]：就是他实际上是把白人非人化来证明自己的优越。因为如果一旦白人也是人，他立刻就会沦为二等人。
+- [02:27:45]：就是他一方面证明了白人实际上是骑在他们脑袋上的一等人，他们是二等人，甚至往下的。
+- [02:27:54]：但是是他又要保持自己的优越感，优越感是极其难以维持的这也是我说的是为什么他叫二等人优越问呢？
+- [02:28:06]：就是他甚至还会鄙视其他的人种，就是我是二等人，就是你们不许逾越我。
+- [02:28:17]：啊，白人不在，我是老大，白人在我是老二，你们都往后退。这种思想广泛存在于黑人中间。
+- [02:28:34]：就是你会发现一个黑人同时跟你论证，他们是最优秀的，然后又同时跟你论证，他们受白人压迫。
+- [02:28:48]：，对，就是维持为了维持自己自主，把白人抬成神，把自己当做人，就是我是第一等人，但是白人不一样，他们会外，他们是神。
+- [02:29:02]：有种老虎30猴子吃猴子称大王那种感觉。感谢我哥打赏。这天我小富发达了，搬到恍莱坞山上之后，你看他和他姑妈的社区关系。对的，就是如果有一个黑人一旦发达了。
+- [02:29:20]：他没办法，就是他的社区实际上也容忍不下他，他只能搬走，他必须搬走。
+- [02:29:29]：他留在原社区，甚至有生命危险，就这种扭曲的心态导致了非洲黑人，就是尤其是那些伊斯兰教黑人，就是特别讨厌美国黑人。这些基督教黑人。
+- [02:29:46]：就是黑哥，就是黑哥刚来美国的时候，他跟我说，他说他觉得这群黑人有毛病。
+- [02:29:56]：我就说他们有什么毛病，他说他们他们脑子不正常，我说怎么个不正常法呢？他说他们总在这宣扬是说说这个基督是什么什么，就是就是白人啊，白人强加压迫给他们的产物。
+- [02:30:12]：我说那有什么问题吗？他说那他他说我一开始还很开心。
+- [02:30:17]：我跟他们说，那你们改信伊斯兰教吧，是吧？我们当兄弟吧啊，既然基督教是白人强加给你们的东西是吧？是种族压迫的证明，那咱们改呗，黑哥非常天真的以为这群人他愿意改进伊斯兰教，结果黑哥就被那群人打了。
+- [02:30:37]：然后黑哥就很难过，他说他说你们不是说基督教是是白人压迫你们黑人的产物吗？压迫你们信的吗？那我让你们改姓伊斯兰教不挺好吗？我们当兄弟，你怎么还打我呢？
+- [02:30:54]：对吧那美国黑人的逻辑是什么呢？就是我们是信基督最虔诚的人，就是大家要明白啊，黑人证明自己比美国人白人还优越的地方，怎么证明？就是我们比白人还虔诚。
+- [02:31:10]：虽然你是虽然基督教是你们白人拿刀子强迫我们信的啊，虽然他既是压迫的证明，又是我们优越问的来源，就是我们信的比你们白人还虔诚。
+- [02:31:26]：你们白人不如我极度抽象，这就是二等人优约问，他是他是很傻逼的。
+- [02:31:35]：他非常傻逼。对，所以就有人说有人说这能证明什么吗？就是你比如说在黑人历史上出名的运动领袖，几乎要么是和宗教相关，要么就直接是宗教出身。
+- [02:31:52]：比如马丁洛德金，他就是牧师，他是牧师出身。
+- [02:32:00]：懂吗？就是为什么他这种人敢和白人硬刚呢？他是怎么建立对白人的自信心和优越感呢？就是我信上帝信的比你们白人还虔诚，你们白人不如我，这几乎是所有的黑人，唯一能够成体系，对白人建立心理优势的唯一方法。
+- [02:32:22]：几乎是唯一方法呃，感谢这老哥打赏，这不就是和达迪特顶班差不多的底问。啊，这套底问和达利特顶班还不一样。
+- [02:32:36]：这所谓的二等人优烟物，它本质上是当奴才。所以这里就要讲到一个困思困，就是困惑大家很久的迷思。我给大家讲一下。
+- [02:32:49]：我们中国人对欧美人，尤其是昂萨国家，最愤怒的一点就是他们好像看不到我们的屈辱史，是他们造成的。
+- [02:32:59]：就是我们一讲什么南京大屠杀，我们一讲什么八国联军，我们一讲什么八英法联军。是当我们在讲述我们的苦难的时候，我们民族的苦难的时候，我们的共同记忆的时候。
+- [02:33:18]：你们会发现美国人尤其是欧美人昂萨系的国家，他们的表现态度就非常的暧昧，或者说他不把你当一回事儿。
+- [02:33:30]：我跟大家说一下，我就现在给大家抛拳，为什么他会这么觉得，就是他不把你当回事儿。跟大家讲，就是二等人优越问的一个非常重要的问题就是。
+- [02:33:46]：你们白人历史上欺负过我们，对我们造成过伤害。我们中国人是把这种对我们的欺辱和伤害当做历史写在书上。我们要奋发图强，有一天报仇，就是它本身只是一种记号。
+- [02:34:05]：是一种记录，是一种历史。但是在美国人，尤其是欧美昂萨国家，他不是这么认为的。我告诉你，这种东西本质上是证明什么呢？是被他们用到二等人优冤论里头。
+- [02:34:20]：我告诉你是什么逻辑，就是他就是你的就是比如说一个主人，他的老奴才来找他，他说您能不能给我加点钱，是您能不能让我管其他下人。
+- [02:34:34]：人主任说，为什么呢？您看看啊，我的祖祖辈辈是吧？都都都孝敬您，都供奉您，都给您家干活。我们吃了多少多少苦，我们遭了多少多少罪，就是他。
+- [02:34:49]：他把白人对他们造成的伤害，当成了自己的荣誉勋章，当做邀功的资本，当做钉钉打卡的记录。就是你看老板，你看主任，你得给我加工资，你得让我当二等人，凌驾于其他非白人之上，为啥呢？您看您的奴才，我在您手底下遭个多大的罪。
+- [02:35:12]：伺候您伺候的多好，就是他把本民族在白人手里面遭受的苦难当做了邀功的资本。
+- [02:35:26]：对，就是被解救的江哥，你们那个老管家。对的，如果大家没有看过被解救的江哥的话，可以去看一下。就是说白了就是你们白人欺负过我，你得给我补偿。
+- [02:35:38]：现在大家能理解为什么一个黑人不去领救济会被其他的黑人打了吧，这就是我当二等人的资本。
+- [02:35:49]：白人欺负过我，这是白人给我的补偿，这是我作为二等人最优越的证明。
+- [02:35:58]：所以你要知道，当昂萨国家在国际社会上听到我们受的苦难的时候，你知道在白人心里，他不是没有听到他在国内听过太多遍了。
+- [02:36:12]：啊，这是啊，你要好处是吧？啊，行行行行行，我给你点好处啊，你别逼逼了啊，你你你歇会儿吧啊，你这样的奴才，我没有一万也有8000。
+- [02:36:23]：啊，你说什么我欺负过你啊，行行行，我给你转一点产业，我给你发点补助，我给你点国际低息贷款行了吧啊，就是他吧就是他为什么这么觉得，因为在他的国内里面有大量的这个来自于这个种族的低下民族，低等民族。
+- [02:36:43]：把自己本民族从白人那遭受的苦难拿当做邀功的资本。
+- [02:36:51]：所以这就是白人不是听不到我们的呼喊。白人不是无视了我们的苦难，而是他理解我们的苦难和我们理解我们的苦难不是一个东西。
+- [02:37:07]：就是现在美国人可能稍微回过路了啊，你们中国人讲述这种苦难是为了复仇，不是向我邀功。
+- [02:37:17]：这就是为什么说说说十几年前美国能搞出G two这种抽象玩意儿来，就是看哈你给我打了这么久的故，我们历史上也欺负你欺负的很惨。来吧，你想不想当二等人的领班啊，就是你是二等人啊，其他人都是其他的低等人，对吗？
+- [02:37:37]：我们拒绝G two的时候，美国人还破防，为什么？就是你他妈的不是成天跟我说你有多惨吗？你不是成天他妈的跟我说，你是发展中国家吗？发展的有多难受，我让你当二等人领班，你怎么还不顶情了呢？
+- [02:37:57]：对吧？感谢ZZP老哥打赏是吧？我为通过皈依伊斯兰教成体系斗争的黑人是存在的这是著名的黑穆斯林运动。这个运动最著名暴力的果实就是阿马尔科姆那个不行。
+- [02:38:11]：这是黑人能提的话题吗？不行，马尔科姆话题在在美国几乎是不能提的话题啊，就是美国人现在回购啊，你铭记历史。
+- [02:38:23]：啊，不是想希不是你你不是希望当二等人顶班，你是希望和我平起平坐，向我复仇，你们懂吗？
+- [02:38:41]：对，他们认为给钱能谈，我们认为他们要先道歉再死。这是所有的欧洲国家，昂萨系的国家都是这么理解的啊，你不就是有点好处嘛，对吧？你想当顶班，你想当二等人最优越的，就是说白了在他们的逻辑里。
+- [02:39:01]：历史上被昂萨人欺负的越狠的人，越有资格当二等人，越最当二等人，其他的人是二等人以下。
+- [02:39:12]：黑人就是这个逻辑，就是你们白人欺负我们，黑人欺负的最惨，所以你必须给我们当二等人的权利，让我们去欺负其他的三等人、四等人。
+- [02:39:33]：啊，现在大家是不是能稍微理解一下世界上很多国家的抽象操作啊，就是明明他们被美国欺负过。
+- [02:39:44]：他们为什么在美国面前还那么卑躬屈膝？就是他们当他们谈到美国人对他们的欺负的时候。
+- [02:39:53]：他们不是想复仇，他们是为了向美国人证明我应该当二等人。
+- [02:40:04]：就是你欺负我越惨，我二等人就越优越。我作为二等人就应该是最优秀的。其他的种族得往三等四等排。
+- [02:40:23]：哎呀，你欺负我了，他有点类似于什么呢？就好像一个穷人啊，被黑被被有钱人撞了，是吧？
+- [02:40:34]：撞的他越惨，他越能从有钱人的恶意就是要一大笔钱，你们懂不懂你是老爷，我是管家，我他妈要欺负仆人。对。
+- [02:40:51]：是吧？对以日韩为什么那么破防是吧？我们给美国当奴才才有今天的地位。你中国凭什么没有当奴才，也有今天的地位了？
+- [02:41:05]：比就说那美鬼子哭原子弹是不是相同的道底？对的，就是美日本是不是狼子野心呢？日本是狼子野心的。但是在美国彻底倒之前，他每一次讲述原子弹都是在跟美国表中心，实际上。
+- [02:41:31]：就是我们讲黑人黑人这种优越感是最强的。所以你可以看到黑人一方面成天说白人欺负欺压他们。
+- [02:41:44]：那你觉得他就他就会做做种族平等的事儿吗？不是的，我就这么说，种族歧视黑人是比白人还严重的。
+- [02:41:53]：我告诉你，对对其他的种族的种族歧视，黑人比白人还严重，见过太多这种黑人同学了。
+- [02:42:06]：对吧我和我和黑哥是吧啊，我俩还算叫法兄弟呢，是吧？我们一起吃个饭啊，聊个天儿啊，出去看个电影啥的。
+- [02:42:18]：经常有其他的黑人跑过来，就是问黑哥，为什么我和他在一块，就是就你怎么能和一个中国人当朋友呢？
+- [02:42:31]：就是不止一次在大街上是吧，在学校，在图书馆就就表示很惊讶，是吧？
+- [02:42:49]：你怎么能和黄皮猪当朋友呢？是吧？对，秃的一匹。然后这个时候我们就一起把小白帽戴上，你知道吧？
+- [02:43:08]：有时候啊对，也有可能是黑人想法这么扭曲，是因为没有这种想法的，可能都死在种植园里了啊，活着的都是接受这种思想的。
+- [02:43:18]：这是黑人，就是黑人的二等人优越位是最强的啊。
+- [02:43:30]：种族隔离，现在虽然说法律上没有种族隔离啊，但是精神上的那种看不见的种族隔离实际上是存在的。
+- [02:43:45]：社区不就是这样的表现吗？是啊，今天珠宝哥嗯。
+- [02:43:52]：感谢这个哥打赏昂萨可能也是最近十来年才意识到，对于我们来说，没有他们我很重要。这时候他们才想起来，我们也是康米大旗的传人，遥远的东方有上帝之边，他们不体面就帮他们体面。所以他们尤其是欧公子对软硬不吃，油盐不尽的，我们态度是又恨又怕，又没有什么办法。大概老美大概老美黑人也因此看我们特别不不顺眼。
+- [02:44:19]：某种程度上你别说还真是讲道理啊，这个毕姐就是江哥是一部好电影，建议观看。
+- [02:44:34]：然后我们再讲说除开黑人呢，我们再讲讲华谊啊，就是大家听过一个非常经典的说法吧，就是美国铁路的每一根枕木下都埋着一个华工。
+- [02:44:49]：就是在美国的华人政治生态当中，这句话其实和狗哨差不多。
+- [02:44:59]：就是这是一句非常经典的美裔华人，就是美国华人向美国白人邀买的，就是邀宠的这么一个话术0元。就是你不要觉得意外说美国人完全不在乎我们遭受的苦难。因为在他们看来，就是你遭受的苦难都是向我要价的资本，而且要价都还挺离谱的。。
+- [02:45:27]：就是这个这这我们遭受的苦难早就被美国华人消费完了。等下我个打扫看一下。
+- [02:45:46]：哪位老哥点歌我看早就被消消费完了，所以。
+- [02:45:56]：美国华人就是特别希望我们死是吧？就是他对我们不跪着，他们是最难受的。就是因为我他因为苦难时不能被他们拿去邀功，他们简直难受疯了，你们知道吗？
+- [02:46:14]：明吗？就是你们为什么显得那么强大是吧？你就不能乖乖的展示一个非常贫穷的落后的中国吗？你们不落后，你们不贫穷，我们怎么向美国老爷要好？美国白人老爷要好处呢？你们为你们老中为什么不死一下？
+- [02:46:39]：就是中国越强大，美国华人就越破房。
+- [02:46:50]：我就这么说，就是一个足裔在美国受宠的程度，被受重用的程度是和自己国家实实力相成反比的。
+- [02:47:02]：就是你的国家越惨越弱，越悲哀，他相应足裔的人在美国就越能证明自己是优越的二等人，去要好处。老中越强，美国华人就越破房。
+- [02:47:19]：大家还记不记得我以前说过一个理我，就是随着老中越来越强，美国华人向向向白人老爷解释，为什么他们不留在中国而选择来美国，越来越苍白。
+- [02:47:34]：本质上就是这样的。
+- [02:48:03]：华人就是对中国人最破防，就是你为什么不死，你为什么这么强？你这么强，让我们我们都不能消费我们的苦难了。
+- [02:48:16]：就是中国的强大站了起来，让美国华人消费不了我们共同的苦难。这对他们来说比杀了他们还难受。
+- [02:48:32]：懂吗？就是为什么美国华人编撰的中国谣言是最他妈抽象，最他妈逆天的。
+- [02:48:40]：什么集中营啊，这那那这的就是他必须把中波描写的悲惨无比来粉刷一下，否则他们在美国国内实际上被人踩的太狠了。
+- [02:49:01]：想当狗儿不得。
+- [02:49:16]：就是他的本还有一点还有一点是什么？还有一点是政治影响力。西大把这些族裔的人就是来影响他母国的政治生态与政治环境。是但是东大这个状态你影响不了。
+- [02:49:33]：显得这些人很蠢，你又没有用过，为什么要重用你？是的。
+- [02:49:45]：这就是二等人优越棍的一个非常的核心的观点，就是你必须越悲惨，才能越证明你优越。
+- [02:50:07]：那么这是华人是吧？黑人，由于他们没有一个共同的母国，非洲也没有什么强大的国家可以依靠。所以非洲人非裔这种情绪还不强烈，但是华裔这种情绪就非常非常的强烈。
+- [02:50:28]：华谊这种强情绪强烈到无以复加。
+- [02:50:47]：这是这是华人，我们再说阿美人是什么思路呢？阿美人的种族优越棍就更奇葩。
+- [02:50:57]：啊，不是拉美人，他一直在强调自己一个什么身份呢？我们是印第安人的后代。
+- [02:51:11]：感谢今天确学大老哥打赏，而且契丹的强大，经历了比北美华人更严重的苦难。你同时你总不能让北美华人承认自己的选择是错的吧。本身就是一群在东亚活不下去，讨生活和贪官污吏反封建反建制的封建后代啊，是啊。
+- [02:51:47]：那还有我们说华裔是这样，那还有其他主义呢？就比如说拉丁义，我们接着讲拉丁义就是他们一直强调自己身，我们是印第安人的后代。
+- [02:51:59]：啊，就是他们试图当新的犹太人。比如说阿丁义为什么在美国今天发展的如此强大呢？
+- [02:52:11]：不论是人口足裔的是数量上升，还是质量都会急速攀升。为什么就是他们占据了一个连犹太人都占据不了的角度。
+- [02:52:23]：就是犹太人说我们被欺负的时候，我们被屠杀被奴役的时候，干这个事的人主要是欧洲国家，以德国为主的轴心国。
+- [02:52:35]：他实际上很多时候这种优越感没法完全套在美国人身上。
+- [02:52:44]：但是拉丁人不一样，就是他的他的优越感实在是太强了。就是你看自从你们白人来到北美大陆开始，我们就是受欺压，受到屠杀，被驱赶，吃不上饭，都是你们白人造成的。
+- [02:53:06]：对吧我们墨西哥的领土也是你们美国人吞掉的。
+- [02:53:12]：啊，那我们的优越感就是最强的，就是你们白人就是亏欠我们的。我来到这片土地上，我从来不需要感激美国美国白人任何一天任何一件事儿，那都是你对我的亏欠。
+- [02:53:32]：你新墨西哥州是吧，亚里桑那州、加利福尼亚州都是从谁那割的呀，不都是从我们拉丁人这割的吗？
+- [02:53:44]：啊，所以拉丁人他是，所以他从人口比例上很快会超过黑人的。
+- [02:53:57]：啊，非常的恐怖啊，感谢我哥感谢阿肉佩跟老哥打赏啊，看看。
+- [02:54:09]：啊，回国建设的留学生和华侨VS留在美国的润人belike。
+- [02:54:18]：不是啊，兄弟，到说没梗子，你能告诉我你都是从哪找的这些东西吗？
+- [02:54:34]：预期收款20元。
+- [02:54:46]：，感谢ZZP网哥大赏，我看一下。
+- [02:54:54]：给大家推荐一部日本经典动画宇宙战舰大核套里面有个抽象宇宙民族加密拉斯人，加密拉斯人看起来是宇宙得三，但是他的取得是伊斯坎德人抓人来的宇宙奴隶，为了方便统治伊斯坎德尔人，给他们编造一个世界观。加密拉斯人是被神选中的赐福民族，收到时能赶到跨越万跨越万难死伤无数，实际上就是星际运奴船的损耗。蓝色的皮肤是民族荣誉的象征，离开母星就会短命的基因缺陷，是高贵的象征。还有个思想刚毅，任何涉及到民族起源真相时，加密拉斯人就会生理上感到恐惧，会不惜一切代价，阻止接受真相。
+- [02:55:35]：这这是把美国某些人都缝完了，真的神他妈space juice，我靠。
+- [02:55:46]：太低狱了，我我们接着讲。
+- [02:55:50]：就是拉丁人的这种二等人优越会是最强的，就是要不是打不过美国白人，他们这种优约会甚至能超过白人。因为反正你的逻辑是谁受白人的苦难越多，谁最有资格当二等人。
+- [02:56:08]：套这个逻辑，阿美人无敌。兄弟们，他美国放纵阿美移民才多少年啊？
+- [02:56:19]：现在在现在在加州这种大城市，拉美移民非法移民的暴民敢和移民局对着放枪了。
+- [02:56:30]：对吧你想一想他们的视力扩张的有多快，他们套攻式太好用了，这群人套攻势简直无敌。
+- [02:56:47]：那对吧就你在你这套伤害体系公式下，阿美人的攻击力简直就是阿满的属性阿满。
+- [02:56:55]：版本之子知道吗？惩戒奇知不知道啊，比什么黑人这种狂暴战强多了是吧？那黑人一整个就是不听不听，龙吼奥丁，知道吧？
+- [02:57:13]：，阿米go就是什么？阿米go就是惩戒旗啊，神圣风暴是吧？神圣风暴代替思考，神他妈又黑惩戒旗，没黑过啊。
+- [02:57:30]：，对，连滚键盘操作它就完事儿了哎。
+- [02:57:43]：对，四件套惩戒其太兽鸠毛，知道吗？他对十字军打击神圣风暴审判连滚就行了。
+- [02:58:00]：就更不要说什么各各式惩戒旗一见红之类的，可以通过拔网线和堵嘴来阻止他们叠buff吗？不可能。
+- [02:58:12]：你看看美国到现在的take talk上网上，哪怕哪怕拉丁非法移民是最暴乱的一群人。他们在他们在那个舆问场上都是拥有绝对的优势。
+- [02:58:34]：奉献没豆奉献没豆，我们说这是这是阿丁人。
+- [02:58:45]：我们再说日韩这种就是我们的母国就是美国的狗。那我们日韩在美国的移民还当狗吗？
+- [02:58:56]：也是当狗的，就是就是我们本国人就很好笑了，是吧？我们比本国人还好笑。
+- [02:59:08]：就是啊，中称是吧？中称啊，中称是没有上限的。如果说如如果说母国对美国的中称是是是A加的话，是么？我们我们日韩日韩的那种足裔，在美国的足裔，对于美国的中诚，那就是S加是吧？
+- [02:59:29]：啊，他们的优越来源和其他的民族不一样。他们的优越来源是就是你们其他族裔都没有我们忠诚，所以我们比你们高贵，就是他日韩不是论证苦难，而是论忠诚度。
+- [02:59:47]：包括越南译也是，就是他们的论证方法不太一样啊。
+- [02:59:59]：他们强调什么呢？他们强调就是你看是吧？我我我给您当屠松国当了多久，我们的母国孝敬了您多少钱，对吧？
+- [03:00:10]：我们是多么忠诚的存在啊，你们我们最有资格当二等人，对吧？我们最有资格当您的家奴。
+- [03:00:20]：我们不想当佣人是吧？我们想当家奴啊，就是就怎么还不快，就是我告诉你，日韩恐怖到什么程度，就是他们甚至有一种美国怎么还不快点再搞奴隶制呢，是吧？我们好第一时间当真正意义上的奴才。
+- [03:00:46]：懂吗？就是就是他们是恨不得奴隶制恢复回来的，我不能说全部有相当大的一部分人。我见过很多这种日韩人。
+- [03:00:59]：啊，当然他们也有存在，就是对中国刻骨铭心的恐惧和仇恨，所以导致他们对美国这么笑。
+- [03:01:12]：感谢无敌阳老哥大赏，我看一下土色人种以及其他国家是向老美白人诉说苦难，然后争当二等公民。你的邪恶老中是向老美白人诉说苦难，然后让他们当二等公民。
+- [03:01:27]：啊，对，某种程度上是这样的，他是哄堂大笑，人家不是这么觉得的，就是。
+- [03:01:39]：我我给大家讲一下，就是美日籍就是美籍日本人，美籍美籍韩国人是吧？我经常打这群人，大家还记不记得就是我打了一个日本人，就是他是回血是吧？爹是美国大兵，妈是那个美国日本女人，我打的那个还记得吗？
+- [03:01:59]：就是他跟我放狠话，就是说什么，他说等等美军打过去是吧啊，我第一个要你死。
+- [03:02:09]：我赶紧美国和中国开战，我们好当第一批是吧？冲进中国的人，他们就是这种态度，就是。
+- [03:02:20]：我的祖国和中国人有仇恨，但是我的祖国相比较，中国人来说太弱小了。比如说灯牌为什么叫乌哥尔？
+- [03:02:35]：啊，乌龟尔是食人魔，比如说乌龟尔长什么样？因为我因为我长得比较像食人魔啊。
+- [03:02:50]：大早上比时候食人魔什么样啊，给大家看一眼啊，食人魔长这样。
+- [03:03:02]：啊，就我我就长这样啊，你们猜猜我为什么想买一身铠甲穿，懂吗？就是。
+- [03:03:11]：我我就长成这个样子，呃，呃膀大腰圆，又又胖又壮，长得还丑啊。
+- [03:03:22]：我就差不多长这样，这个很符合我小时候的行为。有如是魔兽世界石魔不这样，这是战锤的食人魔。
+- [03:03:35]：有说又死人了啊，这不正常吗？这这这我美国哪天不死几个人啊。
+- [03:03:47]：有时这是什么？这是这是上牙兽，提的这个东西是上牙兽，活名，我没有活名，我哪有回鸣。
+- [03:04:05]：对，食人魔有混沌抵抗的，混沌抗性比较高。所以你猜猜我在混沌我在混沌魔域里面。
+- [03:04:14]：啊嗯今天推位大我说呃是好，一言为定，双喜临门，可爱呀。
+- [03:04:29]：说直接cos董卓。对我穿上我穿上过皇帝的衣服，长得也像董卓啊，这是没有办法的事情。
+- [03:04:41]：全他妈小白猫，我们今我们讲回了。
+- [03:04:52]：对于日韩来说，就是他们的优越会来源于忠诚，其他种族优越二等人优越来源于奴役。
+- [03:05:09]：要是说说润人的情况，哪国润人啊，润人可太多了，也太笼笼统了。
+- [03:05:30]：这个我我我们讲话就是还有什么种族呢？就是美国主流的，还有什么种族，就是亚裔是吧？黑人。
+- [03:05:42]：还有拉丁力，还有什么呢？啊，更主流的犹太人犹太人。
+- [03:05:52]：这就是和我接下来要讲的种族议题相关，就是种族大混炖相关。那么我们说有没有一种方法？
+- [03:06:02]：结合一下呢啊，什么叫有什么方法结合啊，感谢这老哥打赏，读一下S越听越有懂唐伯虎点秋香开口里开头里唐伯虎和别人在秋香面前争香卖蚕，好进华府当狗的感觉。啊。对，另外要是昂萨和他们的二等人狗腿子，知道我们这边有句话叫做十事之仇有可报。看着腿脚不利索，跪不下去，而且几十年坚持用拳头打出自己的生物，不知道他们会不会开始害怕，已经开始害怕和哈气了呀。。
+- [03:06:34]：16年就他们就不敢打，以及知道什么叫骨气。至于这些二等人看不过眼，怎么中国能和老美做一桌谈判，用苦难和当奴才的履地来邀功的纯纯种狗，怎么可能怎么可能配合几百年里一直不屈抵抗压迫的苦难，我们相提并论。
+- [03:06:52]：啊，是啊，他们是当奴才的逻辑啊。那我们就说就是我们能不能把受苦优怨论和人种相结合呢？
+- [03:07:03]：啊，这什么概念呢？就是我能不能通过取白，因为说一0千0道一万，白人也好，黄种人也好，还是黑种人也好，本质上都是智人。
+- [03:07:16]：我们可以互相生孩子，那我能不能想一种办法结合我既是白人，又能有受苦优越论呢？就是这种二等人带来的受苦优越论。
+- [03:07:30]：很好很完美。那么谁是第一个吃螃蟹的人呢？犹太人他们同时又是白人，和和和欧洲白人大量通婚。
+- [03:07:41]：已经把自己洗成白人，自己又携带大量受苦的buff。你看你们昂萨人欺负我们对吧？你们昂萨人得补偿我们。
+- [03:07:54]：我们把两种种族buff加到一块儿，我不就无敌了吗？哎，对了，这就是美国种族大官顿。
+- [03:08:03]：我为什么叫美国叫种族大官炖，而不叫他们什么种族熔炉或者沙拉酱沙拉菜呢？大家知道什么是大官炖吗？
+- [03:08:13]：大罐炖就是由一种主材提供主要的味道和口感，其他的食材都是它的配菜，其他的食材要从主材料里面吸收味道营养，从而达到自己，虽然不是主食材同样的成分，但是味道和香味和和和各种口和各种时间和主食材是一样的。
+- [03:08:40]：比如说鱼这就是鱼炖豆腐，豆腐虽然不是鱼肉，但是经过长时间的炖煮，豆腐吸收过鱼的大量的味道和精华，导致它吃起来比鱼还好吃。
+- [03:08:56]：这就是犹太人的操作方法和一些种族的操作方法。我和白人结婚。
+- [03:09:03]：我们生出来的后代也是白的，但是他同时又拥有我的血统，可以用受害者优怨问去去向白人要好处，等于是白人群体里面内部出现了一群人，要求比其他白人站的还高。
+- [03:09:23]：这就是犹太人，为什么犹太人在美国是天工人，不能提，就是他结合了两者的优点。
+- [03:09:36]：这就是种族大馄炖的问题，就是主食材的味道和精华是会对是会被无限消耗的。
+- [03:09:48]：就是印证我之前说几期节目说的就是美国白人为什么总和混血白人切割，他为什么总切割自己的基本盘，为什么和白人混血的人不能当白人？
+- [03:10:03]：关键点就在这儿，就是我没法让你当白人，有一个犹太人就够他妈乱的了，对吧？
+- [03:10:13]：你他妈的和白人结婚，生了孩子，这个孩子同时拥有白色的皮肤，然后又有你们这种受害者优约问做加持。
+- [03:10:25]：我玩不起了，我玩不起了，对吧？你是豆腐，我是鱼，你这个豆腐吸收过鱼的太多的味道，吸收过鱼太多的精华。结果你这个豆腐吃起来比鱼肉还好吃哈。
+- [03:10:41]：而我的鱼肉又得不到补充，两头拿。
+- [03:10:50]：那我没办法了，我只能切割你，我没法把你当做白人。
+- [03:10:55]：这就是我说的racs is is expensive，就是种族主义是昂贵的。如果白人还是要继续维持自己压迫其他族裔，给其他族裔设天花板，不让其他族裔和他自己平起平坐，自己想当一等人，那么好了。
+- [03:11:14]：其他的种族人只能想破打破脑袋，钻牛角尖，也要把自己的血统换成一等白人。
+- [03:11:24]：微信收看20元，他们有一个犹太人成功，已经很让美国人难受了。感谢老哥打赏。我将来老钟登顶之后，有有没有有心之人也复刻这样操作，还说这样操作已经开始了，有啊。
+- [03:11:43]：有啊，兄弟们，中国一年合法外合合法涉外婚姻一共是多少呢？是42000多人。
+- [03:11:53]：如果把非法的也算上，大概是七8万67万六七万七八万的样子，绝大多数就是有的女人连黑都要黑在中国。
+- [03:12:05]：你们懂我什么意思不？这是合法的，不合法的，一年就是七八万，合法的4万多，不合法的加一起能有个七八万。
+- [03:12:20]：就目前就是而且这个数字在飞快的上涨，兄弟已经快接近10万亿年了，懂什么意思吗？
+- [03:12:33]：你人说赶不走，你怎么赶呢？他都给中国人生完孩子了。
+- [03:12:48]：你怎么撵他走，你要不要问问广西老哥有多少越南女人跑过来？
+- [03:13:05]：所以我们不能搞血统论，你知道吧？你只能包容他，把他也变成中国人或者是汉人，什么人，越南还好吧。
+- [03:13:24]：越南越南还好吧，同文同种文同文化圈没有那么难受，真是他妈哎呦，我操。
+- [03:13:41]：不是哥，这个我不放行不行啊？讲惩戒其已经讲过了，能不能不上这个图，太太太他妈恐怖了。
+- [03:13:52]：是我知道啊来吧，上一下吧上一下就撤啊。
+- [03:14:07]：啊，这个这个维维库人还是太他妈重那样级了。
+- [03:14:24]：下吓吓太他妈好了，支付宝0嗯什么逼玩意儿新最新幻话。
+- [03:14:36]：魔兽，感谢无敌老哥大赏。
+- [03:14:48]：哦为你的回名不是小白猫吗？然后上图，你去cos李逵是不是也挺合适的，把手中的斧头换成棒球帽啊，棒球棍小窝怕不是远远的看到你就吓尿一地是吧？
+- [03:14:59]：我办不成黑旋风理回是吗？目前支付宝到账20元，目前目前最好用的还是戴小白帽，拿国安金是吧？
+- [03:15:22]：太网神他妈太网易了，我看一下啊，我，感谢退客幕后人老哥打赏，我看一下。
+- [03:15:37]：啊，我家避暑的地方，重庆是横山镇，一个也就几万人的小镇子，有66个越南老婆，还有一个俄罗斯白妞。我从我妈那听到这个消息的时候，真的大为震撼。小仙女还在那自我感觉良好，国外女的已经开始抄家了，是啊。
+- [03:15:54]：在东北在东北老家不更多吗嗯。
+- [03:16:04]：念个呀，然后你的美国啊欧美种族大混队是不是这个样子的上图啊，差不多就大家听又死人了。
+- [03:16:18]：哎呦哎呦现在是早上几点，现在是早上6点46啊，兄弟我。
+- [03:16:27]：我操今天没少死人啊，今天今天是个好日子，我人没少死。
+- [03:16:43]：有点多，但现在大家知道西雅图的治安有多暗好吧，这这这这才这这一早上过去三趟啊，现在。
+- [03:16:53]：死人大乐透。对，有人火有人帮码头马头现在活不下去了，帮派火并很严重的兄弟。
+- [03:17:10]：鸡战场是啊，我们讲好这个种族主义这个种族大官盾，就是白人发现每个种族都想上来薅自己一把。
+- [03:17:22]：其他足裔的有能有才能有文化的人怎么办呢？他去挤占美国底层的白人的生态位，然后娶白女。
+- [03:17:34]：大家还记不记得我教授的那些朋友们给我推荐的那几个女的，还记得不就是。
+- [03:17:44]：按照他们那个想法，就是你一个黄种人是吧，给你推荐几个这种是吧？白人不要的歪瓜裂枣，你就应该感恩戴德。
+- [03:17:54]：这是一个改变你后代血统的机会，是吧啊？
+- [03:18:07]：就还记不记得那天的妖魔鬼怪问题最小的那个是正正宗大肥猪，知道吗？懂吗？就是这种。
+- [03:18:21]：白女边角料残次品啊啊，给我们这些啊其他足裔的优秀分子一个上进的机会，是吧？来吧，少奋斗30年。
+- [03:18:36]：你们信不信？如果我是一个美国穷苦出身的其他主裔的人，我估计就答应了，你知道吗？
+- [03:18:47]：你只能说感谢我爹挣的钱是吧？能供我上学，你只能感谢我爹是吧？我只能感谢我爹。
+- [03:19:02]：让我要让我腰板挺的直，我自己也没少挣是吧？那没办法呀。
+- [03:19:39]：我前女友你们算是行的，我都受不了。哎呀，感谢感谢风吹剑圣美曲就山老哥打赏。劳威昂萨白人，如果从1840年到目前为止，也就185年。
+- [03:19:56]：就开始走下坡步了，王朝年龄不如代明。如果从他们发家开始算，从1725年开始算，也就300年。王朝年龄不如两汉，我实在不知道昂萨白人蜜之自信是从哪里来的啊，宗教给的宗教给的，他们绝大多数自信都是宗教给的，称他们自己是天选之人。
+- [03:20:24]：前女友怎么都算不合格是啊，就他那个脾气，他同阶层的美国白人男孩早都受不了了。
+- [03:20:35]：那不很正常吗？谁受得了他那个暴脾气呀，对吧？也也不是吹牛，就他那个脾气，一般一般男人受不了，我就算温柔的了。
+- [03:20:51]：讲真，我我我真的是很温柔的人，知道吗？哎。
+- [03:21:14]：哎呀，这这没办法哎。
+- [03:21:35]：啊，我们接着讲，就是由由于犹太人利用种族大混顿的属性，这个这种美国现状不叫属性，应该叫现状。
+- [03:21:46]：成功的踩在了庞萨人头上。那对于其他的想通过娶白人或者嫁给白人，改善自己血统，得到双重buff的人，在美国数不胜数。
+- [03:22:02]：就是美国白人也没办法，我谁他妈也受不了，总有人骑在自己脑袋上。本来我是一等人，怎么他妈还有人骑在我们一等人脑袋上啊，拿着其他种族的那种亏欠优越论是吧？二等人优越论，再加上白人血统，他妈的反倒骑到我们纯重白人脑袋上了，这他妈能忍忍不了。
+- [03:22:29]：对吧哎，我没办法。
+- [03:22:43]：不然而已经是事实了，既定事实很多时候是因为是因为荷尔蒙的问题是吧？
+- [03:22:52]：我亲爱的，我没忍住射进去啊啊啊亲爱的，我没忍住是吧？就啊这种混血儿是很多的。
+- [03:23:13]：我们我们我们接着讲，就是我们回来。那么在种族大混炖这套逻辑下，哪个哪个二等人或者说哪个其他的人种效率最高呢？
+- [03:23:26]：啊，拉丁人就是拉丁人另外一个成功的地方，他们有成为新时代犹太人的可能，为什么呢？
+- [03:23:35]：因为拉丁人对于其他的底层穷白人来说，吸引力太大了。首先，绝大多数阿丁人都是欧美人和本地印第安人的混血。
+- [03:23:47]：他们的很多性征，他们的很多样貌，他们的很多三观和脾气都是昂萨人那一卦。
+- [03:23:56]：所以他们的三观很近，很容易产生感情。其次，昂萨女人要求低啊，不是昂萨女人要求高，拉丁人要求低。
+- [03:24:10]：哇，拉丁人的要求能低到什么程度呢？请参观讲师，请参观我那两个拉丁小妹。
+- [03:24:20]：要求非常的低，就是给口饭吃，我就给你生孩子，就这么低。那点的拉丁小妹，大家还记得吗？
+- [03:24:34]：我给他们的我给他们的待遇其实并不高，我无非就是管他们吃饱，还给他们点钱，就是让他们不至于在街头上出去卖。
+- [03:24:45]：也就这点标准，他们最后对我的回馈就是我要给你生孩子，就这么苦。你看看讲师，讲师那个德性都有女人，兄弟们，你们想象一下。
+- [03:25:02]：兄弟们，讲师那个水平，要饭啊都有拉丁，就是他无非就是要饭要的比较牛逼，他有台房车。
+- [03:25:12]：所以有阿丁女人跟着他，那我就更不用说我把阿丁小回当人是吧，还不欺负他们。
+- [03:25:23]：就是你想一想，跟昂萨女人比起来，拉丁女人就跟不要钱一样，无过是三观样貌，还符合昂萨人的要求。
+- [03:25:37]：那你想吧，拉丁人起飞，那简直太快了。你说是不是美国牛排一家也高是啊。
+- [03:25:51]：尤其是像在我这种兰州那种小资女出没的地方，你们不会以为昂萨女人的要求就低吧。
+- [03:26:02]：不会的，兄弟们，昂萨女人的要求一样高，而且昂萨女人的要求高到一般的白人，一般的一般的昂萨白人男人做不到。
+- [03:26:22]：比如说我前女友，他喜欢我，为什么？就是我这种家境远超一般普通白人家庭的人。
+- [03:26:36]：才能和他平起并坐。普通的底层的基层的白人，完全不符合美国这些小子女的要求。
+- [03:26:50]：你可以说是新自由主义的魅力啊，还是女权的魅力。不过你怎么说吧，就是昂萨女的要求一点不低。
+- [03:27:00]：那拉丁妹那就那就跟不要钱一样，白捡是吧？
+- [03:27:14]：有很像国内小仙女是啊，你对老中男人那么刻板，刻那么刻薄，老中男人只能去外找。
+- [03:27:24]：对于美国白人来说是一个逻辑，你们他妈昂萨女人要求那么高，我还得我还得想娶老婆呢，我还想生孩子呢。
+- [03:27:40]：懂吗？那是吧？那你想一想普通的美国老哥们还有什么选择？
+- [03:27:52]：歪曲呗，至于你说下一代，至于你说下一代当不成白人了，我这一代都活不过去了，还管什么下一代是吧？
+- [03:28:05]：让下一代去叠buff去吧，对吧？正好下一代同时有白人血统，还能还还能有二等人优越位是吧？证明一下白人对自己其他另外一半血统的欺压。
+- [03:28:19]：懂吗？更好要条件。你说美国女人也对资本的异化很严重吗？非常严重，兄弟。
+- [03:28:35]：非常严重，还鸡逼得我前天直播第一次约会就让我娶他是吧？还让我给他出学费。
+- [03:28:44]：这种要求大言不惭的就敢说，好吧，对吗？对于对对于很多昂萨白人来说，先有先有后人再相信后人的智慧。
+- [03:28:59]：对，就上一叫TF一样的，好吧，美国美国逆天逆天白女的要求也很多。
+- [03:29:15]：自己卖自己自己卖自己明码标价也没什么不好是吧？但是那也不是那普通昂萨好哥是吧？普通昂萨白人就没得选了。
+- [03:29:35]：唉，所以所以就是美国以后一定会变成这种种族冲突的大本营。为什么？因为几乎所有的种族都被美国白人欺压过，每一个种族都是觉得自己是二等人优越问的优有者，我祖上被白人欺负过。我祖上被白人当作奴才过，我祖上被杀害，被白人杀害过，我最有资格当二等人。
+- [03:30:01]：罗马人之下我第一，我和罗马人一换一懂吧？啊，罗马人之下，我无敌，罗马人之上，我和他一换一。
+- [03:30:11]：这种感觉那罗马人最好祈祷他们还能占到主体优势。
+- [03:30:20]：对吧那有一天罗马要是没了，你放心，底下这些二等二等拥有二等人优越论的民族，一定会被争取谁是最正宗的美国人而打出人脑袋，打出狗脑袋来。
+- [03:30:41]：你放心，美国会和罗马一个死法复刻罗马文献。
+- [03:30:53]：一定的就是美国白人一旦解这个这个这个这个整体群思想一旦解体，一旦没了。
+- [03:31:07]：你放心，其他的种族为了证明自己是最优秀的最优越的，一定会复刻这一套。为什么？因为白人本身也是二等人优越问日的受受害者，或者说拥有者，你别忘了在罗马帝国时期或者罗马时期。
+- [03:31:26]：长萨人或者说日耳曼人是吧，是被当做奴隶，大规模的应用在罗马的。对于日耳曼人来说，我是罗马人最最忠诚的奴隶，对吧？罗马人把我们当狗用是吧？
+- [03:31:43]：他们自己本身也是信奉这一套的啊，罗马人是天人，天神是吧？我们就是二等人，我们是最优秀的二等人。我们为罗马出过血，我们为罗马出过地。
+- [03:32:01]：那罗马人一枚那神没了，那我们就成我们就成最高贵的了。那么到今天仍然在复刻这趟国辑。
+- [03:32:14]：那就是复刻这套逻辑嘛哎。
+- [03:32:35]：嗯，真的。
+- [03:32:48]：这里面你可以想象一下是吧？日本人来中国杜种这种这种抽象行为。
+- [03:33:04]：有说候怎么不讲印度裔呃，我不讲印度裔，是因为印度裔没有二等人优越问，他自己就认为自己是最优越的。
+- [03:33:13]：他不是二等人优约问兄弟，那个巴嘎特大成营学还是太牛逼了。这个这个巴嘎特不是二等人优约问兄弟。
+- [03:33:25]：就他们是另一个维度，他他们并不属于今天的讨论范围，他们有点过于超模了，好吧。
+- [03:33:33]：就就就他们他们不具备讨论空间，嗯，人家在心眼里自己从来没当过二等人，好吧，哪怕他们被大英帝国殖民的时候啊，他们都是觉得他们赢了。
+- [03:33:49]：好吧，人家不觉得人家讨一天二等人都在自己心里没当过。好吧，这个印度人不讨论好不好？
+- [03:34:14]：真的这就是印度属于另一个维度。
+- [03:34:20]：你要知道，二等人优越问的一个非常重要的非常重要的核心工具是自己的种族曾经被白人奴役过，曾经被白人欺压过。问题是印度人自己压根不觉得自己被白人昂萨人欺压奴役了。人家觉得昂萨士人是来帮他建立国家的。
+- [03:34:43]：就你他脑回顾不一样，你你他妈的没法往公室里套，感心有个打赏。我意的问过问题，在欧美足裔里面的希腊人和意大利人在美国的种族叙势里是怎么个生态位？希腊人不好说，意大利人几乎是最低贱的白人。
+- [03:35:06]：啊，这个印意大利人是倒数第一，爱尔玩意大概是倒数第二吧，反正。
+- [03:35:20]：有人说印度至勇大哥，那个他和巴基斯坦的空战被6比0剃头，他都他妈能宣传自己赢了兄弟。
+- [03:35:30]：你根本就不理解他们的赢，好吧。呃，老A，我做个补充啊，那个意大利人他不是最差的，最差的是爱尔兰人。
+- [03:35:41]：我觉得爱尔克应该是倒数第二，不不不，爱尔兰他是倒数第一，爱尔兰可是和。
+- [03:35:48]：和华裔和在希腊的华裔过一桌的，我我是这么想的，你最起码有两个爱尔玩意当过总统，意大利裔还没当过呢，我是这么算的，不不不不，我指的不是他在最高地位上的越跃薪或者什么？因为他实际上不算上限，越过的地位以后不算上，为什么呢？因为他实际上先。
+- [03:36:11]：越进到了上层的爱尔兰人，最终也被同化成的昂撒人，就那一套体系里的昂萨昂萨系的人。
+- [03:36:20]：而意大利人他相对于爱尔兰，他相当于相对于爱尔兰人，他比较好的一点就是他第一，他符合了大部分红脖子的那种保守家庭观念。
+- [03:36:32]：啊，意大利人是很富家的，和东南人很像。然后第二点，意大利人的抱团能力其实比爱兰人强多了。有时候爱尔兰不是爱尔兰水管工，是意大利水管工兄弟，你以为马里奥的形象是胡编冠造出来的吗？
+- [03:36:51]：呃，然后然后再说一下，爱尔兰人虽然比较开朗，但是他们爱喝酒和爱酗酒导致的爱尔兰亦在希大的整体印象是非常差的。
+- [03:37:03]：就你甚至你甚至很多人他们会说二郎直直接直接骂他他们drunk，就这样的。
+- [03:37:21]：哎呀，马里奥你以为呢？mario这是非常点的意大利名字。兄弟，你整个你整个你整个马里奥系列都是他妈刻板印象，好吧。
+- [03:37:38]：兄弟，意大利最低贱的水管工追一个桃子公主，追一个啊金发碧眼的昂萨公主兄弟。
+- [03:37:48]：这太我告诉你，也就那个时候也就那个时候社会环境还比较宽容。你现在给做给我做个马里奥出来，我看看你怎么死。
+- [03:37:59]：兄弟，loigy当然也是意大利人啊，你以为呢marmory和loigy本身就是刻板印象的意大利名字，好吧。
+- [03:38:14]：你们不知道你们不知道马里奥这个游戏是很恶意的吗？兄弟，意大利水管工去追求一个金发碧眼的昂萨公主。
+- [03:38:28]：我我我告诉你，很多游戏的很多游戏一开始做出来都是很恶意的，好不好？
+- [03:38:44]：我跟大家讲过下水美国的下水道是什么样的吧，然后你要扮演一个低贱的意大利人去在下水管道里面探险杀出重围。
+- [03:39:13]：我告诉你是，有些游戏根本就经不住推敲的那个恶意，简直是爆表的。兄弟，下水道里面有食人花，有鳄鱼，有各种恶意的东西。
+- [03:39:28]：懂吗？整个马里奥就是最初始的那几版马里奥简直就是刻板印象和恶意大合集，好不好？
+- [03:39:41]：怎么变强变大，吃蘑菇还还还需要我接着讲那个游戏有多恶意吗？
+- [03:40:02]：很多东西的恶意程度是爆表的，你凭什么吃个蘑菇能变大吗？
+- [03:40:18]：你要说你你你做张意大利比意大利披萨在那啊。
+- [03:40:34]：那还行，也就是当时那个年代，意大利人发声还不是很猛的呀。
+- [03:40:52]：而且你看他那个马里奥再往上升一阶，他是变成厨子。就是你们意大利人最牛逼的形象，也就是当厨子，你赶紧滚回你的意大利人聚集区去后厨做饭吧。
+- [03:41:13]：懂吗？你那个能发能发波的那个能能发武器的那个那个那个是是厨子，兄弟是厨子，就是最牛逼的意大利人，也就是当厨子了。
+- [03:41:29]：早期早期游戏的恶意是吧？
+- [03:41:39]：你不懂很多文化符号，你不觉着你如果你懂那个文化符号，那个恶意的就都快溢出来了。
+- [03:41:58]：哎，行，不讲讲讲话了讲什了。这个那种族大官盾，我们说回讲回这个种族大官盾。
+- [03:42:10]：种族大官顿之前最成功的是犹太人，现阶段最成功的是是是是拉丁人，就是拉美人。
+- [03:42:20]：o啊，而且我跟大家讲，早晚有一天，早晚有一天昂杀人或者说白人会绷不住的。
+- [03:42:33]：我我我就我就说个抱问吧，你信不信早晚有一天美国政统在中国，当美国再持续衰过些年头。
+- [03:42:45]：美国白人实在是受不了这群这这群这群其他种族的人，你信不信美国白人会大规模迁移？
+- [03:42:55]：迁移回哪儿呢？你们觉得他们会迁移回那个已经被已经被什么穆斯林和黑人占据到欧洲吗？
+- [03:43:04]：他们大概率只能去两个地方，要不然他们去俄罗斯，要不然他们来老中，就是还记不记得我上次说的，他们得重新定义白人，对吧？啊，中国人就是白人是吧？我白人和找白人结婚没问题啊，中国就是白人国家。
+- [03:43:30]：有人说这不好吧，你阻止不住了。我就问你就这一代中国男人，现现在从美国来个白妞要找你结婚，你你你你你拒绝的可能性有多大？
+- [03:43:47]：你不要骗自己哦，你不要骗自己，好吧，要时候看不上。
+- [03:44:00]：再说吧，中国光棍多着是呢，你不要骗自己就行。
+- [03:44:14]：有人说候怎么不讲怎么不讲阿拉博义呢？阿嘎博义由于宗教问题，实际上他们很难成功。
+- [03:44:29]：阿伯弈有宗教问题，他们很难论证自己的二等人优怨论，他们比一般的种族还拧吧。
+- [03:44:40]：很很很难过的啊，对，碎成很多块之后的拧吗，是吗？
+- [03:44:57]：是，就是他们的宗教优越感，又让他们无法向无法向一基督教徒接进那个那个低头。然后同时自己的经济基础又迫使他们低头。
+- [03:45:12]：说白了，阿拉伯人在那反复就是仰卧起坐呢，你看呃我的大阿拉伯帝国。
+- [03:45:25]：已经没了。
+- [03:45:40]：呃，实际上据我所知，在西大的一大批拉丁裔。我说的这个拉丁裔应该或者说叫拉丁系的白人，他们是实际上对于。
+- [03:45:55]：那帮昂萨人是非常非常的烦感和鄙视的。是，就你们知道我说的拉丁戏指的是哪一系人啊？
+- [03:46:08]：以法国、意大利、西班牙啊是吧？
+- [03:46:16]：曾经只要是罗马曾经占领过的受罗马文化影响的以及血脉影响的地区啊，但凡有点文化呢都非常鄙视西岛。
+- [03:46:28]：呜呜呜我的奥斯曼帝国没了。然后对于然后这一帮人对于希大的未来未来希大昂萨人的准备的反攻暴算。
+- [03:46:42]：我只能说那真是太精彩了啊，那不是一般的精彩，那可太精彩了是吧？感谢似水流年老哥打赏是吧？点播视频，传统美国人被逼的跑到俄斯去了。
+- [03:47:01]：啊，这个这个额乌开战以后就有了啊，how beautiful is this.
+- [03:47:11]：miracle literally就之前我跟那个法国哥们，还有那帮那个德国西班牙啊。
+- [03:47:23]：跟他们聊天的时候，那真的是太有意思了。我的天哪，就你你总能从他们嘴里听成各种各样的王发剂的笑话。
+- [03:47:34]：啊，甚至甚至那个那个德国德国人他也是拉丁那个拉丁系的啊，最搞笑的一集，感谢金嘉军呃打赏，让我们回想一下最后一个辉煌的伊斯兰帝国啊，是奥斯曼，那没事了。
+- [03:47:49]：啊，你看土耳其今天那个抽象样子，你你就知道很多阿伯人是实际上和奥斯曼土耳其和和和和土耳其是尿不到一个湖里的。
+- [03:48:07]：知道吗？这个西班牙现在有点颓，你但凡给西班牙老哥这个不是现在这个样子，你的你的西班牙魔怔人绝对要对着心教徒举刀子呢。
+- [03:48:22]：我跟你讲的最地域的就是实际上为什么奥斯曼他是他是中国马政统啊，因为他拥有着拥有着对于阿拉伯世界的绝对的教法学辩护权，就监监护权。
+- [03:48:38]：然后呢，一一个是还有一个就是他他完全继承搜罗马法统及拜占庭帝国的法统。
+- [03:48:48]：啊，这这是他们自己所承认的这这怎么还有傻逼说奥斯曼和土耳其是两码事，他叫奥斯曼土耳其啊。兄弟，是我头一回听说能把奥斯曼和土耳其拆开的。
+- [03:48:59]：我操啊开准确的来说，现在的土耳其他都共和了。是你觉得他还多我他还多我马屁德吗？啊，感谢风神剑圣媒你介绍老哥大赏，今天可以润邪恶老中，明天说邪恶老中人是白人，后天就可以化身富尔泰，什么白人，你全家都是白人，老子早就是爱人了。
+- [03:49:19]：他们玩了一套很纯柔的，比人说他为什么说庆祝圣诞节他会哭呢？这个由于美国的兰州，红州还好一点，我跟大家要解释一下，在美国的兰州现在是一种什么情况呢？就是。
+- [03:49:33]：由于政治正确，在美国很多兰州其他族裔聚集的地方，你在圣诞节是不能放圣诞歌的。
+- [03:49:44]：你懂吧？就是啊打引号的不照顾其他种族的那个民族情绪，你懂我意思吧，就是。
+- [03:49:53]：你不能在就是就是在一些种族主义LGBT盛行的地方，你是不能庆祝圣诞节的。就是啊基督教是白人强加给其他人种的，还记得我说过黑人吗？
+- [03:50:07]：对，就是其他的种族也有样学样是吧？基督教是白人强加给其他人种的。所以所以为了表示悔过，你们白人为了表示忏悔，你们不能在圣诞节放圣诞歌，就你只能happy holiday,不能happy christma ,merry christmas.
+- [03:50:26]：啊，就你懂吧？就是对于很多传统的保守红脖子白人来说，这简直就是不可饶恕的。
+- [03:50:35]：群人在圣诞节不能庆祝基督是吧？嗯，你提起这个啊，我问问下就是加勒比海盗那个。
+- [03:50:48]：泉那一集那一部啊，最后那个经典场漫，西班牙老哥冲进来，把地方把这个不老泉砸了。
+- [03:51:00]：这个这玩意儿亵渎耶葛，这是不是新教徒，对于这个传统那什么的刻板印象？呃，也算也也也不错，就是它都沾假，但是它也不是完全那么沾。
+- [03:51:18]：有或者说他他粘的更多的是心教本身的刻板印象。因为我们首先要讲一个地域笑话，实际上在搞猎污活动的时候，真正搞的最多的其实不是。
+- [03:51:29]：呃，罗马教廷不是梵蒂冈，而是新教，，就是最保笑的一点就是。
+- [03:51:41]：我都不好说他到底是串还是豚了，我操，这太串了。
+- [03:51:56]：是吧你看他说我实在是太幸福是吧？又能重新沐浴在主的荣光之下。
+- [03:52:05]：Breaking happy Merrry Christmas, everybody from Moscow, Russia., How beautiful is this.
+- [03:52:18]：就是你你可能不你你们现在能理解为什么美国的劳劳保把俄罗斯当成敖宝神国了吧。
+- [03:52:36]：就有时候差点归，什么叫差点皈一？人就是基督徒好吗？
+- [03:52:50]：就是你你说不好，现在美国是还能有多少比例的正常人，俄罗斯不是东正教，也是基督教，你在说什么？兄弟。
+- [03:53:04]：那呃我其实想说的一点就是低基督其实也是基督的一部分啊，东正教才是正统好吧，东人家叫东方正教。
+- [03:53:16]：兄弟呃，东正教是以拜占亭帝国开创的，他们之呃是这样，就因为当年当年发生了点矛盾，然后结果罗马他封了嘛，他分成东西了嘛。然后呢，那个校廷一直在西边。
+- [03:53:35]：啊，然后然后结果蹲开的说我不干了，我他妈每回听你的，我每回保护你，结果教廷还不相信他还各种猜忌他，然后结果他直接单干了，然后结果就。
+- [03:53:48]：都正叫说来啊，大不首，大概就是这个状态啊，看过这个发面发面饼跟死面饼这整他妈总别太到位了。
+- [03:54:09]：应该是发面糖饼和豆沙饼，我觉得更像是这样，就是外表上还是一样的，内核不一样。
+- [03:54:25]：哎呀，可服我了，要时他自己入籍都难。
+- [03:54:36]：不需要自己入籍都难，他只要生个孩子就行了。比如我个人接受不了豆沙饼，那你看你看。
+- [03:54:45]：有人爱吃啊，那你咋整啊，对吧？那那。
+- [03:54:54]：所所以你看我会说啊，迪基督也是基督的一部分，就是这个原则，你说他是不是一部分嘛。那你那那那你看基督教导这种敌我同源的事儿还少啊。
+- [03:55:10]：唉，我就我我我说回刚才的话题哈，就是你你放心，早晚有一天。
+- [03:55:22]：美国白人他一定会受不了这种种族大官炖的，每一个种族都从他身上沾点，每一个种族都从他身上沾点。
+- [03:55:31]：它粘不动，它早晚会粘不动的，对吧？这条就是这条鱼，它早晚有一天要炖烂掉，豆腐有一天吸收的太多了。
+- [03:55:42]：对吧你又不往这里面加鱼，只往这锅汤里面加豆腐，你多大的一条鱼，最后那个养分也也架不住豆腐吸。
+- [03:56:03]：啊，老版的事儿，这种种族大官盾你会把白人盾飞掉的。
+- [03:56:22]：一定会这样，你们你们放心吧，早晚的事儿，白人早白人早晚会受不了美国这个环境，往老中和和和俄罗斯跑的。
+- [03:56:38]：比人说他们不会往欧洲老家跑吗？你放心，欧洲老家的白人正也也是种族大官炖，欧洲的白人也在被其他的主裔在欧洲这么搞。
+- [03:56:50]：你不能让美国白人从一个锅里跳到另一个锅里吧，可能往俄罗斯跑的人更多。
+- [03:57:00]：呃，我觉得不会，因为人都是看经济的，你让他选择是融入融入中国还是受穷。
+- [03:57:19]：你觉得呢你觉得早几十年，甚至包括现在很多人跑美国，你觉得他是选择融入这个国家呢？
+- [03:57:29]：还是选择在在在在原来的地方受穷呢，懂吧哎。
+- [03:57:48]：微信收款20元，感谢我的大赏。告我以后会出现美国出现派送牛奶、白糖炖筋头巴脑、方面饼，谁不吃就杀谁的活。
+- [03:58:01]：现在就有啊，这还用以后吗？兄弟，我在讲美国部落化的时候，已经讲的很明白了，就是最到最后就是是每一个群体，每一个社区。
+- [03:58:16]：每一个社每一个小的那种社群都会有自己的标准，并且以此为壑来来互相攻击。
+- [03:58:26]：那不是很正常吗？那还那还用未来吗？现在进行时好吧，有时候让白人永远保持现状。
+- [03:58:41]：呃，我不太懂你说的所谓让白人永远保持现状是几个意思？你的意思是还能维持现在的地位吗？
+- [03:59:00]：那是不太可能的。比如说国内牛排龙子，你要鼓逼他们去兄弟。
+- [03:59:12]：你要鼓励他们去啊，知道吧？你要鼓励他们润。
+- [03:59:30]：懂吗？就是应该把他们出清，懂吗？
+- [03:59:40]：你不要害怕出情，你们想象一下，把这种人留在中国，等到有一天白人跑过来的时候，你猜猜他们会发生什么。
+- [03:59:50]：你不如把他们先送到国外去，懂吗？就是有垃圾不怕，微信收款30元啊，清理一下就行。
+- [04:00:04]：感谢我二肉陪跟老哥打赏，我看一下啊啊，又他妈上图，哎呦，我操。
+- [04:00:13]：哎呦哎这等美食大厨放在西大白人里算是什么水平？
+- [04:00:25]：等我上一下啊这个。
+- [04:00:39]：别人都给我上美食是吧？腊肉培根老哥很有想法啊，悉尼大厨太难吃了，给自己吃拉肚子了。
+- [04:00:49]：你们猜猜这是啥啊，生猪肉咋能吃不吐啊，宝宝快去挂号，不是，这是我做的松饼。
+- [04:01:06]：啊，等会儿啊，我操那个我给大家看一下松饼是什么样的。
+- [04:01:19]：就是这等会儿啊，我我我我给大家上张图，我给大家看一下正经的松饼是什么样的。
+- [04:01:35]：这是这是这位大神做的松饼，有有点有点有点刻意啊，。
+- [04:01:45]：这是正经松饼，我给大家看一下，右边这个是正经松饼，左边这个是某位大厨做的松饼，大家对比一下。
+- [04:01:55]：我不知道他加了是吗哎。
+- [04:02:11]：左边拿什么，我不知道左边拿什么做的，太他妈逆天了啊。
+- [04:02:24]：我怎么知道他是粉色的，我抽象派大厨呗，仿生身他妈仿生猪肉都来了。
+- [04:02:45]：哎，我有我我多少有点没帮助，哎呀，我天哪。
+- [04:03:02]：哎啊，我们我我接着讲就是。
+- [04:03:11]：我们现在讲到这儿，就是我是我我预判一下美国以后会发生什么，我们再重新讲回，我我们之前讲二等式优越问的时候。
+- [04:03:20]：我还我还有一个点没跟大家就是呀我再给大家说一下，就是你们知道二等人优越会的一个一个一个缺点是什么吗？
+- [04:03:33]：它有一个最致命的漏洞，就是二等人优越论最大的问题它是可以无缝切换。
+- [04:03:49]：他们可以无缝切换，这个是我们要小心的。我之前说美国的白人有可能跑到中国，跑到俄罗斯，他们好歹是一等人。
+- [04:04:09]：啊，但是大家要明白，如果有一天中美开片，美国输了这些拥有二等人优越论的人，发现白人也不是第一等的时候。
+- [04:04:23]：你们猜猜他们会干什么？就是我们家的老爷被打败了，说。
+- [04:04:34]：脊梁股我跟你打，我只能说我只能说行印度故事了，对吧？你说白人，我刚才说的是白人跑过呗。
+- [04:04:45]：一等人跑过来，我们现在想一想，我们回到二等人优越问的框架里面，这这是感叫日月换新天了，头顶上这片云才换人了。
+- [04:05:01]：你们猜一猜是白人跑过的比例大呢，还是这些之前的二等人，现在的三等人跑过的概率大呢？
+- [04:05:16]：你们想一下啊。
+- [04:05:30]：而且理由是现成的对吧？啊，我作为美国人是吧？你们攻击美国，你们把美国打赢了是吧？哎呀，我遭糕罪了，你攻击我了。哎呀，你们中国人轰炸我了。
+- [04:05:46]：他玩起这套东西了，已经非常纯熟了，但是不好意思，东大是一个非常非常非常清楚自己应该做什么。
+- [04:06:00]：所以他们敢搞这种类似于颜色革命的东西，这种这种都不是颜色革命。你说中国国籍很难拿呀，你架不住中国光棍多呀。
+- [04:06:17]：对呀，所以他们想想想让公大多来点牛排呗，好吧。
+- [04:06:27]：其实我觉得这也不一定是坏事。呃，我我们要明白这样一个道理。
+- [04:06:37]：他们他们在加入东坝之后，啊，呃我只能说最好东坝政府要握好教育的武器。
+- [04:06:47]：对啊，你最好真的保有教育的武器。
+- [04:07:04]：有时候有人自愿当光棍，你拉倒吧，没有女人往你身上扑，你说这个话很容易。你们想象一下，就拉丁小妹这种女人往中国男人身上扑。
+- [04:07:20]：你告诉我你怎么拒绝，你不会真以为自己是圣僧吧，这这是。
+- [04:07:31]：哥们就我就问你，就拉丁小迷粒有人拿着体检报告来找你，我想给你生孩子。你告诉我有几个中国男人就一口回绝说不行。
+- [04:07:46]：有你别说你嫌累嫌苦嫌花钱，你别说你当时荷尔蒙上头，你能拒绝吗？就拿这个考验你，你这干部经受得住吗？
+- [04:08:05]：我拒绝我拒绝的都很艰难是吧？中国有多少光棍，你觉得拒绝的比例能有多少？
+- [04:08:18]：呃，我想反我想说一下弹幕一个事儿啊，就是有人说不要说不要不要说什么五胡乱法和这个啊某些事情的负面，你光看负面影响，其实也有正面影响。
+- [04:08:31]：就至少至少在民族融合以后，双方的就呃米米赛的武德是提高了好几个量级的。就问题就是融合的过程是不可避免的，有着。
+- [04:08:44]：矛盾和冲突还要流血，呃这种事情是最磨砺一个民族整体的武德和这个血性的。
+- [04:08:53]：所以我是很快乐，因我们终于要碰到了几个难题了，困难是魔力人的。
+- [04:09:06]：磨难磨难，哎，而且大家也不用担心是吗？他融入以后，你只要不是学昂萨那种疯狂的去切混血儿的基本盘，那他们会比汉人还害人呢？
+- [04:09:33]：好吗？
+- [04:09:37]：啊，感谢这老哥打赏，那就问他们w Americaica以及套用我之前对清算熬窝的想法，你峨美土地上的都别跑啊，就那种种大米养呃种大豆养玉米呃，养种种玉米养牛得了，反正真放过一定会有大量的冲突，甚至对我们民族主体的冲击，还是别放过来了。
+- [04:09:58]：啊，哎。
+- [04:10:19]：就我们要这么想，至少你你要你要你要这么想，就是你的大堂是在民族融合中崛起的。可能说未来未来的过程可能非常的。
+- [04:10:33]：不太光彩，但是我们所能的得到的人才和回报的比例是更高的。
+- [04:10:43]：是，有时候民族融合这么一句话嘛，就毕竟有这么一句话。
+- [04:10:54]：入下为这叫什么啊，入下为下，你都进来了，那你想跑，那就难了。
+- [04:11:07]：那你这辈子都跑不了，你这辈子都得给东大当当儿子当孙子，这就是恐怖的一点，就是汉文化圈是非常恐怖的。
+- [04:11:20]：哈哈对呀，就是你不要学哈布斯网是吧？找事搞什么内部通婚哎哎。
+- [04:11:50]：兄弟，你还觉着国内归男是不够多是吧？你不你不把外国女性放进来竞争一下，你想什么呢啊？
+- [04:12:04]：哦对了，今天刚好刚好聊到归男这个反面，就是我不知道为什么，就群友群友有点奇怪，就是大家天天都在干骂归男，但是。
+- [04:12:13]：呃，一遇到一些真一些事儿啊，他就反而归了。就实给我一种很奇怪，就是你明明知道什么事不应该做，但你非要去做。
+- [04:12:22]：你这是不是有些扭曲了啊，好歹知心合意一下吧，对吧？嗯唉。
+- [04:12:41]：真的就是别搞什么，他不一样是吧？你先把外国女儿放下来竞争好不好？
+- [04:13:08]：有人时候就怕陷匿名程度，所以我说的是中美打仗以后打赢了，你怎么不看前提条件呢？
+- [04:13:18]：呃，我也有一个补充啊，就是呃很多人担心这个外来移民在国内之后会闹事，然后导致一些问题。实际上你要这么想，就是在过去曾经在贵州发生过。
+- [04:13:32]：发生过少数民族和当地汉人呃过去的汉人的矛盾。但是呃我们知道我在一场暴乱之后，我那个地方变成了汉族。
+- [04:13:43]：是吧再多的话说机就不太好听了啊。
+- [04:14:00]：有那不就是白毛中国人，早晚会有金毛和白毛中国人的，你不会以为。
+- [04:14:13]：你不会以为像孙权那种闭眼子虚而少吧，或者像曹操的儿子曹章那样，黄虚儿是吧？
+- [04:14:22]：都不少的，你不会以为这种情况不会发生吗？这是已经发生的事情，好吗啊？
+- [04:14:42]：换句话说，你当东大的地盘是空话费送的。嗯，就我这么说，东大东大的北方一直是一个非常孔雀的部分。
+- [04:14:56]：就只要但凡跟北方沾上边儿，他都多少占点恐率，为什么呢？啊好难猜呀，有的人嘛喜欢学白人，成天在这切割自己基本盘。
+- [04:15:14]：学白人学的飞起啊，成天切啊，他不是汉人，他不是什么人，猛猛切比谁切的还快，还搞上美国那一套。
+- [04:15:26]：啊，感谢似水流年老哥打赏点播视频，观众比老祖宗还迂腐，老祖宗其实不迂腐。
+- [04:15:37]：呃，我这么说，就实际上你的呃在汉时期的这个曹俑就出现了非常非常以太风急的伏羲啊。
+- [04:15:49]：好俑就你们知道这是什么概念吗？就是你的在汉时期就已经开始了向外的这个征服和融合了。
+- [04:16:00]：甚至这个争服和融合非常的成功呃，以至于西北西北现在呃你好，我不知道有没有人来西北看一看，就是嗯。
+- [04:16:12]：西北这边的人的这个长相相貌基本都是汉人和国人融合的产。就比如说你们你们可以去你们青海啊吃饭了，烧饭店宁夏呀、汉阳。
+- [04:16:33]：至于至于像孙权那种什么不言不虚啊，这种这很明显的和东夷融合的啥。东夷就是。
+- [04:16:42]：哎，东移其实就是就是南岛，我没记错，东夷是南岛人不不呃，它有一部分的南导人系统，有一部分的白人系统啊。
+- [04:16:54]：哎，为什么东为什么这个孙你要向这个东夷抓山岳去充当士兵呢？因为确实相对于汉人，尤其南南南方的汉人，他是更强壮的。
+- [04:17:10]：跟他们告诉他帮他们把饭点了，我们那饭店还他也等着我呢，帮助点菜。
+- [04:17:20]：再见再见这不是很正常吗？哪个种俄罗斯族俄罗斯族。
+- [04:17:43]：有时候东夷人什么样呃，东西。
+- [04:17:52]：南岛人就是巨石强森那种他们就比怎么说呢？有点大微带，然后比较强壮。
+- [04:18:03]：然后呢，智力不，加上火了点火了点白人血统，比较忠诚。然后你像那个川蜀那边的那个原来的那边的蛮族。
+- [04:18:15]：比较好玩，他们他们很像印第安人，就是比较喜欢拿各种羽毛啊，什么骨头啊，给自己做雨饰啊，那种做装饰品啊。
+- [04:18:25]：呃，然后呢呃那边的人蛮族相较于其他也是比较高大强健壮的。毕竟你们要考虑他们的生活环境，不太高大健壮的是活不下来的。
+- [04:18:45]：还吗。
+- [04:18:54]：东夷是山东吗？不是东夷是一大片的统称，因为当时中国的基本盘是很小的，连一个省那么大都没有。你在商周时期是很小很小的。
+- [04:19:08]：商周自己本身都是很小一片地，连个诸侯国都没有分封都是后面的话，当时的东夷只要是非周人的基本盘，都叫中东夷，懂吧？在东边的蛮人都叫东夷，他是他是一个范围概念，不是一个具体的地理名词。
+- [04:19:36]：当时的南蛮是周朝很很很久的南蛮，是指河南，知道吗？你知不知道？
+- [04:19:46]：他那会儿的南蛮和和你想的南蛮都不是一个南，好吧，当时河南都算南蛮，好吧，哎，中原吧中原吧。
+- [04:19:58]：正常的非常正常。然后宋朝至少我们知道宋朝的时候啊，不见到不见到江到江浙到那个的。
+- [04:20:09]：呃，到两广的，是是直接被划划分为眉山丸的，那边是出现了眉山丸。你你当时当当时周人的基本盘都拿不下整个陕西，知道吗？西荣很大，有半个陕西都算西荣的兄弟，你想什么嘞？
+- [04:20:28]：北迪然北北，然后北迪你都到不了，你都到不了，河北再往上，就是北京再往上一点都就叫北迪了，兄弟。
+- [04:20:39]：，我知道说到说到这个西荣，我就要称赞木工有德了啊，就木工木工见到这个。
+- [04:20:49]：蛮蛮人啊声欢抢他的马，抢他的玉马，还吃了他的马，生吃了他的马，然后还不仅不仅不杀，还刺酒。
+- [04:21:01]：就这种德行，后来收服了很多啊所谓的这个这个西戎啊，羌族呀、低族呀作为他的这个部曲和。
+- [04:21:13]：或说直接被规划成了秦国人，他们从野人变成了古国人。然后秦朝的这个基本盘才起来的就。
+- [04:21:25]：不要觉得汉汉朝跟秦朝还能学启士，是因为他本身武德就很强。不是的，他是先有基本盘，然后才能起来的。他这个基本盘是怎么来的，就基本就是融合。
+- [04:21:39]：包括汉朝，汉朝也是融合了很多的西半派，包括少数民族也是融合进去了以后是吧？就哪怕是匈国人在汉朝也是能当王的。
+- [04:21:51]：也不是不是不不，也也是能够当很高的这个职位的，是吧？能当三公的金密低嘛，对吧？
+- [04:22:01]：哎，吉米弟还是匈奴王子的有的人啊喜欢切割自己基本盘，他甚至连中国人这个概念是怎么来的都不知道。
+- [04:22:18]：他连他连汉族奠定奠定汉族的汉朝是吧？啊，项羽也好，这个刘邦也好，都是他妈楚人。
+- [04:22:31]：在周代那都算蛮夷呀，兄弟，我们自己本身都是蛮夷当家做主。兄弟，你想啥呢？
+- [04:22:42]：你你们不会觉得胡夫奇射披发所人是什么？就这句话是怎么来的，就包括我蛮蚁也这是怎么来的。
+- [04:22:54]：啊，就这是一个很地遇的事情。就包括为什么近代有一位大佬也是也是这个这个这个。
+- [04:23:04]：呃，人家就于老爷子嘛，于右刃啊，为什么要右刃呢？啊，因为右刃是文明的意思，就是。
+- [04:23:12]：是国人是右刃的树发而右刃的，这是野人是批发而左任的啊，这是分辨国野的区别。看本质上国野，你可以理解为臭外地的用来我们的镐经来来来那什么了，你懂吗？
+- [04:23:32]：啊，感谢那么老哥打赏，更正一下。随着川渝地区的考古发现，炎黄时期的川渝可能才是正统中原发祥地之一。
+- [04:23:40]：强细去看看才报出来的资阳蒙溪河的考古，发现还有如果来过重庆，你就会发现重庆这地貌压根就不是自然能形成的。你可以看看河流直接从几个大自然中间流过。之前有教授指出，重庆可能就是大禹治水的结果之一。
+- [04:23:58]：兄弟，你汉人本身都是蛮夷来的，也是融合了无数的概念来的东西。你现在好好歹把别人当蛮夷了，又不融合了。
+- [04:24:11]：老祖宗是不顾自不不固步自封的，结果你们搞固步自封是吧？哎，有的人看，有的人光整天骂黄汉的啊，结果连皇汉都不如，连有一些皇汉都不如，真的。
+- [04:24:28]：至少孙先生孙先生是直接说了五足融合的对吧？就嗯就为什么为什么真正的汉汉族义者是这种是孙先生这种。
+- [04:24:42]：就因为汉这个是一个概念，只要认同汉文化这个概念，只要认同他的核心理念，那你就是汉人。
+- [04:24:54]：是这样，哎，有人还说这确是为什么糖能够崛起，因为糖它吸收了很多。
+- [04:25:08]：很多很多的湖人和这个西鲜卑人，包括南北朝的时候，汉人胡化呃，汉人鲜卑化了以后，也不妨碍汉人在之后又重新规化成汉人。
+- [04:25:22]：啊，讲个更地域的呃，有文派其实是一个汉化的纤卑呃，汉化的纤卑人，而高欢是一个纤维化的汉人啊，就这么简单。
+- [04:25:37]：那无所谓啊，以为他说我是汉人，那谁敢说他不是汉人呢？你说是不是嘛？
+- [04:25:47]：学学学啥都不哎，学美国把就是巴昂萨人最糟粕的东西学啊了切割猛猛切。
+- [04:25:56]：是吧嗯，宇文泰尽管给他的部下赐了好多鲜卑名，，我家祖上曾经还被赐信为贺兰呢，那那咋了？
+- [04:26:05]：就是有些人吧，他他双标，你知道吗？就是等到唐朝一说如何，他就又不提他先背血统了。
+- [04:26:15]：一提某些朝代就我只能说你要是纠结这个，那唐朝那唐朝也不是正统。
+- [04:26:27]：隋朝也不是是吧，这都沾亲代故的，你让葡豆如你让葡豆如坚怎么办，是吧？
+- [04:26:39]：感谢我哥打赏，不如想切割民族的话，你身份证至少要是411400和41146的4600开头的对吧？一说就是历史上。
+- [04:26:54]：哎呀，就是就是强盛的我全要不好的，我全切割，好的那部分都是我的。
+- [04:27:03]：的那部分就是我就切，蒙就蒙古人他也切就是。
+- [04:27:14]：为为啥呢？那个那个名用蒙古人参军是吧？胡汉混合就如何如何非要切哪喊，我看。
+- [04:27:25]：是吧？非要钱，就我我我说一个很地狱的事情啊，你弟太公啊，二凤千古一帝啊。
+- [04:27:35]：别说是胡人，你你看他你看他当时那个表那个反应他急没急，他当然急了，你才胡人呢，你全家都胡人啊。
+- [04:27:46]：那为啥呀？对吧汉文化概念就是你认为你是汉族，那你就是汉汉族，那就是这样，我觉得我知那我就是。
+- [04:27:57]：军正的一个玩意儿，它是个概念，但这无所谓的。就是那就是你爱是汉人，你你是汉人，对吧？
+- [04:28:06]：只要你你只要你跟我认同相同，那你就是汉。就是你你非要切，你猛猛切切吧。
+- [04:28:16]：接着切学就是学谁不好，就一定要学昂萨人是吧嗯。
+- [04:28:34]：圆也不行，虽然忽逼列顶这汉人把把哈哈和林打下了也不行，反正就是切一定要切。
+- [04:28:44]：呃，不姑必代姓刘啊，兄弟，姑必代是大汉政统啊，你猜大金大元啊，大明啊，不对，大明不算。
+- [04:28:55]：大今大夏大元都是大汉政统啊，但是代宋为什么不是大汉政统？听话呀啊。
+- [04:29:15]：大夏市啊西夏宋你的宋就是很多人不提，就是宋是沙头人建立的兄弟。
+- [04:29:32]：你的你的五代十国里面沙陀人建立的政权是很多的，透着沙陀一系的。
+- [04:29:42]：那个就有人觉得宋朝好像做正统一样，就现在没有人提，就就是这个这个把宋提到这个正统的概念以后，就好像。
+- [04:29:54]：没有人再提送的沙陀身份啊。对吧，而且而且你会发现就你你送的这个呃熟的稍大吧。
+- [04:30:07]：啊，赵大武德还是可以的。你其他你你说过其他包除了神宗啊，神宗哲宗啊，不对，神宗不行，哲宗可以啊。
+- [04:30:16]：那其他那几位哎，我也不好评价。对呀，就是就是你只能不讲血统，你讲血统，那多少中原王朝都是断的，那多少中原王朝都不正统。
+- [04:30:28]：你讲血统的下场一定是这样的对吧？你你你你你送的你送的概念是从后堂那继承过来的。
+- [04:30:39]：后堂是就后周后堂，就是对吧？他们一辈一辈传，你如果去看世戏的话。
+- [04:30:49]：你你你你你聊着聊着，你就会发现你弟戴宋也不是汉人，对后堂沙陀呀就李克李克用就就是就现在的历史就是好像这就是李克用这个人好像是历史上不怎么讲的。
+- [04:31:08]：就是很一个比较地域的事情。嗯，就是你的代送啊，你的代送是从五代十国来的。
+- [04:31:15]：五代十国到底是一个什么样的精神状态呢？我记得我原来曾经说过，就是在五代十国，就是五代十国的抽象是源自于代。那代唐的抽相源自于哪里呢？左传。
+- [04:31:31]：那为什么要自羽左传呢？因为有这么一个人，他叫杜豫啊，所以说我爱读左传，我我有左传心，李煜是南仓，不是后唐？
+- [04:31:43]：然后在糖呢就你的超级巨唐啊，好多名人一看哦，文武妙啊，我操牛逼大佬啊，我们一起看左传吧，然后结果哎。
+- [04:31:55]：唐朝的风俗文化就是呃像果传里一样一样生活啊，然后就出现了经简抽象名场面之，两个仇人见面啊，互相割肉烤肉，然后给对方喂置吃，然后喝酒以后一笑泯冤仇。
+- [04:32:10]：然后然后也有这种呃像什么士兵士兵呃，将军想吃肉，但是营里没有肉啊，然后辱辱骂一个士兵啊，他全家老祖宗，然后把那个士兵逼急的跟他决斗，然后士兵决斗没决斗过那个将军，然后就被杀到了吃肉。
+- [04:32:30]：有的说你你从这种环境上出来的，李存茂李存茂是后唐庄宗。
+- [04:32:38]：感谢风言风雨我哥打赏，真正汉人是涂掉异族富族后融合了无数母族才成就的民族。只要后人像马超一样猛猛屠虎，那他就是正宗汉人。至于父虎母汉嘛，看他们时不识像。
+- [04:32:59]：真的就是你不要去偷血桶是吧？中国人不是品种狗，谢谢啊，李存旭。
+- [04:33:13]：为信收看20元啊，感谢宝哥打赏啊，感谢啊金海红老哥夷敌入华夏为华夏，夷华夏入夷敌则夷敌。一群现代人比孔子还古板是吧？
+- [04:33:27]：看一下视频，这不是。
+- [04:33:40]：不是帝，这不是帝皇杏软版吗？老表友们，我跟他说，这个我不是头河南河南妹子，这是个河南妹子，那俩一在背后跟他取求我。
+- [04:33:58]：咦你看这闺女长得真黑，拐过来了吧，我没有吭气。
+- [04:34:07]：然后她又说，你看这闺女长得合适合，长得还怪好看的。然后我跟他俩打招呼，我说耶爷，今这冷的天，你也出来玩了。
+- [04:34:20]：然后他俩不敢吭气，他俩心里会想着，我这土生土长的河南小妮，咋会听不懂河南话，咋不会说嘞，是不是俺俩一道去都。
+- [04:34:33]：打招呼，他也不敢理我，给我笑的。然后我跟他俩说以后后，他俩说哎呀，你这小军说这河南话说的真地道呀，我耶。
+- [04:34:49]：我都从小都跟这长大嘞，啥我听不懂啥我都会说。老表们，恁说这到底是咋回事，我奶姐长得不像河南的。
+- [04:35:00]：这高鼻子大眼的，不是还长6白，哪不像河南人，我觉得我哪哪都像河南人。
+- [04:35:09]：老兵们，我跟你说，今个我不是进城去了，有事啊，我坐公交车。
+- [04:35:15]：哪俩意该背后跟他蛐求我了，好吧？咦所以你说吧，所以我说吧啊，你看像这种虽然样貌有点跟跟这个中原中原人的相貌有一些差异。
+- [04:35:30]：但们多多少少还是认同了文化和语言的，有了认同那就好办了。你就说他是不是汉人呢，感谢无敌，好哥打赏看一眼。
+- [04:35:42]：前几天刚从塔什库尔干回来，讲一个不太冷的冷知识，塔吉克族是中华民族唯一一的一个窝窝巴人种。
+- [04:35:50]：也是自称龙的传人。是的，你的炎黄子孙也有百种人，然后时间往前推到唐末五代十国，你的大唐孤中也是有不少百种人的。比如于申国、天李胜天本名尉池僧乌波上图，然后给直播间的老哥们推荐这个视频啊，先把这个图上一下啊。
+- [04:36:14]：看看啊，这个图。
+- [04:36:25]：核一下，我看看啊，所以所以你说一看大汉政统这个笑话，你头闹闹的不知道多少大大汉政统笑话啊，是，孙先生才是大汉正统啊，孙先生真的是大汉政统。
+- [04:36:42]：不然他就不会搞五级入合了。哎，这图片怎么保存不下来呢？什么情况？
+- [04:36:57]：等一下啊，嗯得了，这我这么放一下吧，这怎么。
+- [04:37:09]：这截图还截不了，就直直接直接上那什啊，长这样是吧啊，白人。
+- [04:37:21]：那躺袋那股味儿就出来了。哎呀，那你你以为。
+- [04:37:32]：啊，放一下视频，真的哎，我待会儿想给你们看一看那个西浦的法国人，就在我们陕西这边宝鸡那边的那个法国老法国老公。
+- [04:37:52]：人家说那陕西话西府方言戳的6人，待会儿你待会儿我发给老A，你给大家放，就你们你们看看那个法国人啊，就是你们还觉得那是法国人吗？从从生活语言各方面文化都是老板。
+- [04:38:11]：就是老选，那就是中国人，那就是汉人。你你要是会血统是吧？那你你基本盘都切没了。
+- [04:38:37]：就是不要不要学昂萨人，真的学谁都不要学昂萨人，昂萨人贼蠢。
+- [04:38:54]：哎呀，有人说大学大学时有金化必眼，是英语四级不及格。我小时候见的多了，好不好，懂吗？
+- [04:39:08]：哎，不正常嘛？俄语也不会说，英语也不会说，一一嘴东北大碴子味，那不很正常吗？
+- [04:39:28]：20元，感谢marro培跟老哥打赏？天蓬元帅帐下海豚大将。
+- [04:39:39]：什么玩意儿？当然我爸的时候配个老婆经常有些逆天新闻，我看看。
+- [04:39:54]：深圳大梅沙野猪撞人，游客骨折入院，谁能想到海里有猪？
+- [04:40:06]：还还得有一，我操哎呀，我不。
+- [04:40:22]：有也猪行啊。
+- [04:40:33]：哎呀，我天，我真他妈行，我操老爷，我发你的，你到时候给大家放，okK我看一下。
+- [04:40:47]：我啊支付宝到账30元。
+- [04:41:07]：我跟你们讲，这个法国老哥啊，每年啊还还在西浦那边收麦子，当麦克，他们家是售麦的。
+- [04:41:16]：小麦的啊，他帮他那个老丈人收麦的，你可以听听他说话。雷老师，你吃眼吃呀一开眼俺吃。
+- [04:41:36]：是呀是职业，你是俺代人，我是法国的那你是老外，对，陕西老外是陕西女婿吗？陕西女婿的，你媳妇是俺代的呃，俺媳妇俺媳妇是我啥的宝鸡的。
+- [04:41:53]：你媳妇跟我子相的吗？哎呀，娘娘娘娘相哎呀。
+- [04:42:03]：你吃呀不我吃了。
+- [04:42:13]：有时候当那个高舞组别什么都往汉人头上啊，你看还是他妈往外切割，还记得我那个苏联老师吗？人家就写汉族。
+- [04:42:24]：苏联才没几年啊，苏联没了。哎呦，我天又一起又一起，早上第你看景灵嘛，第四期了。
+- [04:42:44]：哎，西雅图的治安啊，我他妈没话说了。哎，第四回了。
+- [04:43:04]：汉我那苏联老师是不苏联才没个几年，人家身份证上都写的是汉人。
+- [04:43:13]：你得给你不能你不不要学昂萨人，不给人规划的权利，懂吗？啊，感谢我哥打赏，有个老外道长，在中国久，头发都变成黑的了啊，是啊。
+- [04:43:28]：啊，呃，不是那个杰克道长，我记得好像是紫袍，是，人家地位还挺高的。死紫袍死袍道长那是最高的气的兄弟。
+- [04:43:40]：能当拆一团的那种级别，他可以单独出去立个倒挂吗。对。
+- [04:43:55]：看一下双双江道双江道的老表们，那山药输了，你看那些也没人玩。
+- [04:44:07]：没人挖，我经挖了，这个和那山药是熟的呀，也美了很啊，可选呀。
+- [04:44:22]：这还可多了。
+- [04:44:23]：弄啥了，我得失来，我这玩了，老你好，那我长得像外国人的农民大哥，我们是媒体的，想来采访你几个问题。啊，我这不是啊，我对啊，好，看就是咱这个这个啊，温县的这个这个。
+- [04:44:43]：药这个可好，咱都是咱这个呃倒地药菜，然后这个也是咱这个四大怀药啥农这我我这农民啊，我在呃采访了，你说农民你这上一次来偷山药，你是来偷山药的吧。
+- [04:45:04]：你那那些山鱼，我晚点，我给你咋着，中中中，那你拉吧拉吧，拉一车这这这东西，你那些鳝鱼我来点没快转州。
+- [04:45:14]：这满载而鬼，好想到了老。
+- [04:45:25]：有啊等会儿有人要这个BV号，我给大家发一下呃这个。
+- [04:45:35]：啊，肿呃非常中是吧？发出非常重的语气，啊，放那链接链接我直接甩群里个，我直接把链接甩群里。
+- [04:45:49]：嗯，你们觉得他是中国人吗啊，是吧啊这个也放这是吧，两个两个谁想看谁看，我把这链接甩群里。
+- [04:46:01]：就是你的认知狭隘是吧，就会导致自己的基本盘狭隘，懂吧哎。
+- [04:46:29]：他妈出烟了啊，就。
+- [04:46:41]：兄弟，这个我我我我求求你千万不要有什么纯血的这个概念不太好。
+- [04:47:01]：兄弟，就你要是你要是玩血统，我这一趟哎呀。
+- [04:47:11]：我我觉得绝大多数人是不希望上纲，我我觉得绝多数人是不喜欢上纲上线的，真拉你去做DNA鉴定。
+- [04:47:22]：是吧呃实际上就是真拉DNA鉴定，可能现在呃中原的汉人的血统呃，论汉血统的纯正可能没有大肉之人啊。
+- [04:47:34]：可能没有塔吉克那边的人宝哥的血很。我我跟我跟某些人说一下，就是某些人他可能是没有学过生物，知道怎么才能得到纯血嘛？就是回教。就是你要和你妈接着生孩子才能才能生出来纯雪。你懂不懂我什么概念？
+- [04:47:52]：就是有些人张嘴就说一些根本自己就不知道是什么意思的东西。兄弟，纯血是要回交的。
+- [04:48:05]：纯血是要回交的，懂吗？就是有些人就是张嘴，就是一些。
+- [04:48:18]：他根本就不懂的逻辑，懂不懂兄弟。
+- [04:48:28]：是你只能是父女母子传代，你你你懂不懂什么概念，你确定是中国人的伦理道德，会准许这种事情发生吗？
+- [04:48:44]：怎么你是你你要你要参赛是吧？参赛季害人。
+- [04:48:55]：你确定你是纯血汉人吗？回已经比就回叫这个行为本身已经比打了巴马还要逆天了。Q。
+- [04:49:07]：是你到底知不知道自己在说什么，他何乎周底吗？感谢感谢对客幕糊人老哥打赏。
+- [04:49:26]：啊，不给其他逐一公民权的，麻烦了解一下意大利为啥叫意大利。听说过同盟者战争吗？就是当年罗马把公民权捂着，不给其他非活马人发，然后在罗马军团的同盟者不干了，他妈的一样拼命一样上战场送死，凭什么老子不是罗马人，然后没有公民权的同名者，自称意大利和罗马人打起来了。所以成天讲出血的傻逼，你是想拿着刀去和那些要公民人的公民权的人开片了，？
+- [04:50:02]：我就是我我劝某些人张嘴就来一些概念的时候，他最好知道自己在说什么纯许，我的妈呀。
+- [04:50:15]：你知不知道人类是怎么培养纯血猫狗和纯血赛马的？你不要说一些张嘴就来一些极其恐怖的东西。
+- [04:50:27]：我们中国人是讲周理，是讲礼法的，感谢QQ吃王瓜哥大赏。
+- [04:50:41]：啊，哦22分50秒到24分，应该看过哪个是我放一下啊，感谢沈老哥打赏，看一下啊，这个看过啊，这个是。
+- [04:50:54]：看看22分50秒。
+- [04:51:08]：嗯，等一下22分2240多秒开窗。
+- [04:51:22]：哦，讲个笑话就实际上现在我知道在我身边有一些啊外国，比说他们在中大生个孩子，然后这个孩子。
+- [04:51:35]：他们准备选择汉人，哎，而且这是合法的。
+- [04:51:47]：哎，我只能说有一些人肯定要要愤怒了啊，感谢风神剑圣美女绝山老哥打赏说，这就是纯血国王啊，是。
+- [04:52:01]：等一下行装老哥，我看一下啊，我先把视频放了啊，我先把视频放了。
+- [04:52:14]：The North versus00 of China, they local only different races of people.
+- [04:52:24]：The average height is significantly higher in northern chin as opposed to southern chin, the skin color is different.
+- [04:52:34]：The language is is basically not decipherable from one another. It's like the dialects are different. The food is different. The culture is different. fucking g Nors.
+- [04:52:49]：H Chinese is just a categorization Han Chinese is just simply a categorization of like your Chinese. It's like almost like a.
+- [04:53:00]：Not an ethno religiouslig, but a ethno nationalist denomination and then this is before this is before you also move in, it's like saying white people in America.
+- [04:53:35]：是吧。
+- [04:53:51]：老爷问个问题，要不要直接把一个一000人给封进去封啊，你你是你是房管直接封，有些你一天是吧，直接你一天直接封是吗？
+- [04:54:03]：哎，话说国外近亲结婚严重，老哥老哥，你是刚进直播间吗？你可能没看着我刚才上的图完了，我再上一遍。
+- [04:54:18]：我给你看看美国南部的人，有人说纯雪，这是纯雪，你看看吧？美国南部喜欢冠文的是吧？
+- [04:54:30]：你让你们看看他长得有多疼啊，这是这是纯雪兄弟。
+- [04:54:39]：这是纯雪哥们儿，这是纯血，不让你看看纯雪人是长什么样的。
+- [04:54:48]：长得是很恐怖很丑的哈布斯堡那个大大铁铲下吧。
+- [04:54:58]：美国美国南部中南部的那些乡村的那些人是吧？近亲结婚，这还不是这还不是同亲呢，这是不是血亲，就是内部的这还只是什么表亲啊，堂亲之类的结婚就已经这样了。
+- [04:55:16]：你们是不喜欢纯雪的，最好不要嚷嚷什么陈雪。比如说汉族复系基因的纯度极高，母系伯杂呀，兄弟。
+- [04:55:33]：你猜猜中国历史上中国的领土是怎么来的？中国的父系是很纯的，母系是很薄杂的。兄弟，你不是纯学。
+- [04:55:42]：哥们儿，因为中国人在历史上赢麻了，赢了太多种族的女人好不好？你不是纯雪，你只是复系比较单一而已。兄弟，复系单一不叫纯血。哥们儿。
+- [04:56:02]：你只能说你只能说这片土地上的男人砍人太成功了，征服过太多的女人，那不叫纯雪，哥们儿。
+- [04:56:12]：这叫纯雪，你看看纯雪人长得有多多长吧，那家族内部回交，征服不了外族女人的才会这样，知道吗？
+- [04:56:24]：兄弟，这才叫这这种样貌才叫征服不了外族女人改善基因的模样，轨德性，懂吗？像日本那种劣化的基因，就是内部回交的太严重了。
+- [04:56:38]：父系纯而母系薄杂，就是因为你出去操的女人多，懂不懂？你说这不就是变种人吗？这不是变种人，他恰恰就是因为没变种。
+- [04:56:54]：基因多样性基因多样性暴跌。好吧，你看看那个霓虹太子，父系来源单一，母系来源驳杂。
+- [04:57:12]：是很简单的征服者，因为我们祖上是征服者，征服了大量的土地和外来人口的女人才会出现这种情况。
+- [04:57:21]：好，有时候他们没学过生物。
+- [04:57:34]：哎，这不是这不上头还有人说自己是纯雪汉人的吗？把自己把自己当赛级品种了。
+- [04:57:46]：所谓的纯血就是缺乏外部基因的摄入，多样性暴跌。对呀，纯血就等于隐性基因缺陷开会而还是开大会，知道吗？
+- [04:58:07]：唉。
+- [04:58:23]：纯水检其实500种，兄弟，不止你说的那种超过500种，那是小型犬，大型犬轻轻松松破千。
+- [04:58:41]：对呀，纯血基因等同于隐性基因缺陷疯狂回归。是的呀，有说那为什么要纯血马呃，纯血猫纯血狗。
+- [04:58:56]：因为那是人类某种畸形的审美，果然是那句话，胖局不好看吗。
+- [04:59:14]：哎，这我不知道有人还他妈以为他是鸡贼呢，妈纯血鸡贼是吧？
+- [04:59:32]：我求求大家千万不要是说什么纯血之类的，太鸡巴恐怖了。
+- [04:59:42]：就是没有一点生物学的知识，就拍着自己胸脯说自己是纯血，你最好祈祷你不是纯血。你要是真纯雪，我要报警了。
+- [04:59:57]：兄弟，真的，你不是你最好别是纯雪，你真是纯雪，那我只能报警，谢谢。
+- [05:00:06]：支付宝到账20元就咱们正常点当当个正常的，感谢退客幕糊人老哥拿赏。
+- [05:00:26]：微收看30元。嗯，我看一下啊，说到纯血，我再举个例子，老也应该知道猎豹移植器官是不用配型的，为什么？因为根据基因研究，猎豹最危险的时候只有7个不同的基因样本，所以猎豹是所有猫科动物里幼崽畸形最严重的，而猎豹的基因缺陷也是最多的。猎豹可能是灭绝的可能最最有可能灭绝的猫科动物，非洲猫科动物。
+- [05:00:53]：行，然后我这边读下啊，感谢QQ私信ID眨眼老哥。
+- [05:01:03]：你追这解释没意思，你就问他刘邦是楚国人，但他祖父是魏国贵族，落魄了才迁到楚国，而且刘邦不是他父亲正妻生的，他三弟后来。
+- [05:01:14]：楚王刘娇才是嫡子，还唐，你大汉跟上都不是意义上的正统，那影响我遗汉当五胡吗？是啊。
+- [05:01:22]：感谢老哥打家赏，我们小学影响最深远的一句话，就是我们班主任教我骂人，说有人骂你杂种怎么办？你直接回怼，你妈你爸你妈，你亲兄妹，你是个纯种啊。
+- [05:01:39]：啊，感谢风神先生没哥上老哥大赏，看看我的黑白杂交猫是吧？可还行。
+- [05:01:55]：哎，等一下啊，这是。
+- [05:02:05]：这收看20元，这是剑圣老哥的猫啊，看一下子，感谢重庆奶牛老哥打赏。
+- [05:02:22]：我看看借用干借用埃米尔西西奥南的一句话，人类并非生活于国家之中，而是生活于语言之中。正因如此，母语才是我们真正的祖国。人类是依靠语言和共同文化分类出为的种群。这也是老祖宗说的，入华夏则华夏之入夷敌则夷地之的含义，而不是像那些抽象B一样，一天到晚切割这儿切搁那儿的，别到时候自己把自己切了，。
+- [05:02:47]：啊，是啊，等一下啊，这还有感谢金香秋雪大宝哥打赏，我看一下。
+- [05:03:01]：啊，给大伙看看我们本土培育的猫猫，这山东临清狮子苗不好看吗？非要纯雪猫是吧？
+- [05:03:14]：嗯给大家上一下，这是经常窃缺男宝哥的猫。
+- [05:03:34]：哎，真的就是大家千万别说什么纯血啊。
+- [05:03:47]：太恐怖了。
+- [05:04:06]：异色同啊，是啊，有时候好多品种猫又傻又神经又有病，是不是因为纯血？对我就这么说吧。
+- [05:04:17]：很多纯雪生下来的又有又有精神疾病，又有那什么疾病啊，这不是你的，这是网上找的是吧？啊，就像秋学南老哥说，这是他找的，他没养猫。
+- [05:04:28]：啊，但是挺好看的啊，牛头牛头梗那个就更不用说了。
+- [05:04:50]：你说折尔厄尔是典型的人工培育的，非常恐怖，疾病贼多。
+- [05:05:12]：哎，他妈哈小白猫主播哈气是吧哎。
+- [05:05:31]：服了，我也是主是沙皮狗都是兄弟，沙皮狗都是人工培育的，很糖的。
+- [05:05:41]：啊，来点广来点正经广州吗，什么神他妈正经广州吗。
+- [05:06:02]：无毛毛那就不用说了。
+- [05:06:15]：感谢今天雀谢南阳老哥打赏，我们本土的田园犬、狸花猫，还有狮子猫啥的，大部分非常健康。哪像欧美一身病，身体健康，精力充沛。
+- [05:06:26]：是梨花猫战斗力强，就是因为就是因为它的谱系广啊。
+- [05:06:47]：那都是真正大自然筛选出来的，好吧。
+- [05:07:06]：比说沙皮狗是本土豆犬，沙皮狗当然是本土豆犬，它也是经过培育的。好吧，它不是没经过培育的，只不过这种筛选停止了而已，所以它的性状不明显，那种那种畸形性状不明显而已。
+- [05:07:28]：梨花和大菊肯定是猛中猛啊，那还用说嘛，猛的很好吧。
+- [05:07:53]：外面狗气0啊，感谢今天去非来宝哥打赏。外面狗其0阿哈斯加萨摩耶哈士奇也挺好，毕竟是北极地区工作权，可惜武汉不能养。
+- [05:08:04]：你希望热死这种狗啊，他是几他是含带狗，兄弟，饶他吧。
+- [05:08:12]：有人说为什么二哈傻，你在你在温带和热带地区养寒带的品种狗，也不把他们放出去雪地里玩。你那地方半年一年都下不，几使省得十几二十年都下不了一次雪，你希望它不傻。
+- [05:08:28]：那不那不有鬼了吗？你在这武汉这冲中国四大火屋之一，你要养你要养寒代工作犬，我的天哪。
+- [05:08:50]：对的，西伯地亚就不傻了，你来东北养，你来东北养就没事了。
+- [05:09:05]：啊，感谢小白一支老哥打赏，我看一下，我看看啊。
+- [05:09:17]：，上图什么图？日本黄氏DNA检测结果流出与贵州某村族谱完美匹配。
+- [05:09:28]：啊，这有什么新闻吗？我操，这是这是真的啊，不是当年大秦。
+- [05:09:40]：是吧包括有一些战乱以后，某某某些啊某些中原人论到。
+- [05:09:52]：润过去当海岛骑兵馆也也挺多的，所以这种事儿倒是不奇怪。2024年6月底。
+- [05:10:03]：一份标注为而且我还要哎，你说很清楚。2024年6月，一份标注为绝密的基因研究报告突然在学术圈内流传，我怎么没听说？
+- [05:10:15]：日本宫内厅委托京都大学进行的皇室DNA检测中，竟然发现今天天皇家族的外染色体单被群与贵州黔东南同族聚集的。
+- [05:10:27]：巴沙巴沙苗寨某支系族谱完全匹配。更惊人的是，寨中珍藏的明代龙氏族谱清晰记载，祖上龙太郎东渡扶桑改姓袁氏啊。
+- [05:10:44]：消息曝光后，中日两国网友集体萌旋啊，关键证据，日本皇室男性成员特有的。
+- [05:10:54]：D1B1A2单被群占日本人口不到0.5%。在是在巴沙战红姓男子中检测出率很高达62%。
+- [05:11:05]：祖谱记载的龙太郎生于洪武25年，1392年，与日本南北朝终结，足地已满统一的时间完全重合。好吗？这种组团的青铜妖刀纹样与京都陆苑寺金阁寺藏图啊藏室图案高度相似。
+- [05:11:28]：这么一演吗？太扯了吧。然后我再讲一个比较搞笑的，其实。
+- [05:11:39]：呃，我说的这句话可能会比较难听，也比较隐喻吧。就是你们知不知道，就是其实狼犬就是阿拉斯加这种犬。
+- [05:11:52]：阿拉斯加有一个非常典型的特点，就是如果他的狼的基因越多，就是或者从狼移传过来的那一部分基因越多。
+- [05:12:02]：啊，他反而越温顺，越听话。如果是长期的。
+- [05:12:11]：啊，和其他的犬种杂交以后出现的呃阿阿斯加啊，他的他反而会变得非常的闹腾。
+- [05:12:22]：啊，就这种notote故体现在你的家具上，家里的一切东西吧。而。
+- [05:12:31]：狼雀艇占比较多的阿拉斯加，他不会唉。
+- [05:12:51]：感谢今天秋学咱老哥打赏上图送给润润。
+- [05:13:02]：送我味，我操，我看看这都是啥呀。
+- [05:13:17]：可还行，就换句话说，因为狼。
+- [05:13:27]：或者说狼它本身基因中带着一部分的特性，导致了它在啊构建狼群的社会关系的时候，它是强服从性的。
+- [05:13:42]：所以导致了大部分犬类永远无法比你狼的和风程度。有时候迅狼。
+- [05:13:53]：这个是那你以为狗是怎么来的那不就是从狼训来的吗？那不很正常，哎呀，真的是。
+- [05:14:15]：哎呀，就是所是最后用问政这么半天纯语。
+- [05:14:26]：我求求大家让种心胸开阔一点，千万别问证什么自己是纯血之类的，是是。
+- [05:14:36]：千万不要说一些生物学上很逆天的玩意儿，好吧？就是。
+- [05:14:46]：生物学上不成立的东西，咱们就不要再说了，好吧，不然他不然会有大问题。
+- [05:15:09]：杂交不好看的，这挺好看的。剑圣老哥这个毛多大呀，真的就我要想一个非常低遇的事情就是。
+- [05:15:26]：因为因为倭因为倭人的某些人啊，倭人其中的某些人为了追求纯许。
+- [05:15:36]：他们真的搞了回交，所以你懂的，就大家懂的，你们知道我是我是我是什么态度的对吧？
+- [05:15:48]：那就是糖完了，兄弟，那真那是那那是那是真的糖，那是真正意义上的唐是人，好吧，不是吧，这么恶心。
+- [05:16:02]：在日本在本子历史上，这种事发生过很多次了哎。
+- [05:16:13]：纯血制人纯血之人他他他活不下来。兄弟，纯血之人缺陷基因缺陷太大了。
+- [05:16:28]：就现在的人类啊，现在的智人啊，呃，我这么说，就是为什么现在的智人会有感冒和发炎啊，这两种性这两种状态呢？
+- [05:16:42]：，包括流鼻涕和鼻塞这两种状态是因为很简单，因为我们的祖先呃吃掉了尼尼安德克人的雄性。
+- [05:16:53]：然后又跟尼安德特人的雌性发生了关系，就是这样。
+- [05:17:04]：然后我们现在的智人基本都拥有了流鼻涕和感冒的能力。比如说欧洲就早有传统，身体不好点，不够白的是贵族跟下人生的。
+- [05:17:22]：不够纯是吧？哎呀。
+- [05:17:49]：就有人不是很明白什么叫做回交。那我跟大家解释一下，呃在匈奴服从王化之前，或者匈奴彻底的服从于王化之前啊。
+- [05:18:03]：为什么蔡文姬会写出悲愤是吧？悲愤诗呢？啊，因为因为他的儿子。
+- [05:18:13]：就他的儿子在蔡文姬的丈夫去世了以后，及老可汗去世了以后，变成新可汗以后呢，娶了蔡文姬。
+- [05:18:24]：并且和蔡文姬生下了一个儿子，这叫回交啊，要说一切受周里所教导过的人都无法容忍的一种行为。因为这违背了伦理。
+- [05:18:40]：我我就这么说吧，就是说白了回交就是爹和女儿，儿子和妈懂吗？感谢今天秋学打老哥打赏。说到匈奴这个，你猜猜为什么张骞被匈奴人抓了之后，狂给他塞女人？
+- [05:19:01]：改善血统来了，有时候别说他逆天。对，不是我逆天呀，这不是这之前有弹幕说他是纯血汗人吗？那咋整啊？
+- [05:19:20]：对吧那那这不是这不是直播间有小唐人说自己是纯血吗？那那咋整，就给他科普一下呗，那没办法呀，我我。
+- [05:19:31]：可能是说错了，要么是蔡文姬，要么是王昭君。但是蔡文姬我记得也般啊，，基本都是这大遇去了那个邮牧那边。
+- [05:19:42]：新的公主基本都是这个待理，找不着。
+- [05:20:00]：啊，那位我师说应该是王昭君，应该是王昭君。对。
+- [05:20:30]：狮子喵，那你猜猜它为什么叫狮子喵，好吧，他长得像狮子，脾气也像好吧，他除光毛是白的。
+- [05:20:55]：哎，来，我来念一下王昭君的这个历史啊，就是庆元呃庆宁元年啊，南匈吴首领呼韩爷单单于第三次来头自省为帝。
+- [05:21:11]：汉元帝江良家女子啊，王昭君刺列单于，昭君和呼韩爷单于共同生活了3年，生下一子，取名医图治牙师。
+- [05:21:25]：为幼日楚国王，期建始2年，乌寒爷禅怡去世，王昭君向汉庭尚书求归汉成帝。
+- [05:21:34]：是令从湖俗。
+- [05:21:36]：头牧民族收祭婚制腹驾呼寒爷单于长死，父诸磊若齐蝉于，两人共同生活11年，育有二女，长女名须补居次，次女名当呃当于居次。
+- [05:21:58]：IC感谢蔡鸟老哥打赏。问题是现在小红书上还有鼓励回老家，有傻逼，你还学傻逼吗？
+- [05:22:09]：太逆天了，哎，要时不出不出五福，肯定都逆天呀。
+- [05:22:26]：比时取我妈更多理解为政治操作。或我我们是是这样，你生下孩子是个生理操作，兄弟。
+- [05:22:37]：哎，我这么说，就是呃如果对于对于唐人是没有理解的话，你可以去看一看金，就是你的大金王朝。
+- [05:22:45]：它的这个呃回收概率和乱隆概率。
+- [05:22:50]：有看他里头的基本基本只要是个王，都和周边无数的王妃都有关系。是这样，就是如果你娶欢老妈，把老妈放在另外一个地方和他分居，那叫做政治操作。你和你妈生出来一个孩子，那不叫政治操作。
+- [05:23:08]：弱智知道吗？那不叫政治操作，哥们儿，你生出孩子，那是一种标准的生理操作。谢谢，我不傻。
+- [05:23:20]：你不用解释，兄弟，感谢主播学到一个米新名词回京。
+- [05:23:28]：呃，就这很多人没有生理学和和生物学尝识哎。
+- [05:23:40]：没办法，就是我就是有些人还是书读的太少了，理工科的有些知识还是得普及一下。
+- [05:23:50]：以防止就像刚才直播间某些人是不，张嘴就说我纯血汉人，你你最好是不是你最好不是纯血汉人，你真是纯血汉人，我除了报警还能说什么呢？
+- [05:24:12]：有时候学梦德尔就教过，有些人上生物课是不听课的。你们你们有几个人上生物课，有好好听课的。
+- [05:24:30]：啊，就我这么说啊，新朝灭亡的有很大一分原因，就是因为后人过于旁实，是至于为什么后人的那些贵人如此的旁帅呢？
+- [05:24:42]：你就要问一下金朝那些锋芒和呃和这些皇室相关相关人员的中心之间的乱伦乱伦行为的次数和呃朴系之繁杂之之错综复杂的。
+- [05:25:00]：就就他他们金朝的乱伦乱伦级别就根本不是大家所能够想象的，也不是现代人能够想象的。
+- [05:25:09]：它的抽象程度已经到达了一种呃通过不断的翻阅和检测DNA来来编排补气的时候，竟然很多都对不上，但是就是莫名其妙有一些就是明明没有任何关系就对得上。
+- [05:25:24]：的这种状况，已已经能在历史学和生物，尤其是生物历史学上达到一种高峰。
+- [05:25:39]：老魏照片发直播间里没有啊。
+- [05:25:48]：啊，不是这猫不是我他妈的，我我把猫撤一下。
+- [05:26:01]：神神神神他妈神他妈的，哎，我就成天点小白猫吧，你们就点吧。
+- [05:26:12]：到时候到时候我该到时候我做个周边是吧？做文化T恤衫是吧？我给我给大家看一眼是吧？
+- [05:26:26]：做手办，做做礼智那个是吧？到时候做T恤衫啊，就做这个是吧唉？
+- [05:26:43]：那是啊啊有人说这中国有没有，现在有没有还有内部通婚的群体啊，有的有的兄弟有的来给大家看一眼，中国中国在历史上呃也也也通内部通婚的群体，是吧？
+- [05:27:00]：啊，就是有的有的呃，我举个例子还是新朝啊，有这么一位皇帝，他叫王颜亮啊，然后。
+- [05:27:09]：马彦亮干了什么呢？呃，他对宗室展开血型清洗之后呢，他还把这个他的这个宗氏的这个。
+- [05:27:20]：亲啊，还有他们的哪怕是嗯母亲啊，都纳入了后宫。
+- [05:27:29]：呃，有的是他的堂姐妹，有的是他的侄媳啊，然后呢呃不断的乱伦回交，还有呃各种行为之后啊。
+- [05:27:44]：他。
+- [05:27:45]：就是他直接直接被砍死了啊，就我我我本身怀疑，因为在王元亮之前就出现了大量的回交和乱伦的行为。所以我我不妨这么怀疑，就是因为不断的回交和乱伦，导致了王元亮的智商是如此之低啊。
+- [05:28:07]：至于在政治上一点智慧都没有。然后关于国内现行还有的这个乱伦的这个。
+- [05:28:20]：呃，不符合周理和正常伦理观念的这个行为是存在的。呃，比如说一些地方。
+- [05:28:29]：呃，应该说是地方宗族会有这种行为啊，呃而这些地方宗族呃，他们大概率的智商都不是很高啊，我只能这么说。
+- [05:28:43]：哎，王彦亮就是神经病。
+- [05:28:55]：完颜亮铁神经病，好吧，你在想什么呢？有人说完年蛋和大正一样神经病，你们不会以为是就是回交的缺陷仅限于生理缺陷吧，他们精神缺陷也很严重的。
+- [05:29:12]：呃，至于戴青是这个自称为后金，认为是呃后金政策啊，呃我只能说确实蛮符合的。因为他他在他也搞过这个纯血和这个回交乱伦的行为。
+- [05:29:28]：然后导致了非常恐怖的行为，就是呃他后代的就是他之后的后代好多逆战皇帝都十分的尝试啊。
+- [05:29:41]：只能说令人感跑，不要搞这种有的没的，真的不要搞这种，不然会变得不正常的。
+- [05:29:55]：行要午我操12点了，晚安，兄弟们，我操播了5个半小时，今天我操。
+- [05:30:04]：今天今今今天讲嗨了，我今天播了5个半小时行吗？歇歇午歇，操12点了，明天还上班呢，我天。
+- [05:30:16]：哎呦，笑吧，兄弟们，晚安晚安，晚安晚安，哎呀。
+- [05:30:27]：生物学知识多讲讲，嗯得碰上逆天，我就我再科普一下是吧？不碰上逆天也就还好。
+- [05:30:37]：晚安兄弟们，晚安，行行行。
 
 ---
 

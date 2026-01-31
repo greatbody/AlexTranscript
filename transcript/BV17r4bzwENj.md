@@ -9,1477 +9,1477 @@
 
 ## 时间顺序对话（含说话人）
 
-- [00:00:00] **speaker_0**：。
-- [00:00:11] **speaker_0**：大家晚上好啊。
-- [00:00:23] **speaker_0**：播开播开播来影开播。
-- [00:00:33] **speaker_0**：嗯，等我啊，别急别急。
-- [00:00:45] **speaker_0**：哎，开波利开波利。
-- [00:00:59] **speaker_0**：哎，哎呀，我天，你们这群人啊是不是别别成天发一些有的没的。
-- [00:01:10] **speaker_0**：还没坠机呢，对吧？你们这群人是真行啊。
-- [00:01:20] **speaker_0**：不要乱发，妈的搞事情，这还没有追机呢，对吧？
-- [00:01:32] **speaker_0**：瞅瞅你们这群人是不别搞啊，哎哎呀啊啊。
-- [00:01:43] **speaker_0**：你说我一兄弟好点了没嗯呃义兄弟，你是说我师弟吗？
-- [00:01:57] **speaker_0**：真的，我就是你这一说一兄弟，我就有点没想起来说的是谁哎呀。
-- [00:02:08] **speaker_0**：哎喂是哎，我把另一个平台啊，不是我把另一个渠道也发一份儿。哎呀，晚上好晚上好，晚上好啊，兄弟们。
-- [00:02:24] **speaker_0**：感谢本属哎呀老哥送的城市票。
-- [00:02:33] **speaker_0**：啊，感谢老哥感谢老哥，哎呦啊有是好奇那个拔罐器的兄弟。
-- [00:02:44] **speaker_0**：呃，我也不知道用拔罐器那兄弟好没好点是吧？这个你这个说的我好像。
-- [00:02:54] **speaker_0**：不关心人家一样，但是确实是我不知道啊，人家也没再发过发过信息，所所以我也不知道哎。
-- [00:03:08] **speaker_0**：洪博子老哥儿子怎么样了？洪博子老哥，他儿子还还活着呢呗，就也仅限于还活着。
-- [00:03:18] **speaker_0**：至于你说活着有多好是吧？那是哎。
-- [00:03:29] **speaker_0**：不能要求那么多，好吧，活着就行。哎，真的你现在现在美国这个形式活着就成呗。
-- [00:03:43] **speaker_0**：支付宝到账30元感谢宝哥大赏，我西雅图小曲是真的吗？啊，你是说极光大道小曲吗？就是就是那个B站上那种搜视搜老司机视频能搜到那种是吗？那个是真的。
-- [00:04:02] **speaker_0**：啊，不过我奉劝你也不要有什么想法，跟大九堡公园差不多啊，好吧，就是不要有想法呃。
-- [00:04:14] **speaker_0**：感谢退坑暮糊人老哥打赏是吧？女女人们震惊，连好男人也不在在乎舔狗也不在乎。来吧，应景小视频老实男人都去哪儿了。
-- [00:04:25] **speaker_0**：可以啊开幕雷机好吗？哎哎呀。
-- [00:04:34] **speaker_0**：这这个简直了，哎，经济形势变化太快了。
-- [00:04:47] **speaker_0**：今天就是我今天是真正意识到什么叫经济基础决定上层建筑，你们知道吗？
-- [00:04:56] **speaker_0**：也不是今天吧，就是我知道现在经济形势不好，但是我没有想到不好到这种程度，你知道吗？
-- [00:05:09] **speaker_0**：我为什么说就是不知就是没想到不好到这种程度呢？你们要知道啊我待在这个鬼地方是个蓝州，而且是个南墙州，就是铁杆，就是蓝蓝挡南营的就是铁杆装稼。
-- [00:05:29] **speaker_0**：实际上，左派的魔怔人和受LGBT思想那种魔怔人是非常非常多的，就是连这种地方。
-- [00:05:42] **speaker_0**：他妈的开始出现了一些版本崩溃啊，还有这个回这回回滚回转回滚的这种情况。
-- [00:05:53] **speaker_0**：就如果连我们这种州府都这样了的话，别的地方我都不敢想啊。
-- [00:06:03] **speaker_0**：兄弟，那是我真是不敢想啊，哎呦。
-- [00:06:13] **speaker_0**：真的那是我不敢想的等一下，我看看。
-- [00:06:25] **speaker_0**：感谢老哥打赏，我看一眼啊。
-- [00:06:33] **speaker_0**：我看看感谢奶蒙图找老哥打赏啊，还有那个感谢贵物中贵物我哥大赏。哎呀阿姨谢过你的流量，我点的预约都不提示了啊，正常正常正常正常啊，非常的正常是吧？我。
-- [00:06:48] **speaker_0**：我看看啊，读什么这个暖宫通骨者老婆，这个先读啊。老魏，你前天的直播后半段，我因为第二天要面试，所以没看昨天晚上看过不，我真差人晕死过去。是这样，我问你，你不会先把我的法律回滚到华夏法系吧。华夏法系吃人属性，你不会不知道吧，我谁让你要回滚那个版本了，妈经典的经典的不要就经典的一谈道德就就就回到旧社会，。
-- [00:07:12] **speaker_0**：哎呦，往左边偏坠，因为现在往左边偏坠，所以所以不能往右走，为什么不能往右走？因为右边是坏的。
-- [00:07:25] **speaker_0**：啊，点中点，哎呀，我不能不讲道德。
-- [00:07:34] **speaker_0**：谁告诉你要回滚到那个版本了，你知不知道这个彻底消明你说的仁义道德，我们现在被付出了多少留学习生，你你可拉倒说这套，现在中国的所有体系甚至就是在依靠在所谓的传统仁义道德和传统的优良作风上，我都不敢想，如果按照现行法律规定，18岁就把孩子撵出家的话，。
-- [00:07:58] **speaker_0**：哼哼我都不知道中国社会会是什么样啊，你你可你可别来这套是吧？我不是学法的，对国胜也无感。如果只凭一个人道德水准就给他定罪，那能上去的人都是伪君子。谁告诉你要道德水准给人定罪了。
-- [00:08:19] **speaker_0**：我的意思是你在讲法的时候不能完全不讲道德，完全不讲道德的法律都是恶法。
-- [00:08:28] **speaker_0**：天下大同才多久啊，你看看不讲道德的法律是什么样的，人家还办成铁案呢，那按法律来嘛。
-- [00:08:40] **speaker_0**：你告诉我天下大同是为人民服务吗？哎？
-- [00:08:51] **speaker_0**：还还还还还不讲人义道理，明明明明自己吃了最多所谓的这个现代法系的苦。
-- [00:09:04] **speaker_0**：哎，怎么着，合合理合法吃你全家绝护是对的呗，可以不讲道德呗哎。
-- [00:09:19] **speaker_0**：还还他妈叫访丝都整出来了，绝对不能真换成华夏法系教访丝的出生孩子是绝对不能参加歌曲，不能下地务农或者去经商的。
-- [00:09:33] **speaker_0**：啊，所以你的意思就是他合理合法卷走你的东西是对的呗，那还说啥呀？
-- [00:09:43] **speaker_0**：不讲道德是吧？那那那没玩吧，等会儿先别急，我读完，没我没读完呢，等我读完。嗯，因为家里中坊以前就是县衙老爷。
-- [00:09:55] **speaker_0**：知道这套架构有多黑暗，你拱瓜不知道。
-- [00:10:06] **speaker_0**：嗯，如果如果讲究现代性，就是一个民族的消亡的话，那那宁可不要兄弟。
-- [00:10:18] **speaker_0**：你别忘了，任何东西都是要让人生活下去的。
-- [00:10:26] **speaker_0**：就是如果一个制度只有理论上的好处，他生活在那个国家的人都已经无比憎恨这套体系，这套东西是玩不转的。
-- [00:10:41] **speaker_0**：知道吗？还这套架构有多快要回滚，哎，有的说候平等一说。
-- [00:10:54] **speaker_0**：讲平等讲平等能平等吗？你的意思是，汉奸和烈士也应该一个待遇是吗？
-- [00:11:06] **speaker_0**：是那么玩的吗？比说跟人是一点不沾边，你光说旧社会的东西不做人东西都不对。
-- [00:11:19] **speaker_0**：那问题你现代化的东西没有先进性啊，你记住不是所谓的人要回滚，而是人要活着。
-- [00:11:31] **speaker_0**：而是人要活着，知道吗？人要活着，你不要拿一句现代性，就是以前多多多么多么黑暗。
-- [00:11:46] **speaker_0**：把以前的东西全都否了，啊，就经典是是是水太多会淹死人，所以不能喝水。
-- [00:11:57] **speaker_0**：你都快吃咸烟，闲死了，喝口水都犯法呀哎。
-- [00:12:10] **speaker_0**：就是这都啥程度啊？如果天下大同那个案件稍微讲一点道德。
-- [00:12:22] **speaker_0**：都不是这个样子，都啥样啊，你不能无视社会现实。
-- [00:12:31] **speaker_0**：你不能无视社会现实中的大象，懂吗？要的是平衡。
-- [00:12:43] **speaker_0**：我要的是讲究道德，不是要你回到封建社会。点中点一说要讲道德，就是回到封建社会。
-- [00:12:53] **speaker_0**：所以现在这个不讲道德的社会，你很喜欢吗？来吧，人人都给你讲法律下限，很好玩吗？
-- [00:13:11] **speaker_0**：他家里有县衙，就是不讲道德，我都不敢想中就是现在的中国人如果只讲法律，不讲道德是个什么样的社会。
-- [00:13:25] **speaker_0**：现在，中国是繁超过18岁，还在吃家里的人，还在由家长供养的人。
-- [00:13:35] **speaker_0**：本质上是依靠传统的优秀道德在在在在在运行的，而不是依靠所谓的法治。
-- [00:13:45] **speaker_0**：你老爹18岁就把你撵出家了嘛，让你自己是吧？你是一个成年人了啊，在现代社会的定义下，你是一个拥有完整独立人格的人了，你应该为你的行为负责了。你告诉我这种事发生过吗？
-- [00:14:07] **speaker_0**：你别骗我你别骗自个儿啊，你千万不要骗自个儿，骗自个儿是很没有意义的。具体什么情况你是知道的。
-- [00:14:19] **speaker_0**：对吧你的高中学费超过义务阶段的学费，你的。
-- [00:14:28] **speaker_0**：你的大学学费，你的生活费，你的培养的各种各样的费用。请问你的父母是以一种什么样的姿态再出的？
-- [00:14:39] **speaker_0**：是他肩负起了传统中华父母的义务和责任和道德，还是说现代法系里面规定了，他必须这么做？
-- [00:14:52] **speaker_0**：你不要骗我啊，你骗我也行，你别骗自个儿，你自己能明白吗？你是活在道德中的。
-- [00:15:03] **speaker_0**：而不是活在具体的某个法条下，因为没有任何一个法律规定，18岁以后还要养你，懂吗？
-- [00:15:14] **speaker_0**：你高中18岁以后就自负盈亏了吗？没有吧，你还是活在爹娘的庇护之下。
-- [00:15:23] **speaker_0**：你没有像欧美的高中生一样，就是我明明上次直播已经讲的那么悲惨了，就是红脖子老哥已经很不错了，他还能让自己的儿女住在自己的家里。
-- [00:15:40] **speaker_0**：吃自己的，但是他也没有钱付学费了，因为天经地义是过18岁了，老子没有没有义务再给你额外出一笔学费了。
-- [00:15:58] **speaker_0**：懂吗？你自己都是活在道德里的，你是活在传统道德的保护泡泡里的。
-- [00:16:08] **speaker_0**：你要是现在能跟我说，18岁以后，我的所有自己挣钱和交税的记录算你牛逼。
-- [00:16:17] **speaker_0**：如果你不你如果你做不到，你先不要跟我讲什么，就是不讲道德，你不配，知道吗？
-- [00:16:27] **speaker_0**：就是你不能在享受着前现代社会的道德的一保护之下，又大谈得谈现代性。
-- [00:16:37] **speaker_0**：那是不对的，懂吗？你猜猜我在社区里面猛猛捐钱，哎呀，这个孩子有一颗金子般的心，是因为欧美人也不都不讲道德吗？
-- [00:16:56] **speaker_0**：嗯，你不要听傻了，孩子不要既要就要。你明明直播间的多数人是不喜欢小仙女的，你不要学他们。
-- [00:17:23] **speaker_0**：对，感谢微笑的普提西安老哥大赏。法律是强者制定的，道多是少数能够约束强者的枷锁，不是枷锁，是个纸做的名义上的枷锁，只谈法律，你弱者怎么死的都不知道。是的。
-- [00:17:44] **speaker_0**：就是就是我都不知道，现在中国有多少年轻人，明明是活在古代的传统道德的保护之下。
-- [00:17:54] **speaker_0**：他在这跟我大谈特谈，不能讲道德，要讲要讲法律，简直好笑，你不要那么好笑好不好？
-- [00:18:12] **speaker_0**：懂吗？就是你明明自己都活在这种状态里，对吧？我再说，哪怕你有钱自己挣钱了，你失业了，回到家住，你觉得你爹管你要学要要要房租，对不对？
-- [00:18:32] **speaker_0**：你如果说出一个不对来，你告诉我他是以什么名义在帮你懂吗？你没有那么强足够强的后现代性，你不是美国人。
-- [00:18:48] **speaker_0**：我告诉你，所以你不要跟我说什么，只讲法律，你不配好吗哎？
-- [00:19:01] **speaker_0**：是吧你大学生活费是谁给你掏的？那风州建设美学上高哥打赏是吧嗯？
-- [00:19:10] **speaker_0**：呃，感谢峰之剑生美女就上有个打赏，两个两个打赏上图，南高地呃高新战略核心材料全部掌握在邪恶老钟手里。嗨呀，那不很正常吗？
-- [00:19:26] **speaker_0**：第二个，邪老中金刀记，要么杀新罗马海军造船慕容锤，要么杀新罗马养的狗儿子慕容令，要么一块杀啊，最好是一块杀。
-- [00:19:39] **speaker_0**：嗯，完了完了完了嗯嗯嗯。
-- [00:19:51] **speaker_0**：嗯，这就有人说有说另一个渠道是直播一样，慢讲那边也是直播是吧？另一个渠道，等一下，我把这玩意修改修改。
-- [00:20:02] **speaker_0**：什么玩意儿怎么要这么多，我等会儿，我把这个礼物改一下，这玩意儿他妈每天礼物有任务，我把礼物额度都修改到最小啊，别急。
-- [00:20:24] **speaker_0**：呃，我把我把这东西截一下图哈，微20我我看一下。
-- [00:20:41] **speaker_0**：感谢虎诗雨替老哥大赏，历代法律造反都是违法法违法不拘同罪，能活下来都是违法分子，别着笑了哼。
-- [00:20:50] **speaker_0**：啊哎啊，我把这个心愿重新生成一下。
-- [00:21:03] **speaker_0**：嗯，要不然就太抽一样了，哎呀，就是慢脚这边兄弟们就是这个这个就帮如果能帮忙就帮忙打赏一下是吧？这玩意儿这平台他妈有任务，他和B站不太一样。
-- [00:21:18] **speaker_0**：啊，好吧，就大家能帮忙就帮帮忙，都是都是差不多1块钱的礼物，五六块钱。
-- [00:21:27] **speaker_0**：，然后我再读一下嗯，等等会别剧，我读一下S，感谢一只猫头老哥打赏。其实早在老早之前就想说，中国的法律应该是为我们公序良俗社会主义价值观保驾护航的。但是有很多生物喜欢在条文里咬文嚼字。
-- [00:21:46] **speaker_0**：啊，是啊，感谢腾哥大家走个打赏，不错，已下单推荐这什么玩意儿？
-- [00:21:55] **speaker_0**：地狱犬登场光剑测试，等会儿看看我先我先把这我先把剑圣老哥这个这个这个图上一下。
-- [00:22:05] **speaker_0**：看看南高地又有什么狠活啊啊，我看看。
-- [00:22:21] **speaker_0**：根据10月13日，韩联社报道，韩国产业通商资源部发布一份资料显示，哎，这怎么这么抽象啊？
-- [00:22:33] **speaker_0**：不会是制裁韩华吧，等一下。
-- [00:22:43] **speaker_0**：啊，分依赖度分别为97.6%和98.8%，这不就是提斗放哈吗？我的妈呀，这依赖度也忒高点吧。
-- [00:22:58] **speaker_0**：啊啊，感谢兔崽子老哥赠送的啤酒，感谢感谢，感谢本手我也送的城市票，感谢老哥。
-- [00:23:07] **speaker_0**：这这这是不是呃这占的太多了，这不就是随便啥吗？这这不是粘珠吗？我操有20种自华进口半导体核心原材料，尼龟的对华进口依赖度分别为78%和63%。
-- [00:23:25] **speaker_0**：哎，二次电极正极材料核心原材料进口总额中，中国占比达到65。此外，甲98%，石墨97%，乙93%，镁84%。
-- [00:23:40] **speaker_0**：这不是我们要他死，他就得死吗？哇塞，我健圣老哥总能找到这种非常刁钻的新闻。
-- [00:23:49] **speaker_0**：哇，这不狠狠的拷打是吧？谁让他做美国小弟，我天，这不这不狠狠狠狠拷打，我的妈耶。
-- [00:24:02] **speaker_0**：嗯，等这个机械定他们有问题，怎么要过这么多？
-- [00:24:12] **speaker_0**：啊，不要那么多，这要30个机械定的方意都是30个，我这改一改哎。
-- [00:24:22] **speaker_0**：我说韩国人绷得住，韩国人绷不住，这他妈怎么绷得住。韩国人这要是绷得住，那就有鬼了呀。
-- [00:24:37] **speaker_0**：这怎么绷得住啊，制裁韩国也是为了制裁美国是吧？哎呀，制裁韩国造船。对，早就该制裁韩国造船了，让他们死。
-- [00:24:50] **speaker_0**：知道吗？让他们死，我是特别你我我跟你们说一下哈，西雅图这个地方和韩国有一些不解之缘。
-- [00:25:00] **speaker_0**：啊，我这个是我必须要讲的，为什么呢？当年美国对口扶持韩国的时候，重点的扶持项目之一就是造船业。那么请问。
-- [00:25:15] **speaker_0**：韩国的造船业主要来源于哪儿呢？它的核心技术啊、设备啊、人员培训，你们猜猜在哪？
-- [00:25:24] **speaker_0**：就是西雅图。对的，就是美国本土。
-- [00:25:28] **speaker_0**：美国本土不就不算夏威夷啊，离韩国最近的能够重点培训海洋制造海洋业的各种设备制造和人员培训的地方，就是西雅图。所以西雅图实际上有大量的含义社区，你们知道吧？
-- [00:25:47] **speaker_0**：哎，这些这些狗屁打造的就是所谓的傻逼含义美国人啊，就是他们大概率是最傻逼的两种结合，就是他同时继承了美国人的傲慢。
-- [00:26:01] **speaker_0**：和目中无人又继承了韩国人的那种歇斯底里。就是。
-- [00:26:11] **speaker_0**：没有这么唐的吧，而且这些人往往来都来自于这种就是要么就是韩国的这种制造，就是船舶制造企业，要不然就是美意的韩国人在西雅图的韩国人开的制造企业里面。
-- [00:26:28] **speaker_0**：啊，就这种人是最容易对着老钟哈气的，你知道吧？就是无论是他作为含义的身份，要对老钟哈气，还是他作为美国狗的身份，要对老钟哈气。
-- [00:26:40] **speaker_0**：或者是他自己作为美国人的那种傲慢，哇，就赶紧让他死，你知道吧？赶紧制裁韩华，他妈的这边移民来的这种韩国韩国和韩国二代，基本上都是韩华的，妈的，赶紧让他死。
-- [00:27:00] **speaker_0**：真的赶紧把这群傻逼按死，还他妈跟老子成天跟老子吹牛逼哎，是。
-- [00:27:12] **speaker_0**：我见过这样的傻逼韩国人啊，大家还记不记得那个就是那个我之前讲过吧，就是我们在学校啊有傻逼美国人白皮问我那个啊你们中国人吃不吃狗。
-- [00:27:30] **speaker_0**：我我我我当时的回答不是说说我们中国人哎呀，不仅吃狗，还吃猫是吧？啊，还吃你们美国小孩儿。
-- [00:27:38] **speaker_0**：那个白皮他没有破防，他只是被我问傻了，你知道吧？他没想到我能这么回答，谁破访了呢？下了课以后，有他妈含所谓的傻逼打引号的韩裔美国人破防了。
-- [00:27:54] **speaker_0**：就是啊，怎么能吃狗啊，你们你们你们中国人是怎么怎么样怎么怎么样，我说你是傻逼吧。
-- [00:28:05] **speaker_0**：你们他妈韩国传统就是他妈吃狗的，啊，妈忘数点忘祖，属于是。
-- [00:28:13] **speaker_0**：你说他为啥破防啊，我攻击美国呀？他作为美国最忠实的狗，我还攻击白人啊。对，感谢风之建视媒体学程老哥打赏。韩华海洋前身是大雨造船，主要是南高地海军造船，同时也是新冠马海军造船的承包商。对，赶紧让他死。
-- [00:28:31] **speaker_0**：知道吧？就是这种数点往左数点往左的畜生哎。
-- [00:28:44] **speaker_0**：哎，就是就是挣着挣着卖0卖挣着卖面粉的钱是吧操着卖白粉的心呢。
-- [00:28:56] **speaker_0**：哎，感谢电焊国宝宝哥大赏，我看一下啊，老爷图片放一下，顺便说一下，各位给美国美式民民法洗涤，不顾传统道德。那我只能说支持撼地行舟。
-- [00:29:13] **speaker_0**：嗯，这老哥，你这个图整理成一张，这玩意是吧？
-- [00:29:22] **speaker_0**：我上一张嘛，嗯，你说这不就是拿自己国民当猴子，然后自己是不是国民。
-- [00:29:32] **speaker_0**：就不当猴子，差不多这种心态吧，差不多这种心态挺傻逼的哎。
-- [00:29:52] **speaker_0**：等一下，我把这个这图片有问题，我重新我重新拍一张。
-- [00:30:11] **speaker_0**：真的是，而且我跟大家再说一下哈，就是这种韩裔美国人或者是越南裔美国人啊，对美国有一种怎么说呢？
-- [00:30:25] **speaker_0**：就是那个话应该怎么说？有一种很脑瘫的魔怔心态，就是这种魔怔心态是什么呢？
-- [00:30:35] **speaker_0**：类似于很就是那张非常经典的南朝鲜南朝鲜电视剧，就是啊能当大名的狗，真是荣幸。
-- [00:30:44] **speaker_0**：就是他永远有这种寄托的想法，他只不过是把大明大名换成换成换成新新新新国马，就这就这么点区别，实际上区别不大。
-- [00:30:58] **speaker_0**：就是他永远有一个效忠对象，而且自己效忠的时候不是以加入这个集体为荣，而是当这个集体的狗为荣。
-- [00:31:12] **speaker_0**：是这种千年当狗的国家，这种这种扭曲的这种狂热，就是你没法打断，你知道吧？
-- [00:31:24] **speaker_0**：就是你说你这你他妈是狗吧啊，他告诉你啊，很开心我能当狗，就他是无敌的，你知道吗？
-- [00:31:34] **speaker_0**：他贼他妈无敌，哎呦就是就是你所谓的攻击他的所有的点，他都欣然接受，就是他是无敌的。
-- [00:31:46] **speaker_0**：嗯，支付宝到账。
-- [00:31:58] **speaker_0**：嗯就是你你没法说他，你知道吧？就是你你就像打在了沙包上一样，就是那种打在了空气中一样，你对他的所有所所有的那种不做人的那种当狗的那种侮辱。
-- [00:32:18] **speaker_0**：他可以笑嘻嘻的跟你说啊，对是吧？当狗好爽哦，就是。
-- [00:32:27] **speaker_0**：它只有它只有就是两种状态，一种是脖子上没垫子的时候，那种无依无靠的可怜流浪的小狗的劲头。第二种就是当上狗以后，那种嘤嘤狂吠的劲头，它永远不做人。
-- [00:32:52] **speaker_0**：有人说北方那有人时北朝鲜不这样，北朝鲜他也这样，无非他把崇拜的对象换成了国内的人。
-- [00:33:01] **speaker_0**：本本民族的人是显得稍微好一点，不过也挺唐的嗯。
-- [00:33:12] **speaker_0**：有时候那不就是有时候那不就是李总兵的家奴啊，某种意义上是吧。
-- [00:33:23] **speaker_0**：感谢岁月之名老哥打赏，正好说到韩国，发现国内文娱界，包括做游戏的大把给韩国人当狗的，最近就有朴伯哲和陈泽冰两款游戏爆这方面围了。昨天大晚上笑的睡不着觉，纯排着半个月的惊世智慧，是过往十0年中所有2英厂商的总和，帮忙问问HV老哥感想，已经快尽到fly away，发 away了，再不播一下，尸体都臭。930后15天一直在爆炸，没停过。
-- [00:33:54] **speaker_0**：啊，等一下等等我读完，等我读完，没停过啊，这长黑桃青梅出嫁，屏蔽瓷歪屁股兔女王韩夫特供自曝其黄啊，以前称外夫评级无法管理，并果然凭运气得来的成功，一定凭本事输掉。
-- [00:34:13] **speaker_0**：是感谢妹，你贴吧看多了吧嗯。
-- [00:34:22] **speaker_0**：感谢风之剑圣美绝生老哥大赏，南高低也是三星家奴，先当代元的狗，再当代名的狗，再当代青的狗，再再当侵华日军的狗，最后当新罗马的狗啊，是。
-- [00:34:34] **speaker_0**：他他就这状态，他习惯了问问老魏教子现在怎么样，他年纪小是吧？他挺开心的，他吃嘛嘛香啊，无忧无虑。
-- [00:34:46] **speaker_0**：真的唉。
-- [00:34:59] **speaker_0**：我不玩二游，其实我不清楚是吧？我就读个SC唉真的。
-- [00:35:17] **speaker_0**：哎呀啊感谢芝麻蝴蝶老哥送的人气票，感谢阿东叔叔送的粉丝团长牌，感谢本属老爷送的一定发财，感谢老哥。
-- [00:35:27] **speaker_0**：哎呀，这我是服的，你知道吗？哎呀，二游这个东西嘛，想玩就玩，不想玩，赶紧跑。我不建议任何人玩二游。
-- [00:35:43] **speaker_0**：好吧，哎哎呀。
-- [00:35:55] **speaker_0**：因为因为是这样，玩一般游戏的社区其实就挺磨怔的啊。二游社区我都是不敢想的。
-- [00:36:05] **speaker_0**：哎，哎，老A，那你是没看战雷社区。对呀，就是我说的吗？就一般游戏我都不敢一一般游戏都那啥了，更别他妈说二游了，是吗？不不不，老A告诉你真正的那个赛博索要的战雷，你知道那个能把米线山放进来，然后让米线山说出我只是串我不是蠢啊，这这种言论，你想象一下这个社区有多恐怖啊。
-- [00:36:35] **speaker_0**：是吧唉战个也可不是一玩游戏，是这样，就是我是玩过MO的，就是有人玩过MO吗？知不知道MO是啥啊，我是玩心灵终结者的，是吧？
-- [00:36:54] **speaker_0**：哎，那你可能不知道我在说一种多逆天的东西。哎呀。
-- [00:37:07] **speaker_0**：来吧，这是什么幕红人老哥点的，哎呀，这算是某种契合今天主题吧，女人们震惊了，连好男人也不再关心了。
-- [00:37:22] **speaker_0**：呃，加得宝类似于什么呢？加得宝类似于一个美国特化版的这个宜加IK呀。
-- [00:37:37] **speaker_0**：就是嘉得宝的经典画像是什么呢？嘉德宝的最经典画像在美国，就是一个老爷们儿，手里拎着领着两个孩子，自己自己女儿怀里再抱着一个，甚至再怀着一个，然后推着一个大车去买家具。
-- [00:37:56] **speaker_0**：啊，呃，感谢徒手解放成老哥搭赏画宝宝爷子可算是能分享了。画宝宝啊，那个那个轨道专家是吧？那个啊看了看了。
-- [00:38:08] **speaker_0**：啊，老爷子是憋坏了，等我先看完视频啊，等我先看完视频，现在这种地方没有男人了，这不都是你们美国女人自己作的吗？
-- [00:38:19] **speaker_0**：here, there's no men here.
-- [00:38:29] **speaker_0**：The single men are in and out of Home Depot before 9 a. after that we're at home working on our projects.
-- [00:38:36] **speaker_0**：The men at Home Depot later than 9 a are with their wives. We know what we need don't linger and move out with purpose I have a serious fucking question and a't of the answer to it right fucking now We're the fuck are all the nerdy boy where I was a fucking nerdy boy.
-- [00:38:55] **speaker_0**：啊，这句话本着就是说那些凯子们都哪儿去了啊，就是。
-- [00:39:03] **speaker_0**：女人这么问，就是凯子都去哪了啊，那些愿意负家庭责任是吧？啊，能够正常正规明媒正娶娶老婆的给婚戒的那些男人都哪儿去了？
-- [00:39:16] **speaker_0**：啊，他本质上就是换个一句，中国人听得懂的事儿，就是怎么没有人接盘了呢？
-- [00:39:28] **speaker_0**：啊，这个话的本意就是哎，接盘的男人都哪去了啊，男人怎么都不见了？
-- [00:39:37] **speaker_0**：嗯，对吧嗯哎，老A现在西大那种婚姻类的律师应该很赚吧。
-- [00:39:47] **speaker_0**：婚姻类的律师恰恰不赚，因为没有人结婚了，没有人结婚就没有人离婚了，你知道吗？啊啊，我本来还以为说这种情况下，希藏那些婚姻律师是赚的很满。我今天马上就要讲就是。
-- [00:40:03] **speaker_0**：我之前讲那些和美国女人约会那些事情啊，那些规则大概上是两年和两年半以前的玩法，就是疫情疫情就是疫情刚刚结束，那会儿就是。
-- [00:40:17] **speaker_0**：大家是刚刚从疫情的那种那种那种环境下出来，就是已经是后疫情时代开始了，整个局势都已经翻天覆地的变化了。而且我以前吧。
-- [00:40:30] **speaker_0**：我一直在跟谁聊呢，就是我在跟银趴哥和黑哥聊，后来我发现不对。
-- [00:40:36] **speaker_0**：为什么呢？这两个人本质上都是富二代、富三代，甚至是更多代，他们本质上和女人的交往是和普通人不一样的。我在和播音哥的交往就交谈过程中，我发现妈的不对，实际上普通美国男人，中产美国男人。
-- [00:40:57] **speaker_0**：就是遇到的情况已经和以前完全不同了。
-- [00:41:01] **speaker_0**：对，就是版本崩溃了，版本要回版本已经回滚了，你知道吧？就是我说我操，不是吧，这好像局势有变，好像和他妈的。我刚来美国那会儿不不他妈一样，这个变化也太他妈快了。这两年经济崩溃啊。
-- [00:41:20] **speaker_0**：就哎呦哎呦。
-- [00:41:26] **speaker_0**：就是有时候是都不结婚了吗？是这样，就是现在是美国是什么情况？男人清一色不想结婚，女人清一色想结婚，为什么呢？他的本质底层逻辑和中国差不多，但是比中国要急迫，为什么呢？就是美国的男人已经是2.0版本，就是他们已经和家庭和责任和一切都已经脱钩了，你知道吧？啊也玩不起就是美国人实际上他们接受天下大统这种事儿的拷打是什么时候呢？20年前10年前。
-- [00:42:07] **speaker_0**：就是他们已经版本更新了，就是我他妈才不结婚呢，结婚对我一毛钱好处没有我结婚就是分脑子的钱，结婚就是影响我的事业，结婚只会影响我出刀的速度，开枪的速度也不陪你玩了。
-- [00:42:24] **speaker_0**：美国女人现在是法国了，美国女人再也不叫嚣，这个世界上有的是男人了啊，美国是全世界这这个这个流动人口最多的国家，全世界的精英男人都来美国，她再也不讲这个了，就是也不讲什么缺不缺男人了，现在讲什么。
-- [00:42:43] **speaker_0**：我想当老婆，我想结婚，我想有婚戒，我想有孩子，而且我不想上班，我想当traditional wife tra life什么意思呢？就是wife.
-- [00:42:55] **speaker_0**：就是传统家庭主妇，老老娘不想当女强人人设了，老子不想要什么左派女权虚事了。老娘现在兜里没钱了。
-- [00:43:09] **speaker_0**：你懂吗？就是他现在想版本回滚了，就是现在的版本，他发现妈的好像是再也不利于再再也不利于这个新时代的所谓的打引号的独立女性了啊。
-- [00:43:25] **speaker_0**：就是这种视频里演的女的，就是你们以前不是最他妈讨厌，这是吧？nerd boy吗？啊，你们不是很讨厌吗？这怎么又开始找了呢？为啥自己经济要崩溃了，崩不住啊，是吧？
-- [00:43:44] **speaker_0**：哎呦，很简单。
-- [00:43:50] **speaker_0**：是吧找不着吧，I'm so fucking tired of the athletes啊什么叫受过过渣男呢？these fuckuck boys什么叫什么叫fuck boys呢？就是只和他们做爱是吧啊，就是只只只只CCB是吧？不得就是只只走事不走感情。
-- [00:44:10] **speaker_0**：啊，懂吗？进行连接啊，对，接就是只进行人与人的连接啊，就是就是就是不买婚戒，也不谈孩，也不谈责任了，也也不谈孩子了啊，他现在想起传统男人的好了。
-- [00:44:26] **speaker_0**：啊，你记住啊，这是纯粹的翻译问题。这里面是的fuck boy，可不是渣男，知道吗？
-- [00:44:36] **speaker_0**：where are the fucking nerds?就这种女人就是这这种这种白妞就是典型的就是就是典型的什么呢？
-- [00:44:47] **speaker_0**：啊，自己从十五六岁开始，一直到二十五六岁，已经和这些fuck boys们，就是和这些所谓的打引号的渣男们玩个十多年了啊，现在自己二十七八岁了，二十八九岁了，马上奔三去了，自己的经力也不太记了，是吧？生理指标也下降了。
-- [00:45:13] **speaker_0**：他现在想结婚了他现在想结婚了，嗯，就是对我想这个就是I just wna changenerd boynerd guys life或者nerurd boys life。
-- [00:45:33] **speaker_0**：这句话是现在欧美小仙女最经典的话术之一。
-- [00:45:41] **speaker_0**：就是兄弟们，你们可以把这句话记住，如果你以后跟美国白妞谈这有谈他说这句话的话，你你赶紧跑跑的要多快有多快，否则你你你是吧？啊，你都hold不住自己啊，感谢老哥打赏啊，感谢我看看感谢贵物中的贵物老哥打赏。老，这首曲子真是太好听了，麻烦放一下。
-- [00:46:06] **speaker_0**：啊，行吧，微信收款30元，嗯，别急别急啊，是吧？那等会儿等我多完，感谢ZZP老哥打赏。
-- [00:46:17] **speaker_0**：啊啊，说到踩踩踩踩背来上张图啊，这这这这他妈的。
-- [00:46:26] **speaker_0**：有点极限嘛？嗯这个图可以先上一下。由于这张图是纯图，没什么内容，就先上了啊。
-- [00:46:39] **speaker_0**：这个这个踩踩贝是不是有点太凶残了？老A呃，感谢我大，老一会儿可以放这个拧巴锤的视频。虽然说搞全南IP是纯口嗨，但是其中似乎确实能看出一些变化来啊，是的。
-- [00:46:57] **speaker_0**：来吧，我们把这个看完 life bro, I just want to change his mind forever.
-- [00:47:06] **speaker_0**：IfThat's so fucking hard, why can't why can'tI find a nerdy man, I want a nerdy man, I want a nerdy man that knows random fucking shit.
-- [00:47:17] **speaker_0**：你看他还是就是又不跌位说教，就还是没有放弃女权那一套趋势嗯。
-- [00:47:27] **speaker_0**：I want to change this nerd's life and make you obsessed with me I that so hard to fight他们其实想找一个就是找人接盘?
-- [00:47:37] **speaker_0**：when she saysnerdy man, it's more like Henry Cavill and less like us average dudes.
-- [00:47:50] **speaker_0**：She means engineers and software developers who play sports on the weekends and sometimes go watch sports at their buddies house parties, not the dude playing video games and watching Star Wars for the 18th time men want to be the woman in the relationship so bad these days like relax Princess there's no fucking reason why I should be paying for dinner.
-- [00:48:10] **speaker_0**：there's no reason why we should be going on a trip or就是就是这里面说的就是传统男人负担的一切，就是哎是吧？现在AA就挺好，妈的，我是男人，我才不要版本回滚呢，是吧？凭什么要回到那个男人负一切的时代呢？
-- [00:48:29] **speaker_0**：对吧哎，我就不富啊，哎，我就是不想回滚啊，是吧？哎呀，以前不好是吧？哎，别别别别，我坚决不搞什么大男子主义是吧？啊，咱们就AA是吧？我再也不当什么传统男人了，是吧？传统阿尔法型男人是吧？现在就挺好是吧？啊，我什么都不富啊。
-- [00:48:54] **speaker_0**：是吧也没有什么约会旅行了 anywhere. And I should be the one pulling up my car to pay and you're just staring at me like a dumbs. There is no fucking reason why对，就是现在就是。
-- [00:49:12] **speaker_0**：美国男孩子就是三步一主动，什么三步呢？不发短信，不打电话，不约会啊，主动退出婚姻。
-- [00:49:24] **speaker_0**：这就是现在美国男性的，就是三步一主动，就是不约会，不打电话，不发信息，主动退出婚姻。
-- [00:49:38] **speaker_0**：就是就是嗯就是美国男人好像突然间也发现了，我只要三步一主动，我的生活质量其实可以很高。
-- [00:49:54] **speaker_0**：你懂吗？呃，感谢岁月之明，老哥打赏放个歌啊，就是这是后面就咋了好几首歌了嗯。
-- [00:50:04] **speaker_0**：啊，不急是吧？哎，就目前就这么个版本，目前就这么个版本是吧？
-- [00:50:14] **speaker_0**：I should be texting you first there is no reason why you shouldn't be bringing me flowers or buying me a coffee just because or just doing something that doesn't even cost money just to put a smile on my face.
-- [00:50:27] **speaker_0**：No in this fucking generation, it's the other way around why in the fuck are women becoming so masculine II want to comprehend what is happening to the men是什么叫.
-- [00:50:41] **speaker_0**：什么叫女性男性化呢？就是说白了就是奥黑上台以后的一系列左倾操，就是妈不能用左倾这个词，就是白左操作是吧？女权操作。
-- [00:50:55] **speaker_0**：就是他已经给美国女人注入了一种更加有毒的思想，就是男人做的我们女人能做。所以我们而且我们女人比我们男人更聪明，所以我们做的更好。
-- [00:51:08] **speaker_0**：就是收款20天，我我一会儿就要马上讲到这一类女人这一类人在美国，就是他们已经没救了，就是他们自从。
-- [00:51:19] **speaker_0**：整个的奥巴马的两个任期培养下来的那种恐怖的意识形态和三观，已经拧不过来了，就是他们已经无法回归家庭了。
-- [00:51:31] **speaker_0**：感谢真老哥打赏。老A今天看到一个有意思的说法。现在二阶段的猫易战最大的贸驿战最大的变化可能是老钟的心态已经从谁中切蛋糕多一点，转变成凡事有人敢给我切蛋糕都得死。这次稀土家船运明面上打的是美帝，实际上冲着小日子和南高地的命门去，估计金毛被底下人提醒到两只狗真的会挂，所以光速他口啊，好日子还在后面呢。
-- [00:51:57] **speaker_0**：也就是说这个白女像个鬼一样，真的有人要吗？啊，首先来讲这是个黑人啊，这是个黑人，就是。
-- [00:52:07] **speaker_0**：老哥们还是见的美国女人少，这是一个经典的白人扮相的黑人女，好吧，就是回血已经混了很多白人血脉的黑人，就是她已经扮相上不能往纯粹的黑人女性上扮了。
-- [00:52:22] **speaker_0**：啊，天哪这是这是一个黑人女性啊。
-- [00:52:28] **speaker_0**：你说这黑人根据一滴血原则，确实是这不是一个白人，这不是一个白人他的面相和他的面相和语气和画风都是一个黑人，好吧，他只不过就是混了太多白人血脉。
-- [00:52:43] **speaker_0**：大概可能只有4分之1或者8分之1的黑人血统，，这个不是个白女兄弟，这是个黑女，好吧，当然她的思维和思绪方式已经很白了。
-- [00:52:58] **speaker_0**：啊，支付宝到账25元，就是就是黑人老哥就是比较诛心的说法是你当不了一个好妈妈，就是你当不了一个你当不了一个传统黑人社社区里的背个妈妈，那种富有爱心，就是能拉扯孩子长大的那种妈妈是吧？你也当不成白人。
-- [00:53:21] **speaker_0**：感谢铁产亚左风老哥打赏，有一收益老A，我觉得脑膜炎没二又笑死那天啊，还行吧，至少MO玩家不会把波安卖草莓当成神仙咔咔一顿半啊，那倒是另外能把这张图放一下吗？此外，现在还关注纯埋的，其实在新入欣赏一部叫提斗放哈林增红，或者又名锦城哈毛恶作纪的电影，只是这部电影电影片太贵了，一张票的人价人均5000块。
-- [00:53:51] **speaker_0**：哎，就是你这张图一会儿一一会儿放吧，这张图有点太地域了。
-- [00:54:01] **speaker_0**：啊，不是我跟大家说一下，就这个女人是一个经典的黑女是吧？啊，白人画的黑女，感谢夏辉老哥打赏，我看一下。
-- [00:54:14] **speaker_0**：呃，下回老哥，你发我，我没看你发我嗯。
-- [00:54:26] **speaker_0**：有人说这能是黑女吗？典型的黑女，兄弟们，这是典型的黑女，好吧，感谢老哥打赏。老位大漂亮是真不知道读书好才能找到好工作吗？知道不能说为什么呢？戳破社会的共识，大屋子里的大象，为嘛受欢迎的却是运动员呢？
-- [00:54:45] **speaker_0**：他的野兽性还是存在的，为嘛女的人审审美这么奇怪，但又要读书好的接盘。这小仙女思维啊是吧？我要身强力壮的男人来干我，又要有钱有脑子的男人来养我。就是当这两种身份不能合在一个人身上的时候，我就希望两种男人同时来找我。
-- [00:55:08] **speaker_0**：就是他既希望这个男人有脑子一门心思的扑在学术上面，然后成为一个比较有钱的工程师什么的。一方面又希望这个人没什么脑子，从小天天去运动，练的一身腱子肉来操他。
-- [00:55:24] **speaker_0**：是当这两种身份能合而为一的时候，自然好。如果不能的话是吧？那我分别找两个也不是不行。
-- [00:55:37] **speaker_0**：有人说这不就是左右脑互搏。呃，一般传统意义上这种叫法叫做东食西素啊，传统一点的叫法。
-- [00:55:49] **speaker_0**：这个采踩贝的这个图片，我我已经发了好几次，怎么发不到这个这这这个这个慢脚这边，我只能重新自己截一张图。
-- [00:55:59] **speaker_0**：哎，有时候好事，这不全让他占了。对，所以现在男人们想明白了，最起码有脑子，那些那儿的那些书呆子男孩想明白了，就去你妈的是不凭什么老子还供养你。
-- [00:56:15] **speaker_0**：Why do you want to be us so bad like do I have to take you for a fucking petty or a fucking manicure, what is happening?
-- [00:56:24] **speaker_0**：What is happening, I genuinely want to fucking no I'm done.
-- [00:56:32] **speaker_0**：I'm done we finally opened our eyes. We give what we receive men don't beg or chase anymore. Where are the normal people就是就是三步一主动就是永远不给女人发信息，永远不约会女人.
-- [00:56:48] **speaker_0**：就啊永远不和女人说话，然后主动离婚 my case I mean like normal guys today呃， I feel like大家看见这个女人了吗？这是我操，我看见这个女儿有点生理不适了。
-- [00:57:03] **speaker_0**：为什么我生你我有点生你？不是我有点想我有点我现在有点想想想想想想发火，就是啊这个是非常经典的白佐女的扮相。
-- [00:57:20] **speaker_0**：就是就是我女朋我我前女友差不多就是这么个扮相。
-- [00:57:26] **speaker_0**：啊，感谢下回友个终于发出了，我读一下宝薇呀，我经历这么多年的考察后发现集美是一个和小丑一样的哲学方法问，很多时候恰恰是不作为和乱作为，才有集美的出现。而集美的犯案恰恰会摧毁知心姐姐的存在基础，是否可以以后见十年中知心姐姐女高职之类的不可界定与描述的生物会被大规模消除。。
-- [00:57:51] **speaker_0**：一定的。
-- [00:57:54] **speaker_0**：国外的邪邪交502会借助算法渗透和组织极美加速冲，已经是这样了。还有给你看看我做的好吃的，也给大家分享一下炸藕核青炖狮子头南煎丸子东安东东安饥松鼠鳜鱼，海鲜扒肘子，海参扒肘子，顺便附上两个宋词，请读出来。平日不修善果，最爱石油军火，冻辄鸡鱼龟则，总是邪迫归索，全面推断振果环球同死良热，老东舰队海上来，今日防止我食我美帝末年宋词，平日不修善果，见人哈气不躲，动辄复泉压迫，诬告紧追不舍，必然润啊，等会这么端。
-- [00:58:39] **speaker_0**：等我读完，就是不要在我读的时候震我嗯，孤独啊，必然瑞心叛国，反冲啊，百百吨大运呼啸为今日方知我是我。
-- [00:58:54] **speaker_0**：完哇来，我我我把我把几张好看的发一下是吧哎？
-- [00:59:11] **speaker_0**：真的是我们把视频看完哈，就是就是我觉得自己挺正常啊，不行了。兄弟们，我听到这句话，我PTSD要发了，就是我觉得我自己很正常。
-- [00:59:30] **speaker_0**：啊，不行，我现在我现在脑海里全部都是不好的回忆，你们知道吗？
-- [00:59:36] **speaker_0**：我不行了，就是我看见这个女我看见这个女人的装束和这个帽子，还有这个脸型，就是这个面相啊，还有这个画，就是那个动作不行了，他们好像一个模子里套出来的，我我现在脑海里面就是已已经开始开始人生走马灯了，你知道吗？
-- [00:59:56] **speaker_0**：有人说没看懂有啥看不懂，我前女友就这样，你知道吗？就是我觉得自己挺正常啊，我觉得我自己可好了，就是我我就是哎呦。
-- [01:00:13] **speaker_0**：啊，我不行了，就是不行，我我看见他微软PTSD发了，这是非常典型的白灼小仙女啊，非常非常典型的白灼小仙女就是啊啊不行。
-- [01:00:26] **speaker_0**：我看见有点有有点他妈PTSD发了嗯嗯嗯补充此外，国内二有厂商只有老A前女友plus老为前女友pro，老魏前女友pro max老为前女友 ultratra这几个级别啊。
-- [01:00:43] **speaker_0**：嗯，就是。
-- [01:00:55] **speaker_0**：他扔完飞刀，我去问他，你不觉得你有问题吗？
-- [01:01:00] **speaker_0**：然后就是他跟我就一个词儿都没改啊，兄弟们，我觉得我自己挺正常啊。Ijust feel like I'm just normal,就是那种一脸无辜风轻云淡是吧？摆一个很可爱的pose。
-- [01:01:18] **speaker_0**：就不行，我现在就你们现在我知道为什么我对我前女友心理阴影那么大了吧？就是这种女人是就是你们你们想象一下，他要谋杀你。
-- [01:01:31] **speaker_0**：就是他抄你他他抄你扔一些很恐怖的东西以后，他还能风轻云淡的说出这句话来。Im just normalIm crazyI don't do anything crazy坏了，我操一个词都没换啊。兄弟们，这说不是都是我前女友的词啊，一个字没改啊，兄弟。
-- [01:01:49] **speaker_0**：就是啊，我我不行啊，兄弟，我我不行了。
-- [01:02:01] **speaker_0**：Im just person just a person dok whatever啊就是虽然有tkt账号什么但总体来说非常普通大家说一下你在美国约会的有一个女跟有tk认t是用来打拳的东西。
-- [01:02:35] **speaker_0**：懂吗？就是虽然没有什么虽然没有什么大的体量，但是有一小群粉丝搁那傻逼共振啊就in generalI'm pretty normal pretty feel like all my friends感觉从小到大认真的朋友都很正常。对，都是他们这个圈子里的人，他们圈子里觉得自己是正常人 normal。
-- [01:03:01] **speaker_0**：啊，我不行了啊，我我我有点我我现在有一点PTSD犯了，你知道吗？我现在脑海里全是画面。
-- [01:03:13] **speaker_0**：行我我我现在不仅想起我前女友，我还想起了他的那些那些逆天闺蜜嘛，你知道吗？啊，我我有点我有点多少多多少少那啥了啊。
-- [01:03:26] **speaker_0**：啊，真的感谢腾哥大做老哥打赏，换换心情啊，看看我的啊。
-- [01:03:36] **speaker_0**：You are a horn.
-- [01:03:40] **speaker_0**：等会把视频看完是吗？ where are the normal people just normal people everyone seems to have some sort of mega red flag or some like just就是美国人说下头就是说red flag就是美国人一般不说直接说下头啊，他们说red flag redd flag就是红旗橘红就是。
-- [01:04:01] **speaker_0**：美国女人的标准就是green flag ，green flag就是绿旗，绿旗就是OK完美，很好。red flag红旗就是不行。
-- [01:04:10] **speaker_0**：Strange trait That is a turn off to me. I don't know. Like maybe I am too picky. I don't think I am I don't think Where are you guys, normal guys are at home doing normal stuff. Check your friend zone. You ignore the normal guys because they're too boring for you. You want the experience. Chad. The one with a hairy chest. We, the normal dudes will not accept being settled for. No, thank you. go stay with Chad. We're fine being single.
-- [01:04:38] **speaker_0**：O love how girls just use this啊，坏了，这个扮相是另外一种美国经典扮相，叫vely bitch.
-- [01:04:48] **speaker_0**：之前那个黑女其实就已经很歪y背上了，啊，但是那不是她第一身份，就这个哎呦，我天不行了。
-- [01:04:57] **speaker_0**：就是就是峡谷峡谷绿茶，就是加就是这个就是我跟大家说一下。
-- [01:05:09] **speaker_0**：美国标准的ins博主的面相啊，或者TT博主的面相就是女女博主的啊模样。
-- [01:05:19] **speaker_0**：啊，懂吗？就哎呦这个这个这个面相也是非常的经典，好吧，这这个面相也是非常非常经典的那种。
-- [01:05:35] **speaker_0**：啊，就是精致叉叉N人设的那种美国女人。有人说小视频女主那种吗？呃，一般这种女人不是小视频是吧？她是比较高端的绿茶 their diary in their little journals. That's what I'm going to do.
-- [01:05:51] **speaker_0**：But I have been thinking and I'm so single, like so incredibly single, it's not funny but.
-- [01:05:58] **speaker_0**：I think that my future husband is not in the US.你放心啊，就是就是呃我马上一会儿讲正题的时候，我也会讲到这种女人，你知道吧？非常非常的恐怖，你们知道吗？ think就是他肯定不在美国啊，对的对的对的， somewhere else.
-- [01:06:17] **speaker_0**：because just看到了吗？就是贬低本国男人，捧外国男人是这些女人的标配。
-- [01:06:27] **speaker_0**：啊，你看到了吗到了吗看到了吗？看到了吗？
-- [01:06:39] **speaker_0**：这些打扮精致、时尚又漂亮的女性博主，她们往往第一性就是。
-- [01:06:48] **speaker_0**：任何话题一转攻击本国男性，就是你们想一想，如果如果中国男人可以被攻击，我还可以说是什么第三世界国家呀，发展中国家，美国可是天下第一啊。
-- [01:07:09] **speaker_0**：有时候他那他们捧哪国男人呢？你猜猜哪个国家在小红在在在tktok上最火呢？懂吗？就是你想一想，如果你是美国男人，你累了一天下班回家。
-- [01:07:29] **speaker_0**：看见这个不是你PTSD不就你现在把你带入一个美国男人的视角，你想象一下。
-- [01:07:40] **speaker_0**：就是一个享受着美国男人供养的这么一个漂亮女人拍视频。
-- [01:07:48] **speaker_0**：几分钟就来一句，我觉得美国男人配不上我，我觉得我未来另一半在国外唉。
-- [01:08:04] **speaker_0**：是每个国家都有自己的林先而要面对，你知道吧？那点吧是不是点完了？
-- [01:08:16] **speaker_0**：这种女人的扮相和话语，你是不是在某小红薯上面经常能看见，是吧？对。
-- [01:08:29] **speaker_0**：也就是除了美国男人，哪个国家的男人都行，你也不知道这个美国几十年的霸权。
-- [01:08:38] **speaker_0**：啊，在全世界威震四方的霸权，在他眼里都是配不上他的。就你们想一想吧。
-- [01:08:51] **speaker_0**：是所以你们不要以为某些东西是中国人的劣根性，全世界都这样全世界都这样。
-- [01:09:02] **speaker_0**：你们懂吗？他真的是这这个东西真的是不分国家的，全世界都一样啊，就是所以请中国男人放宽心是吧？就是永远也会有这么一群女人呢。
-- [01:09:18] **speaker_0**：永远是国外的香，世界第一你也不行。美国现在是无可质疑的世界第一吧，那也不行，美国男人不行。
-- [01:09:29] **speaker_0**：啊，对，集美是国际化的。
-- [01:09:37] **speaker_0**：The guys here are not it. They're not doing it for me就是就是为了防止有人说他歧视就是哇完全不是我的菜， I don't know what's going on or how对，就是不是他的问题。他认为是是是是别人的价值观扭曲，不是他的价值观 screw up but.
-- [01:09:55] **speaker_0**：看到了吗？就是我也不知道美国男人还要怎么努力，能配得上他。
-- [01:10:07] **speaker_0**：就是有的时候我也觉得美国男人挺可怜的是吧？american men doing你看就是他可以神色自若，脸不红心不跳的把这一句话说出来。
-- [01:10:26] **speaker_0**：哎，这可是他他说的可是美国男人啊，懂吗？
-- [01:10:43] **speaker_0**：But then it's like I guess I need to go这种女人一会也是要我要嫁 over somewhere like surely they have better men out there this can't be this cannot be the dating pool everywhere it can't be this bad, right?
-- [01:11:00] **speaker_0**：No, as though I got to, I got to book a flight and I got to go somewhere else to meet my future husband, he's probably like in Italy or something like with his family taking care of his Nana or something like I don't even know, I don't know but.
-- [01:11:17] **speaker_0**：US men are not it I gotta know like especially since this is international张嘴就国际化时代了 if you are in a different country and you're a girl and you know like what's what's it like are there good men out there do know?
-- [01:11:33] **speaker_0**：Because it's not happening here the state's just not it's not it when attractive women complain that they can't find a man maybe they need to look inwards and self reflect because there' are plenty of good guys out there No I'm not the only girl who's noticed that guys don't come up to us in public anymore.
-- [01:11:52] **speaker_0**：只会隔着酒吧盯着你看还记得我说的吗？就是这种女人就是经典的，她年轻10岁就是会坐在酒吧里面。就像我说的，狠狠羞辱并拒绝每一个上爱搭讪的男人的那种女人。
-- [01:12:09] **speaker_0**：ll就是男人根本就不敢上前的。因因为到目前的版本就是美国男人在酒吧里面主动出击得到的基本上只有羞辱. that's the epitome of what dating apps feel like. It's just a bunch of guys staring at your profile liking you quietly but saying nothing. And I'm sitting there like how we ever gonna speak Are you hoping I make the first move online就是这种女人就是说这种光冕堂皇的话.
-- [01:12:40] **speaker_0**：然后男人真的来来问你就是不行狠狠拒绝 also passive like everyone's watching each other but not doing anything.where's the connection?这就是我说的那种Let me put it in an analogy you'll understand.
-- [01:12:54] **speaker_0**：I'm driving and I know there'sa cliff coming, should I keep driving, that's what a relationship is now. we know the outcome, Why continue.
-- [01:13:02] **speaker_0**：Why are all the girlsies in the same boat right now from my last post about where the girls finding boyfriends nowadays can we debrief how really every single girl had the same comment they're like, I don't know, I'm trying no luck blah, blah, blah, blah blah, like why are we all on the same boat Why are 50% of the comments saying Facebook dating?
-- [01:13:23] **speaker_0**：Are people really using Facebook dating No bother and then just recently the video started gaining traction from the men and they're like yeah we can't find girls either we were told don't talk to the girls so you have to come up to us first like.
-- [01:13:40] **speaker_0**：I think I should clarify that it's not that I can't find is一种很经典的面 find men because we can they're everywhere it's just we can't find the right men, the right men that we are looking for that we have preferences so maybe I should rephrase my question into where are all the good men who have potential?
-- [01:14:04] **speaker_0**：这也是美国小仙女的经典话术，是有潜力的好男人就是。
-- [01:14:12] **speaker_0**：美国的小仙女说，有潜力的好男人，她说的是谁呢？她说的是那种在学校里面刻苦读书，并且读完书以后会去大公司技术岗科研岗那些nerd的们。
-- [01:14:28] **speaker_0**：啊，但是呢他们不会和这些男人交往，最起码不会在初期阶段交往，为什么呢？因为他们要享受人生是吧？啊，享受下半身的快活，他去找他去找什么，他去找运动员去啊。
-- [01:14:46] **speaker_0**：他什么时候就是那些潜力的好男人开始吸引他了呢？就是当这些男人真正的从痛苦的漫长的读书当中毕业了以后，真正有一个好工作了。
-- [01:15:00] **speaker_0**：就是当他们的潜力开始展现的时候，懂吗？比如说这个长相是什么？美国富首尔。
-- [01:15:13] **speaker_0**：这是经典的美国富首尔的长相，懂吗？就是跟你一本正经的搁这分析男人好像自己很聪明，很理性一样。
-- [01:15:25] **speaker_0**：啊，有时候吃现成的对，就是有潜力的好男人哪去了？
-- [01:15:34] **speaker_0**：Today's women ridiculous expectations, they all think they are tens, they don't know how to have a healthy relationship, they entertain multiple men at the same time, they lack appreciation and put in low effort.
-- [01:15:53] **speaker_0**：The bear is still available, though. Nothing is more annoying and honestly immature to me than when a man clear这个是就是黑板 Karen这个是也是很经典的长相。哇，这个视频这个视频作者很有水平啊就是。
-- [01:16:11] **speaker_0**：哎。
-- [01:16:13] **speaker_0**：这个视频是点型那种高职黑妞小仙 wants to approach me he clearly wants to say something but won't like he'll do everything to be in my peripheral if I'm somewhere like the gym like he'll go as far as following me around every set every workout I'm doing guess who's getting ready to set up next to me when I used to online date like I used to do online dating these would be the type of guys that would message me and be like hey like I think I saw you at the gym and it's like yeah dude it's so obvious you follow me around and you don't say anything want to be chasete and it's not for the reason that you would think like you know maybe they think they're more attractive etc no.
-- [01:16:56] **speaker_0**：Y'all have social anxiety and you're awkward that is why some of you want to be chaseste it has nothing to do with gender roles or anything like that because if honestly if you see something you like, you should have the goal in the balls to say something waiting around for a woman主 that also putting your.
-- [01:17:17] **speaker_0**：有时候在美国现在主动搭讪是不是相当于性骚扰啊？对的，就是为什么男性不敢主动搭话呢？因为很容易被告性骚扰的兄弟们是非常容易被告性骚扰的。
-- [01:17:32] **speaker_0**：非常非常容易被高兴骚扰，就是长得漂亮的女人。
-- [01:17:44] **speaker_0**：被男人吸引吸引男人是很正常的。但是由于黑暗森林法则，你根本就不知道这个女人会不会把你送到警察局，所以根本就不存在男人主动去那什么的时候。
-- [01:18:02] **speaker_0**：啊，有人说这漂亮嘛？在黑人女里不错，感谢这老哥打赏，经典要求有上进心，我操太熟悉了。这味纯纯PUV吊规流程，以及敢反驳。就说你是下图男和新牙阿抑啊，是。
-- [01:18:16] **speaker_0**：感谢玉离曾老哥打赏，我看一下。
-- [01:18:21] **speaker_0**：啊，谢照谢照志五五杂祖京师妇人有五不善，蝉也兰也刁也淫也浊也，于见四方犹患，取京师女为妾者。皆庆滋福以供口腹，必精神以遂其欲，及归故底，则撒泼求敌，父母兄弟群然消敬，求其勤俭干家，不千百种不能得一憾也。老爷，我刚刚来没听几分钟，这不就是东施西素嘛。是啊，也就是有法律，这种人说难听点只是一个好看的娃娃，没有法律的话，就玩完留着都嫌麻烦，没有任何价值。什么你问我生育价值，且不说他有没有，就凭他这种思想，你确定孩子是你的都用救啊。另外，某书上的人玩的都是别人剩下的吃不到一口热乎。
-- [01:19:08] **speaker_0**：啊，是啊，你以为为啊，这这有有人说这就是对你看着过吗？这就是只讲法治，不讲道德的社会。
-- [01:19:22] **speaker_0**：有人还之前一开播就有人说是啊，不能讲道德。
-- [01:19:27] **speaker_0**：一一讲道德就是要回封建礼教，你看看吧？不讲封建礼教一点不讲道德的社会是什样 in a position where you know, you're basically bumping elbows with her for her entire gym session is weird. It would be weird even if it was the other way around. If I was following a man around the gym under the guys that he's going to say something or approach me. Welcome to the world you created enjoy.
-- [01:19:54] **speaker_0**：Okay, so I deleted all my dating apps a bit ago and with my best friend and she's like, I haven't even met anyone in the while I'm going re downloadload them.
-- [01:20:04] **speaker_0**：呃，这种也是美国经典拉拉队长长相吗。I really don't want虽然他不是金发碧 don't any dating apps. I'm gonna resort to Tiktok so。
-- [01:20:18] **speaker_0**：这种女人转战take talk就会发现一个非常恐怖的事情，是吧？就叫兔子不吃窝边草啊，一会儿去体检 fuck boy。
-- [01:20:27] **speaker_0**：Preferably over.
-- [01:20:31] **speaker_0**：为什么是这个年龄呢？就是男人毕业以后事业刚刚起步阶段啊，也就是美国女人所谓的展现了自己的潜力的有潜力的男生，就是这个时候还叫男生，不能叫男人，因为还没过30岁。但是他们已经参加工作，有能力的人已经崭露头角了。就是二十三四岁毕业，二十七八岁就是差不多第一批很有能力的男生已经当上个小小领导小小组长什么的了，或者某个小项目的副副负责人，。
-- [01:21:08] **speaker_0**：啊，你看吧哎，人品要好，性格必须有趣，你看吧，全是要求啊，有幽默感，不能无趣。
-- [01:21:18] **speaker_0**：What else I love a man whos not American哎，这句点吗？完我超爱外国男生，不过美国人也行了。
-- [01:21:33] **speaker_0**：这句话点吗？兄弟们，这句话点够不够点兄弟。
-- [01:21:43] **speaker_0**：这这句话点吗？这可是美国女人啊，点吧。
-- [01:21:55] **speaker_0**：点吗？是不是已已经点了，不能再点了。
-- [01:22:08] **speaker_0**：嗯，就是你们现在知道EZQ不是中国的问题了吗？
-- [01:22:17] **speaker_0**：全世界都这样，就是大家共用一个大脑，他们是是不是大家觉得都释怀了一下？
-- [01:22:29] **speaker_0**：有说怎么美国也有这么多牛排，因为你永远就是鹤玉鹤玉难填，你世界第一的美国也填不上他们的欲望，懂吗？
-- [01:22:42] **speaker_0**：你永远做不到，懂吗？
-- [01:22:53] **speaker_0**：玉壑难填嗯，是的。
-- [01:23:06] **speaker_0**：就是你不要你没有任何男人添得上，所以就是你也不要自卑，就中国男人不要自卑，就是没有世界上没有国家的男人能做得到的。
-- [01:23:20] **speaker_0**：那他们想找哪个国家的，你一会儿听我播，你就知道了，很点吗O。
-- [01:23:28] **speaker_0**：All right, that is my type.
-- [01:23:33] **speaker_0**：So if you are interested, she's probably not going to reply to anyone anyway, they're all the same she just wants to use the Sims as an ego boost that's all your husband is in your friends zone Anyway guys you can now share your raw unfiltered experiences about why you went Mtow send the video bye.
-- [01:23:52] **speaker_0**：这这视频做的太好了是吧？这视频简直做的太好了，发的都是一些最经典的，就是就是已经点就是他这个视频里面的所有女人就就已经点到那种无以复加的程度了。
-- [01:24:10] **speaker_0**：嗯，真的说句难听的，像淡漠老哥说的，中外，感谢这老哥打赏啊。说句难听的，就像淡漠老哥中所说，中外那么多思想，不同的先贤居然会达成某种程度上的共识，充分体现某个啊神秘物种的含金量啊。
-- [01:24:29] **speaker_0**：多补充一句，现在总算理解为什么有那么多嘲讽这个物种的英式美品笑话了啊，是啊，那那是这样的呀。
-- [01:24:39] **speaker_0**：懂吗？这嗯就英式的那种黑色幽默，有的时候也是也是挺地域的哎。
-- [01:24:50] **speaker_0**：你你没辙，你知道吧？就是man what can I say是吧？
-- [01:25:05] **speaker_0**：没有用，你不要想象有人能够满足他们不存在的任何国家的任何男人不存在任何可能性去满足他们。
-- [01:25:14] **speaker_0**：啊啊，现在把之前欠的图都给上一下是吗？真的。
-- [01:25:29] **speaker_0**：是吧有这个图太大了，慢脚那边肯定是上不去，慢脚那边限制图片大小。
-- [01:25:38] **speaker_0**：上一张真是有点太大了。哎，我要不请大家看看松鼠桂鱼是吧？洗洗眼。
-- [01:25:52] **speaker_0**：哎哎呀，就现在大家知道就是某某个群体的问题是世界性的了吧。
-- [01:26:05] **speaker_0**：啊，哎呀，这没办法，某个群体就是在全世界的口碑都是一样的。
-- [01:26:16] **speaker_0**：这种人那种群体是没有国籍的，知道吗？有这哎他居然发出来了，是吧发了。
-- [01:26:27] **speaker_0**：南半角这平台这边也发一下，或等会能太图太多，一个一个上，真的。
-- [01:26:42] **speaker_0**：你们现在看到一个社会讲道德是多重要啊吗？兄弟们啊，兄弟们，你们现在知道一个社会讲道德是多么重要的了吧？
-- [01:27:02] **speaker_0**：嗯，支付宝到账8慧。
-- [01:27:16] **speaker_0**：看看哎，等说这还没见货到全民枪战呢，哎，这是这是这不是。
-- [01:27:25] **speaker_0**：多数人其实大家都是日子人，懂吗哎？
-- [01:27:37] **speaker_0**：我把剩下这个图还都上完，等会嗯，我看看这个这是哪个老哥打的。
-- [01:27:46] **speaker_0**：88块8嗯，还有这个这这边能上。
-- [01:27:58] **speaker_0**：啊，给小给小小弟弟买棒棒糖吃啊，谢谢谢谢谢谢谢谢谢谢谢谢。嗯，我看看那女。
-- [01:28:11] **speaker_0**：有人说老A这个这种情况能好转吗？没打仗导致的没打世界大战导致的，感谢我哥大赏。老A刚才去看了IG和T one的比赛，让我有种绝望的感觉。老A麻烦放一下英雄联盟21年世界赛主题曲。
-- [01:28:26] **speaker_0**：欠的东西有点多，哎，这之前有好几个老哥点视频是吧？我我得。
-- [01:28:35] **speaker_0**：我得先把这个视频放一下，之前还有一个微信收款138元。嗯，我想把这个视频搜一下。
-- [01:28:44] **speaker_0**：21年主题曲是吧，英雄联盟总决赛主题曲。
-- [01:28:57] **speaker_0**：啊，不可阻挡是吧？啊，还还有好多把这个BV也发一下。
-- [01:29:09] **speaker_0**：其实就是大家看完这个视频是不是突然有一种释怀的感觉啊，原来真的不是我们中国男人的问题啊，是某个群体的问题。
-- [01:29:22] **speaker_0**：嗯嗯啊果然是这个太空王嗯。
-- [01:29:37] **speaker_0**：我看看啊啊，感谢老哥大赏，头一回上见啊，感谢老哥私信我是吧？我把你拉进群里，好吧，先把先把歌放一下吧。
-- [01:29:48] **speaker_0**：这囤回一堆东西哎。
-- [01:30:00] **speaker_0**：哎，就没办法，兄弟们没什么好办法，现在这个世界这个样子就是不打世界大战导致的。
-- [01:30:18] **speaker_0**：啊，感谢your yourouryourkennyyours skinny老哥打赏是吧？上见嗯，我拉老哥进群。
-- [01:30:32] **speaker_0**：啊，当然了，可是说不打世界大战导致的，打了以后能好多长时间呢？呃，这个看情况是吧？
-- [01:30:47] **speaker_0**：这个看情况，有的大概能好上个50年左右吧，短的也能好上个30年左右。
-- [01:30:56] **speaker_0**：哎哎。
-- [01:31:10] **speaker_0**：等一下啊，这还有视频没放，哎呦，这是差的有点多，等会儿给你我这边也开一下。
-- [01:31:30] **speaker_0**：哎，然后这个是也是老哥们点的视频是吧？我得放一下，怎么调整一下。
-- [01:31:45] **speaker_0**：有时候美国打赢冷战红利延续到80年代吧啊，冷战不是90年代才打赢的吗？这个老哥是不是有点问题？
-- [01:31:59] **speaker_0**：感谢老哥们送的人气票是吧？感谢老哥们感谢老哥。
-- [01:32:12] **speaker_0**：，然后放一下视频嗯，uction。
-- [01:32:23] **speaker_0**：啊啊，带是什么玩意儿，你怎么这么自私？
-- [01:32:34] **speaker_0**：这什么玩意儿什么玩意儿等一下。
-- [01:32:44] **speaker_0**：这是好多点的事情 Herbal therapist Dr. Blaine, all you've done this week is make your mom jokes. That is not true. Really, Na one other thing you've done.
-- [01:32:56] **speaker_0**：Your mom have to go to therapy I hate it because that's what your mom wants I guarantee you she would not want me going if she knew what kind of jokes my therapist was making Listen she makes me go to therapy too.
-- [01:33:09] **speaker_0**：I didn't like it at first but now I've actually started to enjoy it you enjoy it all you want I'm quitting your mom said if you quit she's going to quit your money.
-- [01:33:17] **speaker_0**：You know, I've got to be honest with you I did not expect you to come back today I'm only here because my mom made me come she made me do the same thing last night回一下.
-- [01:33:32] **speaker_0**：You know, I've got to be honest with you, I did not expect you to come back today I'm only here because my mom made me come就是我妈妈逼着我就是 my mom made me come.
-- [01:33:43] **speaker_0**：这个我我给大家翻译一下，就是made me come，它有一个就是就是它还有另一种意思，就是英语的双关语，就made me come就是让我达到。
-- [01:33:55] **speaker_0**：高潮和和和那个你搜着点，你啊就是m就是你妹那个单词换换成CUM多好，别别成就是。
-- [01:34:09] **speaker_0**：你没看啊，那懂的都懂是吧？啊，是因为我妈妈逼着我来，就是就是嗯she made me do thehe made me do the same thing last night。对，就是。
-- [01:34:23] **speaker_0**：Da, the money mom threatening not to send me is your money why can't you step up for once and let me quit therapy because you being in therapy makes your mom happy?
-- [01:34:32] **speaker_0**：You know what they say, happy white, happy life, oh my god dad, she's got you on a leash.
-- [01:34:43] **speaker_0**：I don't get it Why do you keep coming back Because my mom likes the idea of me in therapy and apparently my only purpose in life is to make her happy Well then you're talking to the right guy because I make your mom happy shuthu up Dr Blaine Hey that is no way to talk to your future step Bob I'm of talking about my mom Everything is always about her and you don't even know her name What are you talking about I know busty Barbara.
-- [01:35:08] **speaker_0**：啊，我不行了，啊，就是就是就是这里面野生我就是巴y。
-- [01:35:21] **speaker_0**：巴是什么呢？巴sity是一个词条，就是波，就是它翻译成波霸对不对呢？某种程度上也对，就是你们去某些黄黑网站搜的时候，你们可以搜basity。
-- [01:35:37] **speaker_0**：啊，巴斯提是是他就是她不完全是，但是她是指那种身材很丰满圆润的女性。但是。
-- [01:35:49] **speaker_0**：多数时候他们指巴ity的时候是是是是带有那种就是那种情节的，你懂吗啊？
-- [01:36:01] **speaker_0**：barber就是非常经典的，就是ho或者hoker女性的名字。 do mom's。
-- [01:36:10] **speaker_0**：You know how Dad, what's the name of the therapist you and mom go to Doctor Victor Blaine, Oh no what I think mom might be sleeping with him dling.
-- [01:36:21] **speaker_0**：36 years she couldn't hide something like that for me, which is why she let me watch please make your jokes today.
-- [01:36:30] **speaker_0**：I'll throw what am I supposed to do for the next just sit in that chair and don't make a sound That's usually your dad's job You you agree with me.
-- [01:36:43] **speaker_0**：行哎，这这也也也是也是他妈够地域的这个。
-- [01:36:55] **speaker_0**：哎，行了，就就是这个这个你们双双关语太多了。
-- [01:37:04] **speaker_0**：有时候太变态了，你还是不太理解美国人啊，感谢这个哥打赏。刚刚想到过去两年更地狱的事儿，一是过去总觉得明朝成都理学太泯灭人性，现在惊讶该不会明代的环境到了一个地步，所以才出现这种东西吗？对呀，那你以为呢？
-- [01:37:23] **speaker_0**：二是我只讲一半，大伙都知道我说的是哪个段子，只有骗子才能满足他们的要求。最后这个和主题没啥关系，那轻松点儿问题。想请教一下老魏，现在西雅图的海边除了海鸥有没有海豹之类的动物，那些动物亲人嘛？有海豹，一般都会让那种环保组织驱离回海海海里面。
-- [01:37:41] **speaker_0**：新人呃也跟小仙女差不多，你手里有鱼就那什么嗯。
-- [01:37:50] **speaker_0**：感谢J老哥打赏是吧？读一下老A即使是从功利性判断，他高道德水平的存在，也是对族群有利的。是这样的，因为道德会降低族群内部的互信难度，减少合作成本。而人类生产力发展提高的基石，只要上过初中都知道是分工合作。因此，在族群之间的竞争比的就是谁能爆出最大的生产力，谁内部合作效率高，成本最低，因此，良好的道德状况对族群发展是必要的。历史上低道德水平的族群不断被淘汰，就是名正强敌对我们的道德破坏本质上是对我们族群战争潜力的破坏。但是这玩意儿就跟病毒一样，你白皮也不对这玩意儿免疫。是啊，。
-- [01:38:30] **speaker_0**：唉。
-- [01:38:44] **speaker_0**：真的哎，有人说低道德。
-- [01:38:54] **speaker_0**：道德还是要讲的，不讲道德是不行的，兄弟们一定要讲道德哎。
-- [01:39:04] **speaker_0**：比说道德老美道德滑破，老美其实以前也不这样，你要明白他是个宗教的清教徒国家，他以前也不是这样的。
-- [01:39:14] **speaker_0**：，真的就啊你懂吗？
-- [01:39:26] **speaker_0**：哎呀，有时候嬉皮士运动是不是转折点？
-- [01:39:40] **speaker_0**：嗯，其实转折得比那个早二战就是一战二战白羽毛，就已经这样了吧。
-- [01:39:49] **speaker_0**：比人说候黑手背大锅啊，那那倒那倒是另一回事了。嗯，我我把这个歌放完。
-- [01:40:01] **speaker_0**：啊，这这把这几个歌放了。哎，比人说欧美这个状态是不是我们的未来啊，放心吧，是不会是我们的未来的。
-- [01:40:14] **speaker_0**：我们建立的社会，最后一定是以我们的道德标准为主的，懂吗？就是一定要恢复某种程度上的道德体系。
-- [01:40:28] **speaker_0**：不可能随着他们的那个指挥棒动的，否则太夯了，你们知道吗？我我真的是很难想象。
-- [01:40:38] **speaker_0**：一个完全由西方的道德话语体系构建的世界，懂吗？对我们是绝对一点好处没有的。
-- [01:41:02] **speaker_0**：唉，都说了，不要极端，不要极端，就是别他妈一说道德就滑坡到了封建社会。
-- [01:41:14] **speaker_0**：然后就什么都是现代法制队，他妈学西方那一套都他妈学傻了哎呀。
-- [01:41:30] **speaker_0**：绝对不能学的。好吧，啊，感谢腾格戴斯老哥打赏是吧？很合理很合理分享一些传统知识。
-- [01:41:47] **speaker_0**：哎呀，这又是什么呀？我看一下这这又是什么逆天活。
-- [01:42:03] **speaker_0**：真服了，哎，哎呦，我天。
-- [01:42:17] **speaker_0**：是BDM改编大东北是我的家乡。对对吧？现在现在现在除了小歪猫，还有一群傻逼，喜欢喜欢改编这种歌。然后这些傻逼把这些歌改编出来以后，我的逆天水友就会点。
-- [01:42:32] **speaker_0**：啊，真的然最近音乐太带派了，还行吧。
-- [01:42:42] **speaker_0**：嗯，有说有时北欧是不是也也是和那什么差不多啊，算是吧？啊，感谢J老哥打赏，探求道德对社会的作用就离不开讨论什么是爱，所以强行相关点一首大力王0.65倍速版what is love.
-- [01:43:02] **speaker_0**：嗯，老哥，你给我发B站链接吧啊，这是OK还行，能点开，我还以为不是B站链接，点不开。
-- [01:43:16] **speaker_0**：就大力王这个歌也是很难蹦。
-- [01:43:29] **speaker_0**：怎么这么久？行，无所谓了。
-- [01:43:38] **speaker_0**：有时现在放的BGM是什么啊？凯尔特史是大大北境，我的家乡，你是就是东北于姐版的。
-- [01:43:54] **speaker_0**：有的事情很难懂，正常正常，有时候词编的很好啊，确实。
-- [01:44:06] **speaker_0**：对，本质上还是代派小曲儿是哎。
-- [01:44:22] **speaker_0**：我说只有只有二逼花钱连麦，哎，那你可能不懂是吧哎。
-- [01:44:35] **speaker_0**：等下我把这个东西给大家看一眼，就是我给大家画点图，怎么说呢？
-- [01:44:44] **speaker_0**：看一下啊，那个啊我给大家看个比较点的。
-- [01:44:55] **speaker_0**：这个图啊，我为什么要放这张图呢？
-- [01:45:08] **speaker_0**：就是我要说的是什么？就是在美国这个国家真正需要帮助的底层女性，其实从来没有因为小仙女搞的这套东西而得到任何好处。
-- [01:45:22] **speaker_0**：就是小有人说我是不是反女权，反反就是恨女人，我从来不恨女人，我也不反女权，我也不反对平权。这个世界上有很多很惨的女人，尤其是在美国这种国家，完全不讲究什么道德，是吧？
-- [01:45:42] **speaker_0**：这种完完全全的禽兽夷敌之国，嗯，懂吗？就是。
-- [01:45:56] **speaker_0**：就是真正悲惨的女性，你们刚才看那个视频了吧，来，我们看一下你觉得这种女人的利益和权益会被那些小仙女们讨论吗？
-- [01:46:12] **speaker_0**：啊，也不是完全不会讨论，他们只会吃人血馒头。他们其实并不关心这种最底层的女性的生存境遇。
-- [01:46:23] **speaker_0**：懂吗？但是那群女拳小仙女打拳的最喜欢借着这种议题是吧？来给自己谋利，就是自己一身毛病。
-- [01:46:36] **speaker_0**：啊，就是利用他人的苦难来给自己争夺争权夺利。就是。
-- [01:46:44] **speaker_0**：这种新闻或者说这种事儿在欧美其实经常发生，欧美的小仙女最喜欢借着这种议题发挥了。
-- [01:46:59] **speaker_0**：，懂吗？就说啊，一生说女性被压迫，你们男人要补偿女性。其实那些所谓的补偿，从来都到不了这些最底层的女性啊。
-- [01:47:12] **speaker_0**：手里从来都到不了，兄弟们，懂吗？？
-- [01:47:22] **speaker_0**：比如说对，拿别人的苦难给自己谋利啊，你说让他们花钱，花时间，花人力，真正的去保护这些女流浪汉，那他们是不花钱的。
-- [01:47:38] **speaker_0**：竹马，说。
-- [01:47:52] **speaker_0**：有最底层女性起码有人可怜男性呢。对呀，我还没讲呢，你们想一想那些小仙女吧。
-- [01:48:01] **speaker_0**：对吧成天张牙舞爪的拿最底层的女性去事来给自己谋地，男性就更惨了，你看都看不见。
-- [01:48:12] **speaker_0**：男性男性流浪汉死在大街上，其实是没人管的。有时候男底层男性是纯耗财呃。
-- [01:48:24] **speaker_0**：他们有的甚至变成流浪汉之前都不是底层。你们一定要知道，在美国这种国家，流浪汉他在变成流浪汉之前，他不一定是吧，比你差，甚至有的比你还好啊，只不过会经常因为小仙女儿变成流浪汉。
-- [01:48:48] **speaker_0**：懂吗？这是很常见的。
-- [01:49:02] **speaker_0**：有人说有人说没人管，也也不至于完全没人管啊。本人我会管是吧？我会拼高达是吧？
-- [01:49:14] **speaker_0**：啊，如果底层那种每在美国底层流浩汉男性如果寄了的话，一般会送到我们这来是吧？我们给办葬礼啊，也会给他相对体面的送走。
-- [01:49:27] **speaker_0**：找个牧师啊，找块墓地啊，做个葬底啊，就是在做一切之前，只不过需要用他的身尸体做点实验啥的。
-- [01:49:38] **speaker_0**：啊，也不能说就完全没人关心嘛，我会关心的是吧？孩子们我会守护大家的是吧？
-- [01:49:48] **speaker_0**：唉，以说这算不算最后的体面，算算怎么不算呢？还行吧。
-- [01:50:08] **speaker_0**：就是除了我的算值比较低以外，其他的都还好。啊，比是不讲道德的下场，有说这是讲道德的下场。
-- [01:50:27] **speaker_0**：对吧就是我们还稍微讲点道德啊，就是还能把他们发送走。
-- [01:50:37] **speaker_0**：维持着心里最后一点慈悲嗯，有人说是说感激这哥布林出师长。
-- [01:50:50] **speaker_0**：不用外说不用外说，好吧嗯。
-- [01:51:02] **speaker_0**：大帝王这小曲这总算放完啊啊，确实有点难崩，怨天堂没有啊，是。
-- [01:51:13] **speaker_0**：哎，愿天堂没有吧啊。
-- [01:51:23] **speaker_0**：来吧，兄弟们，我看一下啊嗯哎差不多啊，行，行，就差不多可以讲正题了，是吧？
-- [01:51:35] **speaker_0**：啊，这啊这还有个视频也没放啊，把这个视频放啊，把这个放完，咱们就讲正题啊。今天啊群英荟萃，兄弟们，今天很精彩啊。
-- [01:51:52] **speaker_0**：哎，这真的今今天真的是群英荟萃。有时候得我看这不和叉叉N爆啊。
-- [01:52:02] **speaker_0**：呃，很难。
-- [01:52:05] **speaker_0**：很难，你看美军那个你看新罗马天兵那个状态，欠下是吧？也不闹，饭都吃不起，也不闹。就是美国人的温，就是新罗马人的温顺程度是远远超乎你的想象的，有枪也不造反。
-- [01:52:24] **speaker_0**：或者说现代社会，你就有两把破枪就想造反，是不是有一点懂吗？这就有点搞笑，多多少少沾点搞笑。好吧，有把枪就想造反，你以为是古代社会呢？
-- [01:52:41] **speaker_0**：懂吗？维多利亚严选人种跟你闹着玩呢，这可是能从一工，这可是能够发动第一次工业革命的种族。
-- [01:52:51] **speaker_0**：嗯你以为啊是吗哎。
-- [01:53:01] **speaker_0**：真的。
-- [01:53:11] **speaker_0**：你别断打取义了行吗？就每一次说到这个我都觉得好笑，就是。各位要明白，你有枪，你的口径顶多也就是上到要包括有可能有一些人有12.7或者什么的，你这些东西在正规局面前，你都我都不好说，你就你除了能打穿一点悍马，你还能干到啊，人家你看那个AATF啊，要剿剿匪的时候，人家可能是能摇来主战坦客的。你觉得你那玩意儿你能打得赢。
-- [01:53:47] **speaker_0**：德报怨，何以报德，以之报怨，以德报德。可怜之人必有可恨之处。可恨之人必有可悲之苦，无孝有善无好为大，顺不告而取为无后也。家和万事兴，父爱则母敬，母敬则子安，子安则家和家和万事兴，富懒则母苦，母苦则子惧，子惧则家衰，家衰拜三代。百善孝为先，万恶淫为首，百善孝为先，论心不论计，论计寒门无孝子，万恶淫为首，论计不论心，论心世上无完人啊。筷子拿得高，财善远。
-- [01:54:22] **speaker_0**：筷子拿的高才能夹得远，男带观音女带佛，那是男带观音，女带福，你一点文化都没有话。
-- [01:54:33] **speaker_0**：这种被误读的东西还还很多呢，尤其是喜欢被一些小仙女拿来用，是吧？
-- [01:54:42] **speaker_0**：正常了，看的我都红昏了，哎，真的哎。
-- [01:54:52] **speaker_0**：行了，等会啊，我放一下本直播间经典小曲是吧？哎来，我我把本直播间经典小曲放一放。
-- [01:55:07] **speaker_0**：啊，有人说本直播间经典小曲是是小白猫吗？啊，并不啊，本直播间经典小曲啊，另另另有另有其人。
-- [01:55:23] **speaker_0**：啊，啊，这才是本直播间的小曲，是吧？
-- [01:55:38] **speaker_0**：。
-- [01:55:49] **speaker_0**：有人说这歌叫就叫看猫头鹰嘛？对，这歌就叫看猫头鹰啊，我上个厕所回头咱们讲正题，好吧啊，我上个厕所。
-- [01:56:04] **speaker_0**：I can.
-- [01:56:16] **speaker_0**：We know more I get about the we know more about.
-- [01:56:48] **speaker_0**：哎呀，回来了，比说这歌什么语啊，这歌是柬埔寨语，就是高棉语，高棉化。
-- [01:57:04] **speaker_0**：好吧？嗯，这这歌是高眠宇。
-- [01:57:21] **speaker_0**：就是柬埔寨的官方语言，当然他唱的是变调嗯嗯。
-- [01:57:40] **speaker_0**：啊，好好好，哎呀，讲正题啊，今天呢啊也是也是高血压的一天是吧？
-- [01:57:49] **speaker_0**：来吧，兄弟们啊，今哎今今天今天也是也是排行榜环节。
-- [01:57:59] **speaker_0**：是吧就是但是今天的血压呢比平时会高一点，好吧啊，就是高那么一N内啊，高那么一N内是吧？请放宽心是吧？
-- [01:58:11] **speaker_0**：啊，就是我起名字呢都不是瞎起的是吧？我排榜呢一般都是很有原则的啊，今天也是天梯赛是吧？啊，今天是德比啊，德德比大师赛。
-- [01:58:27] **speaker_0**：好吧，啊，排什么？今天排的是欧美的这些怎么说呢？最新的男女关系变化是吧啊。
-- [01:58:40] **speaker_0**：就是比较逆天的啊，就是局势已经和两年前我了解到的美国婚恋市场啊，相亲婚恋啊、结婚交友市场完全不一样了啊，美国女性美性就是就是我标题是吧测试服的崩溃与回滚啊。
-- [01:59:00] **speaker_0**：就是美测符是吧？就是我们说的这个新罗马测试符已经是进化到了全新的版本啊，或者说。
-- [01:59:11] **speaker_0**：它是一种很古怪的版本，它同时回滚的一部分。同时呢有一部分崩溃重组了，崩溃重组的这部分和回滚的这部分融合在一起，形成了一种非常畸形的模式。这种畸形的模式呢？怎么说呢？
-- [01:59:32] **speaker_0**：就是给我看的高血压了啊，就你看看我这个排榜的名字是吧啊啊，血就是你你你看看我这个名字起的。
-- [01:59:44] **speaker_0**：多多有水平啊，明白吧？啊，分别是几个级别，就是最最最低档叫血压高高止不住是吧？第二档叫山高巨顶，血如著啊。
-- [02:00:01] **speaker_0**：第三集叫三血霜干案脑干柱是吧？第四集叫头顶尖尖爱问物啊，最高一级叫非是人间等闲物。
-- [02:00:13] **speaker_0**：啊，就是请尽情欣赏美侧福的逆天创造性，懂吗？啊，非非常的非常的具有创造性。
-- [02:00:24] **speaker_0**：有时候高血压居然是基本操作吗？对的，就是里面最轻的一个操作都能让你高血压。
-- [02:00:33] **speaker_0**：啊，哪弄这么多逆天的排名名称，我自己我自己琢磨的是吧？
-- [02:00:42] **speaker_0**：都是我自个儿琢磨的啊，你们放心好啊，绝对精彩。妈来吧，我们先排一下。
-- [02:00:52] **speaker_0**：嗯啊，感谢金江区区来老哥打赏啊，能不能点首歌挥亲2D版啊，不行，这个太长了，别放了是吧？
-- [02:01:03] **speaker_0**：啊，这这这这这这个这歌有点太疼了，算了算了算了啊。
-- [02:01:10] **speaker_0**：对，有人说这些都是你在美国现行了解的吗？对对的对的对的，就是我之前吧就是参考目标呢有点有点问题。我还是就是我说过了，我之前的参考目标呢都是黑哥银趴哥这种。
-- [02:01:28] **speaker_0**：他们两个最大的问题是这两个，一个是富二代，一个是富四代，很有钱。所以说对于他们来讲，他们很早就不和女人讲AAA了，也不和女人讲感情，就只走肉体，不走心。
-- [02:01:45] **speaker_0**：你能懂我的意思不？就是他们其实并不处在一个美国婚宴市场的正常状态。从他们两个这边了解的呢，虽然也逆天，但是是另一种风味的逆天，就是不太贴合实际。
-- [02:02:04] **speaker_0**：上周末呢就是周天的时候，就是这银趴哥终于是休息了呀，就是和银趴哥聊天啊，不是和银趴哥，就是播音哥，他才是美国标准的中产中产良家子，白人良家子是吧？他的话他遇见的女人和他参加的相亲和约会，才是相对而言比较有代表性的。
-- [02:02:29] **speaker_0**：然后他跟我讲了一下，他最近的这个是就是这个约会生活。我就发现哇，这个美国这个版本好像是他妈的和两年前两年半之前完全不一样了呀。
-- [02:02:47] **speaker_0**：啊，就是已经不是那个传统意义上。
-- [02:02:53] **speaker_0**：美国女权或者LGBT就是白左版本的那种啊，男人行，我们女人也行是吧？我们女人也是拥有完整独立人格那种白左叙事了。现在整个就是版本回滚，就是先经历叶文崩溃，然后崩溃完之后，有人想回滚。对的，就是现在美国目前这个经济政治文化上面，都是全面崩盘的。所以它回滚实际上也回滚不到黄金年代那个程度，崩溃呢也重组成了一个畸形的怪物。
-- [02:03:34] **speaker_0**：他有一点类似于什么呢？就是。
-- [02:03:38] **speaker_0**：大家见过亡灵憎物这种东西吗？它是由不很多尸块拼接出来的反仿生反生之人。就是你说他是死人吗？不是他是活的，最起码这具肉体是活的，但你说他是个活人吗？他也不完全是个活人，他的整个肉体是东一块西一块崩溃过的碎片化的尸体拼成了这么个东西。
-- [02:04:05] **speaker_0**：啊，缝合怪对的对的，他是个缝合怪，而且他缝的很不美观，很畸形，就是强行说自己活着。
-- [02:04:16] **speaker_0**：啊，就是有一种有一种非常非常就是让人头皮发麻发炸的美感啊。
-- [02:04:25] **speaker_0**：就嗯哎就嗯你说这不是我专业领域了吗？
-- [02:04:39] **speaker_0**：种程度上算吧是吧？来，我们一个一个讲，我们先讲就是血压高高止不住，就是tra traditional wife。
-- [02:04:50] **speaker_0**：什么叫traditional wife呢？我这里没加引号，但是我就在这儿说一下，实际上这个东西是应该是加引号的。
-- [02:05:00] **speaker_0**：什么叫traditional wife呢？我先跟大家描述一下，什么才是美国人认知当中的traditional wife。
-- [02:05:10] **speaker_0**：就是经历了一战二战呃，一战歼战期二战和以后的就是baby boomer潮的这些家庭。
-- [02:05:22] **speaker_0**：那个黄金年代，工业化蓬勃发展的美国的家庭，里面那种勤俭持家，落落大方，有能力养孩子，也有能力工作的美国坚强的独立女性。
-- [02:05:38] **speaker_0**：那才是美国人意义上的traditional wife，就是它其实和我们传统价值观中，就是勤俭持家，忙内忙外，上得厅堂下得厨房的好老婆，其实是差不多的。
-- [02:05:54] **speaker_0**：是他在家内部能够勤俭持家，把一个家维系好是吧？在外面也能维系好一个男人的面子，也能维系好家庭关系。
-- [02:06:07] **speaker_0**：就是黄金年代三四十年代、四五十年代、五六十年代，那个年代的女性就是美国黄金年代出生并培养和长大的女人。
-- [02:06:22] **speaker_0**：啊，那个时候的女人就是所谓美国标准意义上的traditional wife，就是传统女人，传统夫妻，叫传统老婆。
-- [02:06:35] **speaker_0**：啊，就是现在美国由于经济形势极大的崩溃，意识形态极大的崩溃，教育极大的崩溃。
-- [02:06:48] **speaker_0**：美国今天实际上经济下行中已经走的非常惨了，大家看没看过毛仗的那一期直播和录播，就是美国下休就业人员的那个事儿，就是从91.1万下修到0，还记得不？
-- [02:07:07] **speaker_0**：啊，就是羞没了，就是美国的就业形式已经崩到不能再崩了。那么在这个市场里面，谁最先遭殃就是女性。
-- [02:07:19] **speaker_0**：竞争能力不大行，，就优先被提出就业市场了。
-- [02:07:26] **speaker_0**：这一部分女人啊，尤其是美国这些成天把白左女权LGBT后现代觉醒挂在嘴上的这些美国女人，突然间发现自己这套逻辑讲不动啊。
-- [02:07:42] **speaker_0**：啊，就是那句话是对的，就是经济基础决定上层建筑啊，兜里有钱的时候，他怎么白活都行，怎么说都行，没钱了。
-- [02:07:55] **speaker_0**：没钱了，那怎么办？凉拌啊，这什么意思呢？啊，我们可就是C可以和解吗？我们能不能回滚版本，我不想当独立女性了啊，独立女性太难了，是吧？大女主人设有点维系不下去了，我们能不能回到黄金年代，让我当个traditional wife，当个全职主妇，就是我只负责美美的是吧？你负责挣钱好不好？
-- [02:08:29] **speaker_0**：懂吗？有的老哥说，此时此刻对，此时此刻，现在美国女人掉头了，就是我现在想当个好女人行不行，是吧？就是您您看我还有机会吗？就是那种感觉，你知道吧？
-- [02:08:48] **speaker_0**：啊，就是就是我们可以和解吗啊。
-- [02:08:58] **speaker_0**：我现在不想当独立女性了是吧？当独立女性太难了，太贵了啊。我现在想当传统女人了是吧？啊，我给你生孩子行不行？
-- [02:09:11] **speaker_0**：啊，我负责给你生孩子是吧，你负责挣钱好不好？比说还能和解吗？
-- [02:09:22] **speaker_0**：你目前反正是这么个版本了，就是经济形势太差了，是形态，白左全面溃败，白鼬，或者说极端右翼，传统保守思维，如如狂风一般席卷而来。
-- [02:09:39] **speaker_0**：他没辙了他没辙了，就是现在就是我现在想当个好人。
-- [02:09:49] **speaker_0**：嗯，比人说那能成吗？还是能成的，就是也不是没有男人不渴望传统家庭。
-- [02:10:03] **speaker_0**：如果他真的愿意好好的当个家庭主妇，其实也算好，只不过就是有点心口不一，是吧？
-- [02:10:13] **speaker_0**：啊，就是他已经是最好的了，就是你觉得很让你高血压，很让你难受吗？但是你放心，这已经是美国这群女人里面最好的了。
-- [02:10:27] **speaker_0**：啊。
-- [02:10:29] **speaker_0**：感谢似水流年，老哥打赏，有没有线下贤妻良母，一上网就哈气，拳法依旧老爸的那种。有有老哥太对了是吧？你你简直就是我最好的捧哏是吧？啊，感觉老哥已经有健身老哥的功力了，就下一个叫啊就三高巨顶血如注，叫加击啊。
-- [02:10:51] **speaker_0**：就是这部分女人，她和上一个部分女人有什么区别呢？就是她们仍然是百左意识形态入脑那一套，就是我之前说的。
-- [02:11:04] **speaker_0**：我虽然在现实生活中，我现在想当传统家庭主妇了，但是我嘴上不能说，而且这种女人是坚决不接受荡妇羞辱的。
-- [02:11:16] **speaker_0**：啊，或者说他们叫反荡复羞辱，什么意思呢？就是他把自己当鸡，他把自己当鸡，为什么呢？就是他认为我实际上是在和这个男人做生意。
-- [02:11:34] **speaker_0**：就是我用我的下半身去换他供养我，只不过我们签的是长期合同。
-- [02:11:43] **speaker_0**：啊，我不是没工作，我们是平等的，是他在用钱和食物换我的下半身。
-- [02:11:54] **speaker_0**：就是你可以理解为又当又立啊，对吧？他唯一的问题就是我们两个之间有有婚书，有有纸协议。
-- [02:12:11] **speaker_0**：懂吗？就是就是在他看来，家庭主妇无非就是一份长期的啊就是。
-- [02:12:20] **speaker_0**：就是嫖娼协议，懂吗？有人说他自己把自己当机，这是不是不太对？美国啃魔怔的白族女人是从来不觉得当机有什么不对的。
-- [02:12:31] **speaker_0**：我跟大家反复的说过，这一派女人的一个核心论点，就是你的手难道比我的下半身高贵吗？你们男人可以用手创造价值，我们女人就可以用下半身创造价值。
-- [02:12:46] **speaker_0**：对吧你们男人不让我们这么干，就是歧视女性，打压女性，对吗？只讲法律嘛，只讲国辑嘛，不讲道德吗？
-- [02:12:59] **speaker_0**：吧如果你抛开道德，那就一定是下半身和手没区别，都是自都是天然形成的器官的一部分，凭什么不能挣钱呢？
-- [02:13:13] **speaker_0**：对吧？感谢风吹剑圣媒体热山老哥打赏啊，说白了就是破鞋啊。对，差不多对的啊，你看剑圣老哥永远能送上最最适宜的图片，是吧？
-- [02:13:26] **speaker_0**：啊，就这类女性她嘴硬，就就就像似水流年老哥说的，就是她嘴上可从来不认识我。
-- [02:13:36] **speaker_0**：他嘴上是不认输的，就是他说啊我有一份工作啊，我不是没工作啊，我不是需要男人供养我，我和男人就是啊用用下半身来换他的供养。
-- [02:13:52] **speaker_0**：啊，我们这是交易，我是有一份工作的，我的工作就是给男人提供那什么，无非就是我只给一个男人提供有长期合同。
-- [02:14:09] **speaker_0**：啊，就是非常的逆天，就是不管现实生活中怎么当娇妻啊，在互联网上嘴绝对不能软。
-- [02:14:22] **speaker_0**：啊，嘴是绝对不软的啊，一说就是我是独仍然维持着那副我是独立女性的派头是吧？啊，无非我的工作是用下半身进行的，无非我服务的对象只有一个人罢了。
-- [02:14:44] **speaker_0**：啊，他们还很骄傲，就是这种把自己类比于妓女的状态，他们还很骄傲，为什么？因为没有道德。
-- [02:14:53] **speaker_0**：没有道德，就是下半身和双手是一样的是吧？都能创造价值，对吗？就是只盘只盘经济逻辑只盘逻辑是吧？只盘生物学啊，不盘道德，那就这样呗，是吧？
-- [02:15:09] **speaker_0**：那这就是让你们看看只盘逻辑和法律是吧？只盘只盘经济不讲道德。
-- [02:15:19] **speaker_0**：啊，感谢这宝哥大赏点个图，看看方不方便上，不能话，放群里就行。以及那个3080不会是我想的那个吧。
-- [02:15:28] **speaker_0**：啊，对老哥，就是你想那个，那我建议改成叉480，相信懂图图吧拉基佬嘛一定能懂哎。
-- [02:15:38] **speaker_0**：就是说白了就是三就是加级是比谁呢？是比那个是比最后一集就是嘴硬啊，就是虽然自己已经是家庭主妇了。
-- [02:15:51] **speaker_0**：但是嘴上一定不能怂啊，在互联网上战斗力超群，对吧啊。
-- [02:15:59] **speaker_0**：最起码在ins或者小红书或者tktok上面和自己的粉丝共振的时候，嘴一定不能软啊啊，我这就是工作是吧？我只不过是用下半身工作罢了。
-- [02:16:13] **speaker_0**：嗯，很逆天的啊。
-- [02:16:27] **speaker_0**：有人时候那还那还有救吗？没没什么救。我告诉你，因为他们已经是完全不讲道德的形态了。
-- [02:16:38] **speaker_0**：啊，他们就跟你讲法律是吧？那哎。
-- [02:16:48] **speaker_0**：没救，就是兄弟们，这才是三高血三高三高巨顶血如注，这才是倒数第二个等级。
-- [02:16:58] **speaker_0**：吧就是你你觉得完全不是人了是吧？其实我跟你说，在这个体系里面还算好，就是在最起码在目前的美国女人的三观里面算是好的。最起码她还在老老实实的当家庭主妇，只不过嘴硬而已。
-- [02:17:16] **speaker_0**：有说还有高手，你放心，我从来不爱说，后面全都是高手。感谢似水流年老哥打赏。上图，我觉得这图很符合他们的逻辑。
-- [02:17:31] **speaker_0**：我真的我排东西都是讲国际的，我的老粉应该都知道，我从来不乱排的，我从来不乱排的。
-- [02:17:41] **speaker_0**：就是当你觉得很逆天的时候，你放心，后面有的是逆天东西啊。
-- [02:17:54] **speaker_0**：对，就是你别看后两党逆天，他们好歹是承认现实的，就是你别管我嘴上怎么说，或者或者是行动上怎么做。
-- [02:18:06] **speaker_0**：我确实是当家我确实是结婚了，我确实是有意纸合约，我确实是当家庭主妇了啊。
-- [02:18:16] **speaker_0**：那有人说那这个回滚不是回滚成功了嘛，对吧？后面两档不管嘴硬还是嘴不硬的这不还是回去当家庭主妇吗？
-- [02:18:27] **speaker_0**：但是这就是我说的，就是他回滚了，但是滚不成。他和崩溃以后的美国女人意识形态混合成了新的东西。
-- [02:18:37] **speaker_0**：你不要忘了，我刚才说过，美国黄金年代的女性是能勤俭持家的，就是首先。
-- [02:18:48] **speaker_0**：最地域的黄金年代的美国女性是读书写字识字的，最起码他们会数学，他们知道哪家超市有便宜东西卖，哪家超市有新鲜产品，就是她懂数学，明白吗？现代的美国女人蠢逼美国女人，她们是不懂数学的。
-- [02:19:11] **speaker_0**：小九九都不会算，他们是做不到传统真正意义上贤妻良母的勤俭持家的，能懂我的意思吗？
-- [02:19:20] **speaker_0**：就是他不是他回滚了，但是回滚的不是很滚，不是很成功。首先他做不到勤俭持家，数学不好。
-- [02:19:31] **speaker_0**：脑子一热，冲动消费，这种就是所谓的现代意义上打引号的传统传统老婆，他们喜欢干嘛呢？
-- [02:19:43] **speaker_0**：就是不管钱啊，就是他我当传统主妇了，但是我留肩膀，我并不担责任，我不拿钱。
-- [02:19:57] **speaker_0**：有人说他们不管钱，对，不管钱，就是全都是你们男人的责任。我只负责每每花钱，就是我不管钱。
-- [02:20:09] **speaker_0**：就是钱出问题了，都是你们男人的责任。我只是在我想花钱的时候管男人要。至于这个家庭具体什么经济情况，我不在乎。
-- [02:20:25] **speaker_0**：懂吗？她和以前那种优秀的美国妇女，传统妇传统妇女是是完完全全的两回事儿，她只是有这么个形式而已。
-- [02:20:38] **speaker_0**：懂吗？你真让他管账，他不管他两手一伸，我就会花钱，我不会管账，对吧？你让我计划整个月怎么花这个钱，我计划不来。
-- [02:20:51] **speaker_0**：啊，比说这也算家庭吗？这都算好的，这都算好的。
-- [02:21:02] **speaker_0**：你说怎么跟我们这边那么像，有没有一种可能是我们像他们嗯。
-- [02:21:10] **speaker_0**：感谢似水东江狗哥大赏。老魏这样一说，我突然理解了那些独自拉扯好几个孩子，黑人老妈更符合传统价值观，精打细算采购生活物资喂养孩子。对呀，就是他是不就是我反复的强调，很多白人女性是不如黑人那种背个妈妈的。
-- [02:21:29] **speaker_0**：他完全不如，有人说那男人不就是双手一摊背过气去，你以为？
-- [02:21:39] **speaker_0**：吧你以为啊就是播音哥的上一个同居女友就是差不多这样的。
-- [02:21:52] **speaker_0**：啊，不管账，两个人一起生活，从来没有规划过3天以上的消费啊，弄得播音哥心焦地瘁，最后分手啊。
-- [02:22:08] **speaker_0**：分手没办法，这日子过不下去了啊，同居就已经开始以老婆自称了是吧？啊，花男人钱成天在家里。
-- [02:22:20] **speaker_0**：啊，管账不管账是吗？我不会算数是吧？算数这种说活都是你们男人的。
-- [02:22:31] **speaker_0**：结果就弄得我每次见到播音哥，他都在那费心费力的在那算账。有人时候那白女不就是纯赔钱货，也不至于。
-- [02:22:51] **speaker_0**：也也不至于啊，有就说候那下一个等级啊，就是雪霜干烂脑干触啊，就是。
-- [02:23:01] **speaker_0**：哎，就是老牛要吃回头草啊，这个这个这个这个有点不齐是吧？那个。
-- [02:23:11] **speaker_0**：这个这个截图这这个这个图上不了太大的图，就是雪生刚刚都是种老牛要吃回头草，什么叫老牛要吃回头草呢？
-- [02:23:21] **speaker_0**：就是他比前两个血压高。
-- [02:23:29] **speaker_0**：啊，他血压高，他高在哪儿呢？他想老牛回头吃嫩草，什么意思呢？就是他本来是个家庭妇女，他本来是个traditional传统女性老婆。
-- [02:23:44] **speaker_0**：啊，这就要不得不提到你的奥黑啊，是吧？你的黑发老是吧？吴圣枪游翔吴仙儿同志是吧？他开始搞什么白左女权叙事，搞什么LGBT搞什么第EI是吧？搞什么女性他地量好了。
-- [02:24:04] **speaker_0**：这下好啊啊，就是真的就是有一大批美国本来是传统女性的女人心野了。
-- [02:24:14] **speaker_0**：什么意思呢？就是他本来家庭主妇当的好好的，突然有一天觉醒了啊，就跟DNF似的，我觉醒了，也不知道刻没刻，就是小晶体，反正是觉醒了，跟自己老公说，我要去追寻自我了。
-- [02:24:32] **speaker_0**：然后把戒指留给老公，写张书，就自己就卷着全部破盖卷就跑了，或者是直接跟老公离婚。
-- [02:24:43] **speaker_0**：懂吗？就是我觉醒了，我要当独独地女性行了啊，我要美美的那个活一辈子，是吧？
-- [02:24:52] **speaker_0**：我要独立自主了，你要知道啊，当年在美国经济还不这样的时候。
-- [02:25:06] **speaker_0**：就是最起码这一说得是10年往后就是十几十几年前了。奥黑上台的时候，那会儿美国经济虽然也不咋地，但最起码看着还可以，就是他这么玩行不行呢？行。
-- [02:25:23] **speaker_0**：就是追求自我。当时美国所有的媒体，所有的博主，所有的政治人物、网红都告诉你，你应该独立自主，你要当大女主，你要美美的活一辈子啊，所谓的不能让男人束缚自己啊，我要自由，你要给我自由，你不给我自由，就是压迫。
-- [02:25:50] **speaker_0**：跑了跑了啊，这一跑啊，就是十多年，嘻一跑就是十多年。好了。
-- [02:26:03] **speaker_0**：到了202几年了，新冠疫后疫情时期了。
-- [02:26:09] **speaker_0**：经济也崩了是吧？就业也崩了，呃，文化舆论也退潮了，白又汹汹袭来。他不是怕他不是认错了，他是知道自己要死了，是吧？
-- [02:26:24] **speaker_0**：感谢ZZP老哥打赏啊。黄金上世20世纪上半月，美国女性一个重要职业computer，这是琼中夯中行给大家洗洗眼。黄金时代，美国女性能用笔头和脑细胞让火箭飞起来，也能居家煮饭。
-- [02:26:41] **speaker_0**：啊，是的，那是黄金年代的美国女人啊，真正上真正真正意义上的女超人啊。
-- [02:26:52] **speaker_0**：他们玩个十多年，自由个十多年，支付宝到账30元，现在想什么呢？我玩不起了。
-- [02:27:02] **speaker_0**：思潮退去了，自己岁数也大了，荷尔蒙也下降了，玩不动了，我就是也是稀可以和解吗？我还想回来当家庭主妇行不行？
-- [02:27:20] **speaker_0**：就是等于是自己出去玩个十多年，现在想回来，你们懂吗？嗯。
-- [02:27:32] **speaker_0**：就是感谢我哥打赏，这是又没写名字是吗？啊啊感谢也不风雨，也不请老哥打赏。我们家闺女才7个月，我都把初中以前的费用都安排好了啊，你怎么说，我在西大可以拿妾了啊。是啊，怎么不想未来就是想着你，我从熬A拿撞态的荒金部分分我老婆一半，不是西大怎么感觉给男人出轨的机会。
-- [02:27:54] **speaker_0**：啊，那是啊，就是所以我说这个鸡巴叫什么？叫是老牛要吃回头草。
-- [02:28:03] **speaker_0**：老牛要吃回头草，就是我在外面演了十多年，我现在想回来可以吗？啊，就是我现在放下屠刀，可不可以立地成佛？
-- [02:28:22] **speaker_0**：，老哥是吧我再读一遍啊，我家闺女才7个月，我把我初中以前的费用都安排好了，按你怎么说，我在西大可以拿妾了啊。
-- [02:28:32] **speaker_0**：啊，等会儿我读一下啊，怎么不想未来就是想着想着啊，就来我从奥A拿赚来的黄金都分我老婆一半，不是西大怎么感觉就是给男的出轨的机会，那是这样啊。
-- [02:28:46] **speaker_0**：啊，感谢似水多年老哥打赏。虽然社保断缴十几年，但是我还想回来领养老金。太对了，哥，太对了，就是是这样的，我社保断缴了十几年，我现在想领养老金可以吗？
-- [02:29:02] **speaker_0**：啊，本质上就是这样的本质上就是这样的啊。
-- [02:29:14] **speaker_0**：就是有人说那这个才才就这种这种高血压操作才能到第三个等级嘛。对，为什么呢？他最起码肯回头。
-- [02:29:28] **speaker_0**：就是他认知到我自己不行了，就是他还他还愿意说软话，他多多少少还愿意说点软话，你们懂吗？
-- [02:29:42] **speaker_0**：啊啊，感谢无风雨无情老哥大赏，操，我怎么觉得结婚结早了，不是我怎么感觉这么家伙就是给靠谱男人出轨的机会啊嗯嗯。
-- [02:30:00] **speaker_0**：是啊，那是这样的啊，有人说那这种老牛要吃回头草，成功的几率高嘛？不高，但是确实有成功的。
-- [02:30:11] **speaker_0**：就是真的有自由个十几年回来的时候，那个家居然还等着他呢，有啊，但是不多，但是毕竟还是有。那既然有成功的案例，就说明他还是有操作空间。
-- [02:30:33] **speaker_0**：对，就是你以为美国没有龟归吗？有时候那不就是阿甘啊，你以为是啊，那就是阿甘。
-- [02:30:44] **speaker_0**：啊，就不是你们刚才视频看过吧，美国小仙女能那样，难道不就是因为美国也有龟龟吗？
-- [02:30:55] **speaker_0**：你以为呢这播音哥也是经过我的毒打才不归的。你以为呢播音哥的脑子其实并不怎么好，知道吗？
-- [02:31:10] **speaker_0**：播音哥也是经过我的毒打才没有变成龟龟。你的播音哥就是那个刚才放的视频里面典型讲的那种ner的。
-- [02:31:24] **speaker_0**：啊，感谢风吹建圣美许剧爽稿哥打赏。这是我读诗的时候看美国黄金年的电视剧成长的烦恼，这才是既能上班赚钱又能勤俭直家的白人女女主妇才不是心我马天天小白牛啊，是。
-- [02:31:41] **speaker_0**：所以就这个级别他确实是有成功的，所以我才给他排到第三档，你知道吧？
-- [02:31:59] **speaker_0**：他确实有成功的啊，就是这才第三个级别啊，对，就这这才第三个级别。
-- [02:32:10] **speaker_0**：那逆天那不有的是吗？懂吗？然后这谁？这是成长的烦恼里面的女主。
-- [02:32:21] **speaker_0**：经典美剧嗯，那还有下一个级别。
-- [02:32:30] **speaker_0**：啊就是兔子不吃窝边草，怎么叫兔子不吃窝边草呢？
-- [02:32:43] **speaker_0**：他和这个老牛要吃回头草是另一种操作。大家要知道，随着这个女权时代的到来。
-- [02:32:52] **speaker_0**：尤其是美国女人，这种从小受到自由主义侵染的女性，她们的打拳的疯狂程度、力度和范围都是远远超过国内的。
-- [02:33:08] **speaker_0**：所以就会发生一个什么时候呢？当白左LGBTDEI叙事如日中天的时候，黑法老在位的时候。
-- [02:33:21] **speaker_0**：对吧他们高喊着女权白左啊，平权、人人平等、反歧视等等这些口号吧。他们喊着这些口号疯狂打拳，疯狂折磨男人的时候。
-- [02:33:37] **speaker_0**：他们没有想过有一天会退潮啊，会退潮，现在好退潮吧。
-- [02:33:47] **speaker_0**：他已经把自己社交圈里面所有的男人基本都给得罪了，上到99下到刚会走。
-- [02:33:56] **speaker_0**：从自己亲爹得罪到隔隔壁邻居小孩儿，小男孩都给得罪了，他混不下去了。
-- [02:34:06] **speaker_0**：怎么办呢？
-- [02:34:08] **speaker_0**：我跑吧，我我卷铺盖跑了，我不在美国呆了是吧？既然新版新测试服崩了是吧？要回滚，反正你要回滚，我去个旧版本的服务器不就完了吗？
-- [02:34:28] **speaker_0**：啊，润是吧，三十六计走为上，我换个地方重新开始，反正到反正新地方没有人认识我。总而言之，老家是呆不了了。
-- [02:34:41] **speaker_0**：啊，感谢这老哥打赏，有个奇特的想法，难怪新罗马叉叉这么恨战锤感情是因为乐的么把应该花在他们身的钱和关心全花在J8的JW妻子上了啊，是为什么最恨战锤呢？因为战锤老是啊。
-- [02:34:59] **speaker_0**：最最有最有钱的啊，一般人玩不起那个东西。
-- [02:35:09] **speaker_0**：那来了问题的关键来了，就和那些市民说，他就觉着美国男人不行，我要去国外。那么请问在现在的互联网时代，TT大行其道的时代。
-- [02:35:21] **speaker_0**：谁占据了互联网的榜首呢？哪个国家成为了美国有些小仙女的心象神往之地呢？
-- [02:35:33] **speaker_0**：啊，哪个国家的男人在tktok上宣传是又爱老婆，又不打老婆，又舍得给老婆花钱呢嗯。
-- [02:35:46] **speaker_0**：嗯嗯啊我大哥我大哥还给我头一礼物。
-- [02:35:57] **speaker_0**：嗯，感谢我大哥给我投喂我啊啊，兄弟们，而且好死不死，这个时候又开了K0。你猜一猜这些想重新来过的欧美的小仙女们会来哪？
-- [02:36:20] **speaker_0**：需要我说需要我把话说的再明白一点吗啊。
-- [02:36:37] **speaker_0**：有人说有人说你说的这个国家不会是某个东方大国吧。那你以为呢？现在在take a talk上面，大量的胡姬都知道这个中原男人好啊。
-- [02:36:54] **speaker_0**：啊，这个中原男人又不打老婆，又给老婆花钱啊，就是可以直接负责美貌如花那一部分啊，是吗？
-- [02:37:09] **speaker_0**：正好中国人呢正好中原男人呢多少沾点崇洋媚外啊，就是我长得还挺漂亮的，是吧啊，漂亮大白妞是吧？
-- [02:37:21] **speaker_0**：嗯，感谢退回幕后人老哥打赏上图啊，来吧，老老爷让兄弟们认清一下38800的购买力。
-- [02:37:42] **speaker_0**：有人说他看不上你，你错了你错了，还记得这种经常说本国男人不行，然后跑到国外去的这些女人吗？
-- [02:37:54] **speaker_0**：就是他们在国内是看不起本国男人，他们，但是他们去国外是要倒贴的。感谢似水流年老哥打赏这么说，最先被瞄上的不歹是赴美留学生，这都瞄准了，误头就秒。我在直播间说过无数次了吧。
-- [02:38:11] **speaker_0**：我在直播间说过无数次了，包括那个特文克斯的剑老哥也也说过，拿310举过无数次的例子了哇。
-- [02:38:23] **speaker_0**：我我记得我记得我直播间的老粉应该是有印象的呀。我这种这种事我都说过无数遍了，有多少留学生上当是吧？啊，亲爱的你设进来吧，不用带。
-- [02:38:39] **speaker_0**：那有些好从小好好学习，考到国外顶尖大学的中国男学生，他哪顶得住这个呀，我都说过无数次了吧。
-- [02:38:51] **speaker_0**：有人还不信嗯。
-- [02:38:57] **speaker_0**：啊，感谢ZZP老哥打赏，顾家爱丈夫，爱自己两个儿子，能一个人操持所有家务，能一个人搞定一家的圣诞节，有个能援助家小家庭的老钱亲爹，我宣布，这就是最完美的居家好女人20元。
-- [02:39:13] **speaker_0**：不是畜生之家的图，我就不上了啊，畜生之家的图我就不上了，否则有点破坏气氛了嗯。
-- [02:39:25] **speaker_0**：啊，就是就是多多多多少多少占点破坏地方了啊，但是这么说是没错的啊，这么这么说是没错的。
-- [02:39:38] **speaker_0**：嗯，有说故一思嘛？对。
-- [02:39:47] **speaker_0**：感谢风之剑圣免许人生老哥打赏。老A莫不是说星光嘛，白牛也有倒贴，喜恶老周圣骑士的那对呀，是吧？
-- [02:39:56] **speaker_0**：啊，白南就不行是吧？啊，呃中原留学生就可以啊设定来啊，你带我走就行。
-- [02:40:05] **speaker_0**：你带我离开美国就行，一样的，如出一辙的兄弟，懂吗？
-- [02:40:17] **speaker_0**：是如出一辙的，你不会许伪有区别吧，没区别。
-- [02:40:31] **speaker_0**：对吧？就是。
-- [02:40:35] **speaker_0**：他已经在美国得罪完人了，我现在跑问我啊，什么地方生活环境又优美是吧？社会又健康，治安又好是吧？吃东西又好吃啊，整个社会也很文明是吧？还欢迎白人去呢？
-- [02:40:52] **speaker_0**：这是哪个国家呀？嗯，对吧？
-- [02:41:05] **speaker_0**：感谢这老哥打赏，我找胡姬玩的老哥该学炫老美的篮球球星了，完事后记得给带子己们儿子们加点tbaco辣椒酱，以免意想不到的方式搞出人命哎。
-- [02:41:24] **speaker_0**：嗯，有时候汗流浃背了，你们就等着吧。在接下来的10年内，你们你们可以先观察中国的一线大城市涌进来的白妞。
-- [02:41:39] **speaker_0**：啊，我就明说吧，就中国一线大城市涌进来的白妞，就是我说的，你放心，K0绝大多数挨的都是胡姬。
-- [02:41:52] **speaker_0**：啊，就是中国一线大城市某些性压医的老哥们啊，我不好说你是不是有福了。
-- [02:42:01] **speaker_0**：反正玩的时候多注意是吧，我让你不吃肯定是不可能，你肯定是要吃的，我不让你吃，显得我有问题，就是你吃的时候注意，好吧。
-- [02:42:13] **speaker_0**：嗯，有时候跟三四线关系不大，你放心，这是一个逐渐渗透的过程。
-- [02:42:26] **speaker_0**：你以为跟你关系不大，那是因为发展还没到那一步，懂吗？
-- [02:42:39] **speaker_0**：哎，对，哎，我大哥主动要求上麦了啊哎。
-- [02:43:00] **speaker_0**：哎，还要那啊，一会儿过了是吧？
-- [02:43:10] **speaker_0**：有时网道开口子了啊，对我大哥来了，是吧，有时候求球去印度。
-- [02:43:20] **speaker_0**：只要中国男人还在拼命的卷，把中国发展一个美国发展不到的高度，他们只会不停的涌进来。
-- [02:43:34] **speaker_0**：懂吗？就是就是你一定要明白这种事情。
-- [02:43:42] **speaker_0**：一定会发生一定会发生，就是那些美国觉得不安全了，觉得自己过不下去的。
-- [02:43:52] **speaker_0**：啊，跑路最好的选择其实就是这里就是老钟，你不用想。
-- [02:44:06] **speaker_0**：说实话，还有还有一些更狂野的可能性。嗯，啊就是这种人员来往便利，信息沟通，信息交通也便利的。但是。
-- [02:44:19] **speaker_0**：呃，执法权和管辖权啊，却又嗯没有统一的地方。啊，咋说呢？
-- [02:44:30] **speaker_0**：呃，呃，我们这么说啊，借借助欧盟借助欧盟发达的医疗信息共享和便利的深根签证。阿尔巴尼亚黑帮在。
-- [02:44:43] **speaker_0**：在这个人体零件采收行业取得了垄断性的得了垄断地位。
-- [02:44:56] **speaker_0**：啊，哎，因为你管不着，人家可以就人可以来可以就人可以来来往往啊，他随便找一个口子松的地方进你深根，进了深根区，进了深根区之后。
-- [02:45:16] **speaker_0**：啊，他就啊可以跨国，他就可以轻易的这个跨国移动是吧？嗯，再加上又没有严厉的，说白了又没有又又没有这种严厉的对外国人的审视和检查。
-- [02:45:31] **speaker_0**：哎，人家直接是吧，就是就采收人类零件的嗯。
-- [02:45:42] **speaker_0**：反正就哪怕哪怕暴露了，哪怕暴露了一方面又会啊，也不一定会死。毕竟是哎，这个这个对对高贵的最高贵的移民和难民啊，还有什么这持签证啊，持合法签证的外宾啊，你这个。
-- [02:46:01] **speaker_0**：总是要温度一些，要知心一些，对吧？嗯，另一方面，人家要又是个又是又是外国人，直接润就完事。
-- [02:46:10] **speaker_0**：读下SC是吧？国内三四线城市从城建生活节奏繁华程度对胡津来说不比周府差，不用担心三四线城市没机会。是的。
-- [02:46:24] **speaker_0**：我们我们中国其实很多地方是地级市是修的不错的。我这么说吧，繁华程度都远超美国很多州府州的州府。
-- [02:46:36] **speaker_0**：就是你也不要高看美国很多地方，其实挺不咋地的哎。
-- [02:46:48] **speaker_0**：有人说还有还有更一天的吗？有啊，就头顶尖尖爱问路是吧？你看308030660TI。
-- [02:46:58] **speaker_0**：对，刚才我一直想刚才我一直想敲字，然后我出去再进来，发现也不知道是什么问，也不知道什么关键词，就死我卡着不让我过啊，听我有点敲个字叫你我我东大新进口的一批美日显卡包装上写着余生只替你妈逛。
-- [02:47:19] **speaker_0**：感谢陈老哥搭赏，无言投下，直播间状况如图所示。
-- [02:47:30] **speaker_0**：啊，那那你看啊有人说矿卡是吧？对，美国现在就是什么情况呢？啊，有一批矿卡。
-- [02:47:43] **speaker_0**：对吧他早十年呢在疯狂挖矿是吧？很是没少挣钱啊，但是问题来了，他在这个黄金年代疯狂挖矿呢，很是造下了一些伤害，是吧？对自己显卡的各个参数都造成了损伤。
-- [02:48:05] **speaker_0**：然后正好到这个节骨眼是吧？全美爆发了这种回归传统的思潮。那这部分女性呢就显就这部分显卡就产生了一个怎么说呢？就是觉得是个机会，反正现在生意也不好。
-- [02:48:24] **speaker_0**：我是不是就借着这个坡啊，下驴了，对吧？我是不是就清清洗一下自身是吧？把胆胆灰擦擦擦擦擦擦泥是吧？把身上弄得光鲜一点。
-- [02:48:40] **speaker_0**：啊，找个老实人得了，把显层漏的油也都擦干净。啊，对对对啊，对对对，反正现在不如说回归传统嘛，是吧？啊，我这个打引号的独立女性呃，也该回归传统了。
-- [02:48:59] **speaker_0**：啊，懂吧？就是啊该找个老实人家了是吧？where is anerd的是吧？哎呀，美国这些挣了大钱，显示了自己潜力的ner儿的男孩们在哪儿呢？是吧？20岁之前唯一摸过的女性乳房，只有自己妈妈在哺乳期的时候，喂自己奶。
-- [02:49:19] **speaker_0**：就其他时候都没有见过奶子的是吧？这辈子没见过啊，是吧？就是姐姐我只要稍微动动手勾勾手是吧？几十几年的技术熔电成为的精华啊，哪个那儿的能坚持得住呢？
-- [02:49:38] **speaker_0**：是吧那儿的们就会来一句，可他是3080哎，是吧？
-- [02:49:47] **speaker_0**：有人说那是矿塔，他就跟你来，就那是3080哎啊，就是他没救的，你知道吧？
-- [02:49:57] **speaker_0**：就是那的也会来一句，那能一样吗？懂吗？你就说矿卡有没有人买吧。
-- [02:50:08] **speaker_0**：。
-- [02:50:10] **speaker_0**：就是说就说这个这怎么着，就说这个33里就是3030系油卡接矿这个常识，这个已经几乎是装机圈常识的情况之下，他们能出现松鼠下山的那个神阶。，你更何况现在这种就是从学校到社会全力养龟的这种环境的，遍地归归的社会。那我我只能说矿卡来了，矿卡来了，卖出3080给你卖个4090的价都不奇怪。
-- [02:50:42] **speaker_0**：嗯，是啊，感谢终局T90A老哥打赏，我看一下嗯我看看啊。
-- [02:50:53] **speaker_0**：嗯，我想当阿斯塔特了，等说搞个4090也行。
-- [02:51:03] **speaker_0**：没那机会，多数女人达不到那种水平，4090的段位是很高的，好吗？
-- [02:51:13] **speaker_0**：真正的4090的段位是很高的那不是3080能碰瓷的啊，那个段位很高啊。
-- [02:51:23] **speaker_0**：那有人说这种人多吗？你不要忘了美国这个不讲道德的国家，成天在那跟你论数啊，你的手和我的下半身一样。
-- [02:51:37] **speaker_0**：啊，女人属于社会弱势群体，女人犯法应该轻判。所以实质性的在司法执行上。
-- [02:51:48] **speaker_0**：美国的这些矿卡们几乎不会受到任何警察的处罚，警方的处罚，就是就无无犯罪记录的含金量，好吗？低犯罪率低犯罪率怎么来的？点G个TG啊嗯，对嗯就是。
-- [02:52:05] **speaker_0**：在美国也是挖矿的矿工和矿卡一起被抓了，甚至是矿厂的老板也被抓了。
-- [02:52:14] **speaker_0**：他们的量刑分别是多少呢？矿卡的量刑一般是3个月的社会劳动。30，矿卡是社会劳动，矿厂老板一般是10年。
-- [02:52:29] **speaker_0**：啊，旷工一般是5年，能懂什么意思吗？就是你说他算是一种犯罪吗？但实质上，在司法执行过程当中，在美国矿卡就是几乎不会发生什么。
-- [02:52:46] **speaker_0**：他可以接着干，懂吗？就是他是很肆无忌惮的，他连记物都不会有。有人说他不怕男人查嘛，他一片空白，你查着也没用啊。
-- [02:53:01] **speaker_0**：就是除非故些小视频被当事人看着了，否则懂吧？
-- [02:53:12] **speaker_0**：嗯，就你你应该明白我想说什么，是不是啊，大家都是明白人是吧？
-- [02:53:22] **speaker_0**：感谢白主网，有说这个有有有办法的话，还是找个G叉叉这种程序比较好啊。
-- [02:53:31] **speaker_0**：对，就是你你你不能查警方的对政治性的东西，你必须从生物学上，就是你必须得从这个这个这个这个电电器电气工程上面去查，你知道吧？就是你必须从生物学的角度上去查，你才能查出某些端倪。
-- [02:53:50] **speaker_0**：是吧哎呀，你这个矿卡币怎么这么薄啊，是吧？哎呀，你这个修复的时候，上面这个刮痕没有修复掉啊。
-- [02:54:01] **speaker_0**：是吧哎呀，你这个你们这个颗粒怎么附着不上去呢？你这个你这个电容你这个电容怎么都。
-- [02:54:13] **speaker_0**：我都击穿了。
-- [02:54:18] **speaker_0**：啊，感谢白白霜老哥大赏我读完啊，老AHV能不能个问题，你们怎么看薪火传承的问题啊，我最近在想看老A的往期节目和媳妇儿一起听，这两天刚好回溯到高男高女那几期，然后被我媳妇吓到了。我家是三个牛牛，最大的是小学四年级。这几天我媳妇居然要跟我讨论，千百年后的香火问题，好恐怖。
-- [02:54:46] **speaker_0**：吃饱撑了，想太多了啊，怎么不是就就不对，你就遇到矿渣，你不要装了，你装上去了，你装上去了就说不清了，好吧。
-- [02:55:00] **speaker_0**：说上去就说不清，你就千万不要到什么出现出现撕裂效教这种程度啊，一定要就在装机之前就物理检查。一旦通过电，一旦通过电了的话，怎么讲？那那他就那他背后就有强大的那他背后就有强大的电脑城老板了。是就是。
-- [02:55:20] **speaker_0**：就是这个过程是不可逆的，损伤是不可逆的哈，感谢四十流年老哥大赏，观众也别觉得买个矿卡能捡漏，能收心过日子，建议复读琵琶行，伤神重地轻别离。
-- [02:55:37] **speaker_0**：哎，就是3080是吗啊。
-- [02:55:46] **speaker_0**：来，下一个级别是最恐怖的黑法老进军黑法老进军。，我觉得有有史以来最最邪恶的美国总统没有之一啊，有如今美国道德的全面破产的。
-- [02:56:05] **speaker_0**：有人说什么叫黑法老进军呢？
-- [02:56:09] **speaker_0**：他和你之前说的那些受白左思潮的人有什么区别呢？区别很大啊，就是他有一点类似于奥斯曼进军，在这些小孩子就是说白了就是美国头一批00后。
-- [02:56:26] **speaker_0**：什么意思呢？就是青春期是这样，早一点的10岁，11岁就进入青春期了，晚一点的1415岁进入青春期。
-- [02:56:36] **speaker_0**：就是这批00后，在他们青刚刚进入青春期的时候，正好是奥观海当政，正好是卢锡安当政，就是黑法好当政，就是铺天盖地的DEILGBT白佐女权这套思潮，就是什么意思？他们从刚刚进入青春期。三观未定型的时候，就海量接触这些东西，。
-- [02:57:04] **speaker_0**：等到他们长到十八九岁三观定型的时候，他们基本上可以说是全员黑法老的禁卫军。
-- [02:57:16] **speaker_0**：懂吗？他完全不是之前那几个说什么老牛回头吃嫩草，就是受DEILGBT私潮出走的前家庭主妇。不是的，他们已经三观成型了，所以他们还有回来的可能。黑法老禁卫军是最恐怖的。
-- [02:57:35] **speaker_0**：你们想一想，他们在十一二岁的时候，那个人生懵懂如初的时候，接受新法黑法老这一套东西。
-- [02:57:46] **speaker_0**：你们猜猜他长到20岁的时候有多恐怖，而且我告诉你，我为什么管他叫黑法老的禁卫军呢？他们是最魔重的一批，就是他们在DEILGBT退潮之前。
-- [02:58:03] **speaker_0**：已经把大脑改造了，或者是他们的身体零件已经换掉了，能理解吗？就是。
-- [02:58:11] **speaker_0**：开弓没有回头路，就是他要不然是把螺栓变螺母，要不然是把螺母变螺栓了，懂吗？其他的人都有回头路，他们回不去。
-- [02:58:26] **speaker_0**：就是你下半身的生理改造，就是以后白鼬杀你的证据，懂吗？
-- [02:58:41] **speaker_0**：，感谢给老哥打赏，现实里花二三十刀买个ID64软件就能看个七八成。但是老魏说的这种矿渣是要求矿老板们拆开看的那可是有可能吃牢饭的。如果想买矿渣，那我这么说吧，那些专业修卡的，看到3080就捏着鼻子不修了。因为有人试过用几张卡的吊补修都修不好，补好也有大概率用230就花瓶暴毙，甚至还有科普矿卡知识被人威胁人身安全的那肯定。
-- [02:59:10] **speaker_0**：啊，就是你们想一想，你们知道最恐怖的是什么吗？现在是2025年了，美国白佐思潮退去了，就是水潮水真的要退到下半身以下了。
-- [02:59:25] **speaker_0**：我是男，他是女，你的下半身是什么？就是你你你是黑法老的禁卫军，你已经完成改造了，兄弟们。
-- [02:59:36] **speaker_0**：你跑不掉的白釉清算你的时候，就是比即就是哪怕矿卡都可以和男人说吸，我们可以和解吗？
-- [02:59:47] **speaker_0**：黑法老的禁卫军是没有地方跑的，就只能说复克当初德国德国对犹太人进行脱口检查。
-- [03:00:02] **speaker_0**：懂吗？就是我现在我要看你的第一性征，来脱下来给我看看。
-- [03:00:15] **speaker_0**：你们以为我说的他是黑发老的禁卫军，是是说的是什么？他们不是一般的DEI入脑，他们是真的会接受补助去做手术的，并且凭借自己的新身份去牟地的。
-- [03:00:30] **speaker_0**：会深深的伤害普通普通人的生活的，懂吗？就是当希腊人被掳到奥斯曼，成为新的马木鲁克的时候。
-- [03:00:49] **speaker_0**：他们是回不去的。我再说一遍，当希腊人被小希腊人的小孩儿。
-- [03:00:59] **speaker_0**：被奥斯曼掳到奥斯曼帝国，成为新的马木鲁克的时候，他们是回不去的，就是哪怕他们是也得得对，就是思维已经改变了，回不去了，就是他们已经没有正常的两性关系，新喜了。
-- [03:01:21] **speaker_0**：嗯，救不了没救啊，就是这个身份烙印你要打打在他们身上一辈子。
-- [03:01:32] **speaker_0**：就是你只就是他们只能瑟瑟发抖的活着，就是他们只能指望有一天美国这个国家不会右转的太彻底，不会把他们都宰了。
-- [03:01:50] **speaker_0**：没办法来吧，脱裤子，我们要看看你的性征。
-- [03:02:00] **speaker_0**：感谢似水流年，老哥，当联军攻入长安，清洗烟党，看到路上胡男人没长胡子就杀，逼的还没长胡子，男孩见到大刀片子就急得脱裤子。
-- [03:02:12] **speaker_0**：那不是连续，那是袁绍啊，你的你的原本初就是就是啊清算烟呐啊没没嘴上没毛就杀。
-- [03:02:26] **speaker_0**：啊，就是。
-- [03:02:35] **speaker_0**：那些说自己的性别是武装直升机的人，在现在你最好能真的和武装直升机一样飞走，否则你小命不保。
-- [03:02:48] **speaker_0**：啊，你还得指望就是对方没有毒次之类的。讲道理啊，这个这个来自巴尔干和希腊的耶尼切里，如果他偷偷着学一门，偷着学一门这个外语。
-- [03:03:02] **speaker_0**：除了学里面土耳其以外的外语，还理论上还是能够还是能够变回去的嗯。
-- [03:03:11] **speaker_0**：理论上还是能够变回去的。但但是做这个所谓的性别重构手术的人呃，我是肯定变不回去的。而且很多时候我我们学先要要明确一些概念啊，不存在性别重构，只有性别消除。
-- [03:03:28] **speaker_0**：或者性别仿冒手术啊，没有性别重构手术这种东西是，你变了性能生吗？变了性就变了性能生吗？你这个问题都解决不了的话，叫什么重构，没有重构啊，只有消除和仿冒，对不对？
-- [03:03:46] **speaker_0**：呃西很多呢西我们要从术语就就从术语从基本概念上就明确它啊，嗯，有人说他为什么要清算他们不能好好过日子吗？不能。
-- [03:03:59] **speaker_0**：你别忘了，他们是黑法老的禁卫军，他们替黑法老冲锋过的干过脏活累活的，他们利用过自己的新身份，是挤压压迫。就是在说白了，在10年前，他们是压迫过普通人的。
-- [03:04:16] **speaker_0**：现在普通人决定右转，你以为你以为你道歉就有用吗？
-- [03:04:30] **speaker_0**：没用的，感谢ZZP老哥打赏，这不是黑发老定卫军，这是首发的50系显卡啊，这有点太复古了。
-- [03:04:41] **speaker_0**：这有有一点父母，那感谢raer1991老哥打赏，矿卡还能赌一下笔记本魔改台式机CPU已经没法再装到笔记本上了。
-- [03:04:55] **speaker_0**：아 소 아.
-- [03:05:04] **speaker_0**：直播间都是老剧部，我天就是黑法老禁卫军，还有什么？这还有甘蔗渣。
-- [03:05:17] **speaker_0**：什么叫甘蔗渣呢？就是甘蔗渣是什么？大家见过甘蔗渣没啊，见大家见没见过炸糖，就是甘蔗干，就是甘蔗渣是什么呢？又老又干又柴，没光泽，还不甜。
-- [03:05:35] **speaker_0**：啊，就是又老又柴又干，没光泽，还不甜。什么概念呢？就是十0年前那个版本的女强人。
-- [03:05:49] **speaker_0**：什么概念？就是他们真的相信了那一套叙事，就是我要独立自主，我要当女强人，我不比男人差，我要在官场生意场情场上面常常碾压男人。
-- [03:06:03] **speaker_0**：然后实现的手段是玩咪谱。对，就是就是也就是女王自信放光芒。
-- [03:06:12] **speaker_0**：感谢四水东天老哥打赏，说起干蔗渣，我提一个人泰勒斯威福特啊，他还不算他他是他是绿茶，知道吧？就是我就就是在上一个十年里借助身份政治成功打入男人圈的是就是不管是政治也好还是经济也好，还是金融也好。不管总而言之，他是爬到那个位置了。
-- [03:06:36] **speaker_0**：自己也挣钱了，也看不起男人了是吧？不是姐就是女强人啊，我也不依靠男人，我想怎么样怎么样，你们臭男人不如我们女人。
-- [03:06:50] **speaker_0**：就是这种女人是最容易搞什么全女公司的啊，有如说早明。
-- [03:07:00] **speaker_0**：啊，就是某种意义上是吧，早描呃这个车力车力巨人嗯，不是不不不不这么讲啊，叫就就只说早描枣苗年早苗是典型的矿卡，是早苗年轻时候是矿矿卡，嗯，年纪再大点是甘蔗粘啊。
-- [03:07:22] **speaker_0**：这种就你就矿矿卡和甘蔗渣很可能是很可能是一一位独立女性人生中的不同阶段。嗯啊，而且我高度怀疑扫描当矿卡的时候是已经彻就是相当于是彻底烧糊了给自己。对，因为扫描的，因为扫描的后代全是收养。
-- [03:07:43] **speaker_0**：是的，没没有生育能力了啊，就是你很难想象他在美国留学的时候都经历了些什么。
-- [03:07:53] **speaker_0**：真他妈黑车早描，黑车早描可还行啊。
-- [03:08:01] **speaker_0**：干着，那有人说那那是那是10年前现在版本换了。对你看看你看看特朗普在美国那军队内部海量学习那些依靠DEI那些依靠变性，那些依靠LGBT上位的将军们。
-- [03:08:20] **speaker_0**：甘蔗渣也一样，版本变了，就是他的女强人人设维持不住了，她的差经济搞不下去了，她的全你公司破产了。
-- [03:08:34] **speaker_0**：就是他也想着我是不是借坡下驴，这种女强人经典是什么呢？就是首先是收养一个孩子。
-- [03:08:45] **speaker_0**：啊，收养一个孩子以后，在个人个人账户推上开始大谈特谈啊，养孩子是多么美好。
-- [03:08:54] **speaker_0**：啊，就是这个时候人设还没彻底崩，就是他的粉丝们还会支持他，就是啊姐姐好帅是吧？姐姐好飒，，尤其是那个心术不太正的，还故意演个棕孩或者黑啊，对对对啊。
-- [03:09:09] **speaker_0**：有人说是那有没有比较典型的例子呢？呃，查理斯赛罗啊，就是那个所谓的南非美钻。
-- [03:09:20] **speaker_0**：啊，妈就啊收养个黑孩子。
-- [03:09:30] **speaker_0**：就嗯收养个孩子，然后突然有一天。
-- [03:09:44] **speaker_0**：说自己要回归家庭了，想找个男人了，我想当家庭主妇了啊，我想勤俭持家了啊，我希望有个人疼自己爱自己了。
-- [03:10:00] **speaker_0**：就是你想他是干蔗渣又老又柴是吗？就是还不甜，没优点。
-- [03:10:11] **speaker_0**：啊，懂吗？就是呃女强人人设维持了十几年，维持不下去了。
-- [03:10:24] **speaker_0**：他跟他的粉丝们说，姐要结婚了啊，姐不做女王了，姐现在想做小女儿了。
-- [03:10:35] **speaker_0**：啊，虽然姐已经40多岁了啊，虽然姐成天成天是吧，奋斗，也看不上几个男人啊，但是姐就是想回归家庭。
-- [03:10:50] **speaker_0**：啊，有人说那那还有生育能力吗？40多岁。
-- [03:10:58] **speaker_0**：就是他敢生，你你都不敢你你都不敢射在里面，你知道吧？没没坏，怎么讲，没坏也断电了，这个对停就巴扎断电了。
-- [03:11:11] **speaker_0**：没话也断电了，对吧？是，哎，就是他为什么就要领养一个孩子呢？就是安慰自己一下，是吧？我也也算是有后代。
-- [03:11:27] **speaker_0**：感谢满天星辰好哥打赏，我看一下老哥私信发我。
-- [03:11:33] **speaker_0**：私信而且说实话说实话，这东西完全是对于传统的这个就是传统的这个男性为主的政治结构中的这种养子继承的拙劣模仿。嗯，啊，养子继不论是养子继承赘婿继承还是秘书继承，说到底，他的培养是作为单纯作为继承人培养的。
-- [03:11:58] **speaker_0**：嗯，是，就是但是这种哎说实话很多女政策他养这种就培养这个没他。
-- [03:12:09] **speaker_0**：名义上是继承人，事实上是吉祥物啊名义上是继承人，事实上是吉祥物。这个吉祥物养到最后，让他发现自己是吉祥物的容易出事儿，你知道吧？哎，德国我记得德国出了一个事情，就是一个白左，一个白女市长。
-- [03:12:30] **speaker_0**：被他的黑羊女给崩了，哎，就就典型的话，就这种政治正确上台的女政客啊。
-- [03:12:39] **speaker_0**：又养个黑的啊，故意收养，就自己自己我不知道是反正不知道是给自己给自己这个玩断针脚了，还是怎么着，反正就是收养收养个黑的微收看0.1元嗯。
-- [03:12:56] **speaker_0**：你到最后发现到最后收养养女或养女就我是什么，我是什么啊，我是什么玩意儿啊，我是个玩意儿啊，你去死吧啊。
-- [03:13:12] **speaker_0**：，真的，我读一下S手，感谢昭昭嘛，对没没没封死啊，没打没没弄死啊，这个是最可惜的啊，非常遗憾啊。
-- [03:13:26] **speaker_0**：感感谢昭昭昭昭满天星辰，老哥打赏，读下S老哥加一下QQ吧，就这个你B站经常吞的嗯，老魏那些叉叉会不会突然想到用新闻学去擦大家的认知，他们一直在干这个事儿啊，说生育能能力是部分女人的能力，把有些女人生不出孩子问题跟框卡做逻辑结构剥璃，他们一直在做美国女人就是啊生不出孩子的女人就不是好女人了吗。
-- [03:13:55] **speaker_0**：就是美国女性想回归，有些美国女性想回归家庭，想回归traditional，她必须解构这个，因为她们不是传统意义上的traditional。
-- [03:14:07] **speaker_0**：嗯，对，就就这个反正不管别人怎么说，对我而言，不生孩子的女性就是75%男人啊，就是75%男人。
-- [03:14:21] **speaker_0**：然后就是还有什么呢？我等会儿我还有一个S，我读一下啊，就是刚刚刚才的矿渣相关。但是对于这个排名里的每一个位置都适用啊是。
-- [03:14:34] **speaker_0**：五十包邮发阿迪老发出过坚定不移的声音。嗯，是吗。
-- [03:14:44] **speaker_0**：有人说生不了就生能不能生是这么重要的事吗？首先来讲我跟大家说一下，就是你不要那么厚现代。
-- [03:14:55] **speaker_0**：我们人类本质上是一种猴子，是一种动物，是我们的学名叫晚期智人。
-- [03:15:02] **speaker_0**：我们是首先作为一种地球上存在了几百万年的一种相对而言，现阶段比较成功的生物。我们永远需要维系的是这个族群的生誉。
-- [03:15:16] **speaker_0**：你说100到1万，人类社会是由人类构成的。在AI大规模替代人类之前，人类社会的维系全部是依靠生孩子，就是那个女性的子宫。你别跟我说什么，生孩子不重要。
-- [03:15:33] **speaker_0**：别什么都用现代化去解构，多少讲一点传统道德是吧，就是生孩子很重要。
-- [03:15:43] **speaker_0**：啊，感谢电饭锅帮老哥打赏。到家老斯拉夫阿姨黄人病学姐和伊拉姐姐算哪一种，他们这也都不算，顺便问一下，现在我们开始改变国策了，你觉得未来我们新的国策是劳保关际还复仇还是建制，我选我的话请选择支持长征AI系统性核爆所有泰约国家？你这个故事线有问题啊，哪个世界线，请支持长征完成中国人大脑升级，完成机械降神，你这个有点太太太入脑了，是吧？
-- [03:16:15] **speaker_0**：啊，感谢似水东年，老哥打赏，打赏的老哥说的很对。另一点就是某些相亲对象宣扬不要孩子，究竟是女权入脑还是矿卡生不时还得好好考虑一下。
-- [03:16:27] **speaker_0**：嗯，多数情况是两者相结合，而且而且有些矿法，有些矿块喜欢把你的电源喜欢把你的电源和CPU有一块废了。
-- [03:16:41] **speaker_0**：嗯，就是为了和你所死啊，不是为了和你所死啊，是为了逼你和他所死。，但其实他其实他他不想锁死的时候，也可以不锁死。
-- [03:16:55] **speaker_0**：啊，补充于我参考我之前讲能上桌那次，如果生育不重要，那么叉叉人最好你能明白这句话会引发什么后果？
-- [03:17:08] **speaker_0**：就是我今天给大家讲一点很直白的，就是直播间也有女性是吧？说白了男人只看重女人三个方面。第一。
-- [03:17:18] **speaker_0**：生育能力。第二，常情的陪伴和心灵依托。第三，他有很强的能力是吧？是未来共同打拼的伙伴，就是男人只注重三种未来，生理意义上的DNA未来啊，精神上的寄托，就是神精神上的未来啊，还有事业奋斗上的未来。
-- [03:17:41] **speaker_0**：女性只需要提供这三种当中的一种，就是一个标准的女人。当然你能提供这三种当中的多种也行，能全提供，那太好了。
-- [03:17:54] **speaker_0**：但是多数女人的要求就是你只需要给我提供生理意义上DNA的未来就可以了，这是第一性的。
-- [03:18:05] **speaker_0**：男人对女人的要求大致就这么三重，其他的都是次要的。
-- [03:18:16] **speaker_0**：就是我们的动物性是第一性的，你不要成天讲什么，后现代又是法律，又是哲学，又是这那的。你先把自己当种动物。
-- [03:18:30] **speaker_0**：？就是如果不要孩子。
-- [03:18:41] **speaker_0**：对吧？而你女性又不能提供精神上的长情陪伴和理解，还要作还要闹，在事业上也不提供帮助。
-- [03:18:54] **speaker_0**：那为什么要结婚呢？对，就是你先别把自己想的那么厚现代。
-- [03:19:04] **speaker_0**：你先把自己当做一个在地球上存在过的生物，好吧，懂吗？
-- [03:19:16] **speaker_0**：哎，这是很关键的。兄弟们也只能说不不不要孩子，不要孩子这种想法能够大肆流传，还是什么？还是十年这个还还还是这个就一是现代化了呃。
-- [03:19:33] **speaker_0**：吃绝户的这种字面意义上的吃绝户少啊，但是又不够现代化，养养老院护工养老院护工给人打出屎完了，这个新闻也也少。
-- [03:19:45] **speaker_0**：处在一个难得比较好的年代啊处在一个难得比较好的年代，早点或者晚点都不会有这么多胆敢不要孩子。
-- [03:19:55] **speaker_0**：，做什么梦呢？护工抽两巴掌就老实了。，感谢中极T90A老哥打赏HV大哥为什么后现代反育会有这种本能本能现象，这不是本能，这是。
-- [03:20:11] **speaker_0**：某种社会体啊，这可不是本能。生物的本能就是繁育的。有人说不孝子少，你看经典就是一说讲道德就是要回封建社会，一说教育孩子就说教育不好。
-- [03:20:29] **speaker_0**：一说一说整体一说整体就说就说极端个例好吗？嗯，嗯，就说个例就是有血缘跟没血缘，怎么着吧。
-- [03:20:41] **speaker_0**：啊，是有是有逆子，甚至有逆子啊，嗯咋说呢？
-- [03:20:50] **speaker_0**：嗯嗯，那腻子抽你耳瓜子之前，多多少少心里上还得过一个关啊，社会上还有些压力啊。
-- [03:21:01] **speaker_0**：呃，护工护工看你护工看你露实，对你重身出击，那心里需要过一道坎吗？做什么想什么呢？
-- [03:21:10] **speaker_0**：感谢4水多年，我哥大赏，经济价值指望不上，情绪价值可替代性强。DNA价值再提供不了。那你的独特性价值在哪？是啊？
-- [03:21:21] **speaker_0**：是这样的是这样的，我人说再一个就是你猜猜我为什么要说大家一定要讲道德？
-- [03:21:33] **speaker_0**：就是大家还没理解吗？讲道德的社会，尤其是讲中国传统道德的社会，出不孝子的概率会降低。我是在保护你们知道吗？有人如果还不理解传统道德的优越性的话，我请你好好的想一想这个事儿。
-- [03:21:57] **speaker_0**：懂吗？就是他一方面保持着后现代的观点，否定前现代，又对前现代的某些某些保证进行渴求。
-- [03:22:11] **speaker_0**：就是他又要现代化的好处，解构我前现代的优点，他又害怕出现后现代的缺点。
-- [03:22:20] **speaker_0**：因为钱现在的优点被解构掉了，不讲孝道了，法律没规定就行呗，是吧？啊，法律没规定。
-- [03:22:30] **speaker_0**：咱们讲法律啊，不讲孝道，你看你又不乐意，你又会担心出不孝子，所以你到底要什么？
-- [03:22:42] **speaker_0**：你不要反对了一辈子小仙女，自己成为小仙女，懂吗？
-- [03:22:53] **speaker_0**：就是我说为什么要道德到账20元，我一直在跟你们强调道德的重要性。
-- [03:23:07] **speaker_0**：就是你们现在有多少年轻人是事实上活在中国传统优秀的道德领域里面的泡泡？
-- [03:23:17] **speaker_0**：爹妈没有18岁，不管你爹妈给你付高中学费，爹妈给你付大学学费，爹妈要负责你大学的生活费，不需要你年纪轻轻去打工。
-- [03:23:29] **speaker_0**：就是你享受着全套的传统中华美德的优点，两两头好处都在吃啊。对，不仅不仅有什么，不仅有无息助学贷款，还有爹妈给你还。
-- [03:23:44] **speaker_0**：对，爹妈还得给你买房，就是你们知不知道你享受的全是前现代道德的优点。
-- [03:24:00] **speaker_0**：我不能想象，中国社会哪怕只有10分之1的父母学美国人，很多中国孩子都会清醒。
-- [03:24:13] **speaker_0**：啊，感谢T900老哥打赏啊。HV大哥呃，不讲道理，请看五代十国。对当道德的底线都被突破。
-- [03:24:24] **speaker_0**：让你看看五代十国是什么下场啊，无底线讨好基本盘啊。
-- [03:24:34] **speaker_0**：无底线讨好基本上有人说比如说好好讲正题，必压低观众，没有压低观众兄弟，这是道德的一部分。
-- [03:24:48] **speaker_0**：我们今天讲的所有问题，不就是这些小仙女不讲道德才让人血压高吗？感谢昭昭满天星辰。老哥打赏，给直播间的各位说个我的故事。当你有道德，为了身边亲朋好友重拳出击，打击不得的时候。
-- [03:25:06] **speaker_0**：哪怕你平时有点冒失不得体，你只要没有大问题，大家会本能的惧怕你在谈事情的也会特别尊重你的话语分量，是这样的。
-- [03:25:18] **speaker_0**：感谢周一周一大魔王老哥啊老哥，你发我。
-- [03:25:31] **speaker_0**：你这怎么不是正题，这这是道德呀？兄弟们，你看看这这是吧，这都非是人间等闲物啊，头顶尖尖挨问露，你告诉我他为什么让你血压高？
-- [03:25:44] **speaker_0**：总而言之，言而总之，一句话，不就是这群人不讲道德嘛，对吧？
-- [03:26:00] **speaker_0**：还有我们说的最及最直白一点，为什么会出现不孝子，是不是你的教育有问题？
-- [03:26:11] **speaker_0**：感谢这老哥打赏，有儿女的老人在养老院都没法保证护工能百分百好好对待。要是真不要儿女，我建议老位找一下师弟师妹和其他后辈们提前安排一下拼做救集体。另外觉得后代不重要的，等到你的长辈不在了，等到你四五十开始风湿骨痛我，你再想想。对的，就是我跟大家说一下，现在很多人不想生育儿女。我告诉你，其实那不是他的真正想法。。
-- [03:26:40] **speaker_0**：你的荷尔蒙在巅峰期，你的生理机能也很澎湃，你的心脏跳动强而有力，你自然不会想到后代。
-- [03:26:56] **speaker_0**：能明白我的意思吗？你年轻就是像我说的老牛要回头吃嫩草，为什么他年轻的时候想不开，他出去玩了十年，他为什么想回来了，生理机能下降了？
-- [03:27:12] **speaker_0**：腰也酸了，腿也痛了，眼睛也开始花了，熬不动夜了，有一点啊。
-- [03:27:23] **speaker_0**：社会上不就是社会不再以预期，就是不再以潜在母亲的身份看待看待他他的生育价值预期归零了。对。
-- [03:27:36] **speaker_0**：还有啊，就是我说一下，嗯，你们可能HV和劳A，你们都没有待过南方的乡村。
-- [03:27:45] **speaker_0**：我可以告诉各位，当你觉得你没有子女，就是像你说的，前面说的道德嘛。
-- [03:27:52] **speaker_0**：就很简单，你没有在一家人的那个为了呃老人走了之后的后事安排，你没有指着你在那里指着他们骂个一两个小时，跟他们吵个一两个小时的时候，你是意识不到家人有多重要。
-- [03:28:08] **speaker_0**：是懂吗？有人说五子不行，是的。
-- [03:28:20] **speaker_0**：说到底，你这个这个在社会之中，在社会之中，就是尤其是在一个人与人的关系越来越薄弱啊，越来越薄弱的情况之下，你最终落到你本人身上的。我们可以说威慑力或者说是影响力，是你可以无条件的摇来多少无条件的摇来多少人。是啊，注意是无条件的摇人摇来多少人。
-- [03:28:48] **speaker_0**：啊，就是有人总说是alex就是你在老家怎么有那么多干爹干妈干兄弟，你在美国怎么也认教子，还有那么多教法兄弟，就是我是一个人，我是一个我不是独立存在于社会的一个人，我是坚决否认自己是原子人的，我也不想当原子人，就是我出困难的时候，我一个电话要摇挨兄弟帮我，。
-- [03:29:16] **speaker_0**：我看日本人不顺眼，我一个电话就有叫法兄弟说我们马上就到我的我我有这种要求的，我是有这种需求的。
-- [03:29:30] **speaker_0**：啊，懂吧？我不能单独存在，我我也不想单独存在。
-- [03:29:41] **speaker_0**：一个好汉三个一个好汉，三个帮，一个篱笆，三个桩，对吧？
-- [03:29:50] **speaker_0**：啊，感谢感谢小胖都是老哥大赏。你好，老A，我的SC内容是老A最近老钟在开妇女大会，老钟会不会在开完大会后，就开始把你节目里说的能妇女呃能富一女都弄到脑中哎，那没有那么快是吧？但是也不至于就有这个趋势。
-- [03:30:10] **speaker_0**：我读一下，没有那么快。第二这个不要小看国产替代了。是感谢终极T90A老哥打赏。我在HV打世界大战理论进行发散，全世界打内战理论，只有每个国家都打内战，这样才能让全世界小仙女死去。
-- [03:30:26] **speaker_0**：嗯，一不要小看中国速度，二不要小看国产期待，好吧嗯。
-- [03:30:36] **speaker_0**：嗯，就是我我跟大家说明白，就是我说最再再度直白一点，我有信心教育好我的后代。
-- [03:30:48] **speaker_0**：有人说那老爷，你哪来的信心就能教育好你的后代呢？现在世界这么群蒙万物，各种思想这么冲突，很简单，我用道德去教育我的孩子。
-- [03:31:03] **speaker_0**：我用核心的、最直白的、最关键的、最有用的中国传统道德价值观去教育我的孩子。
-- [03:31:15] **speaker_0**：是因为我相信道德，我选择道德，我觉得我可以把孩子教育好，不相信后现代的鬼话。
-- [03:31:30] **speaker_0**：我不相信后现代的鬼话，懂吗？后现代的东西护不住我的时候，我必须找能保护我的东西。
-- [03:31:59] **speaker_0**：懂吗？有人宝就是就是就是现在很多人觉得教育不好孩子的一个非常重要的原因，就是他们太相信后现代了，或者是变得太原子了。
-- [03:32:18] **speaker_0**：有人老说有些东西是糟粕，是我说的很简单，就是我爷爷是吧？在诊所里面工作一天累了，回来由我爹给他洗脚。
-- [03:32:33] **speaker_0**：所以我爹回到家累的时候，我会给我爹洗脚以后我爹的孙子就是我的儿子，女儿看到以后，等我网了，他也会给我洗脚。
-- [03:32:49] **speaker_0**：感谢微笑的普提西亚老哥打赏，道德本身就是一种力量。比如王世强王宝强，为什么那么多人愿意帮他？而他前期现在啥情况？是啊。
-- [03:33:02] **speaker_0**：教育不好，孩子原因是没有时间工作太长。不是的，我父亲没有什么时间，我我小的时候家里穷的批棒。
-- [03:33:13] **speaker_0**：我爹每天忙的脚不沾地，太穷了，穷的要死。每年每年最核心就是每年秋天最核心的紧要关头的问题是把今年冬天的煤炭钱挣出来。
-- [03:33:33] **speaker_0**：吗？就是你绝大你放心，直播间的绝大多数人小的时候是没有我们家穷的啊，感谢这老哥大赏。对老爷先把剩下那种高人讲完，有些好奇，这俩得多重量级吧。
-- [03:33:50] **speaker_0**：就是要花心思，对吧？有的有的家长总觉得自己陪着孩子去钢琴班，上两个小时课，刷了两个小时手机，自己算是陪伴孩子了，那都是无用功。你本质上没有好好教育孩子。
-- [03:34:11] **speaker_0**：你放心，我爹绝对比绝大多数人的父母都忙的。你猜猜为什么有个词叫以身作则？
-- [03:34:31] **speaker_0**：懂吗？嗯，哎，我们把后两种讲完是吗？你们以为干蔗渣啊。
-- [03:34:42] **speaker_0**：啊，就很逆天了嘛，不够逆天啊，还有这个就是这个词叫什么叫recrystalization，什么意思？叫叫再捷精化。
-- [03:34:55] **speaker_0**：重洁晶我真行啊，生化了啊，愧是生化重结晶。
-- [03:35:02] **speaker_0**：什么叫重结晶呢？我跟大家说哈，我之前说的所有骑行种，它们都是以个体形式存在于这个社会当中的，就是他们是一个人，就是哪怕是甘蔗渣这样的，他可能在网上有个小粉丝团体搁那儿共振。
-- [03:35:21] **speaker_0**：我说的重接精是什么呢？它对美国的社会造成的影响是最大的是十0年前的女装博主啊，女权博主十0年后变成妈妈博主，养育博主、亲子博主。
-- [03:35:38] **speaker_0**：你懂我意思吗？就是十年前疯狂打拳，十年后恩恩爱爱。
-- [03:35:51] **speaker_0**：是他十0年前的那批结晶粉，在经过了10年的政治变迁以后，经济变迁以后，他必须把这些人重新都洗掉。
-- [03:36:08] **speaker_0**：懂吗？就是说的说的指这个国内的那个国内的案例，不就是湖江市吗。
-- [03:36:17] **speaker_0**：嗯，你看半步远打出来的吧啊，对对对对对，是吧？就是我就不说那个啊，哎别说，别说了吴江市嘛嗯对。
-- [03:36:27] **speaker_0**：是吧就之所以用这个说实话，这个胡江山不是我编出来的，是是女全集美，女全集美编出来的称呼啊。嗯只能说呃在在有用的时候和没用的时候，确实是啊确实是这个完全不同的两个态度啊。
-- [03:36:45] **speaker_0**：嗯，真的，有人说这对美国社会有什么冲击？
-- [03:36:58] **speaker_0**：我跟大家讲，他甚至是影响了底下这些人的全部的内容。为什么？就是为什么有人让老牛回头吃嫩草了，为什么有女人要跑到老中不在美国呆了？为什么有人想回归传统女性了？为什么他们十0年前关注的那个大V几百万粉的女权博主？
-- [03:37:23] **speaker_0**：你发现他1.1点的不维持她的女强人，女王人设，开始做小女人，开始回归家庭，开始领养孩子，开始生好几个。
-- [03:37:35] **speaker_0**：外孕都要生，就是完完全全活成了他当年的返利的样子。
-- [03:37:45] **speaker_0**：就是他们也不傻，每个人都可以感受到时代的变迁。就是原来那套人设维系不下去了，水真的开始往下退了。
-- [03:37:59] **speaker_0**：就是你他看着这个水位，从大从屁股到大腿根儿到腰呃，到膝盖骨，再到小腿，再到脚踝。
-- [03:38:10] **speaker_0**：有人真没穿裤子，博主不是他早挣他早靠粉丝挣了大钱了是吧？老娘没穿，我现场现场超时空传送一个老娘都能穿上。
-- [03:38:26] **speaker_0**：所以很多当年跟着博主一块儿把裤衩子脱子的女性发现，我操，你怎么把裤衩子穿上了？
-- [03:38:37] **speaker_0**：你还不是逐渐的支出来一条，你是他妈从超时空传送门里面抽出来一条，大大方方的穿上了，然后等着潮水退下去。
-- [03:38:48] **speaker_0**：你让我们这些粉丝怎么办？就是他必须充约金，就这些粉丝必须接受一个现实就是。
-- [03:38:58] **speaker_0**：女权那一套玩不转了，白左那一套玩不转了，懂吗？
-- [03:39:11] **speaker_0**：就是重结晶，她重新结晶的这些就是底下所有级别的这些女性都会是她重结晶的粉丝。
-- [03:39:32] **speaker_0**：怎么就黑手党，人走差天，黑法老不在位了，有人说失去利用价值了。
-- [03:39:42] **speaker_0**：你看你不要把话说的那么直白嘛，对吧？你看这个老哥就就不要说的那么那么直白，那么直白，多少沾点伤人了，好吧。
-- [03:39:56] **speaker_0**：就是总之他必须重新过分儿。
-- [03:40:03] **speaker_0**：就是他可能原先大几百万粉都是因为他的女权吸引来的那也不行，他要死了，否则到时候清算，他们这种有头有点有影响力的人，肯定是被事先清算的，尤其是在查理科克死以后。
-- [03:40:20] **speaker_0**：这种对于极端左右网红的清算才刚刚开始。你们不要以为杀右派就完事，左派一样要杀的。
-- [03:40:33] **speaker_0**：你们知道查理科克的死对这群人有有多大震动吗？通过搞极端凝固结晶粉。
-- [03:40:44] **speaker_0**：这一套在美国现在就是会引来杀身之祸，就是我还是不玩极端了是吧？我也不玩女权了，我现在就想回归家庭了，是吧？粉丝我都不要了，我。
-- [03:40:59] **speaker_0**：我必须重新结晶，就recrystalization结晶，我必须重新结晶以前的女权粉，再见再你妈的贱，我不要了。
-- [03:41:13] **speaker_0**：啊，是很多这些厦门这些级别的女性是怎么发生变化的？她发现自己以前最喜欢的女权博主跟她们做切割了。
-- [03:41:25] **speaker_0**：就是几天啊，姐姐好帅，女王好帅，集美你好帅，结果被人家博主一切割，自己傻了。
-- [03:41:34] **speaker_0**：自己成小丑了是吧啊，是吧小丑接好，你的红鼻子掉了。有人说那为什么不退网呢？
-- [03:41:49] **speaker_0**：退网也不行，为什么退网也不行呢？你退网如果不重新结晶，你的那些网上互联网记录都是罪证。
-- [03:42:01] **speaker_0**：就是你必须明对完了他的贷款，你来还啊，真的是是啊嗯。
-- [03:42:06] **speaker_0**：退完了，人家贷款你来还啊，赚多少赚多赚多大钱，欠多大债呀，我你你没有能力不看美国，嗯就不不许小看美利坚。呃，你你不你不集集结暗影卫队，你是没有办法发动岁月死书的。懂了吧？你必须要有地的暗影卫队，发动岁月死书跟带进行。是的啊，。
-- [03:42:33] **speaker_0**：感谢星辰爱心帮老哥大赏，我必须重新集结粉丝。对的，必须重新集结粉丝。有说不佣兵自重头驴呢，投不了。
-- [03:42:47] **speaker_0**：他们现在自己都切割不过来，怎么还管你哎，我说要有嫡气，对吧？那你以为呢？
-- [03:43:00] **speaker_0**：要有嫡气，就你你是没有办法的，你必须重新结晶。
-- [03:43:10] **speaker_0**：我攒就是比较典型的谁，就是泰勒斯维夫特。当然虽然他的定位是绿茶，他就是啊我结婚了，我要回归家庭，我要给我我要给我心爱的男人生孩子了。
-- [03:43:24] **speaker_0**：你们看到国内有多少那些女权博主破房吗？他们的感受是一样的，就是老娘要重新结晶粉了，就是我要重结晶。
-- [03:43:37] **speaker_0**：之前的粉丝在你妈的店在你妈的店，我必须有一批新粉丝核心粉。
-- [03:43:46] **speaker_0**：那么那么我们是否可以理解啊，这个属于呃在在矿卡像甘蔗渣的发展阶段之中啊，呃这个选择了其他选项而走上了另外一条直线。嗯，就是原本是从矿卡变甘蔗渣。，现在是从矿卡变重结晶。嗯，是重结晶女博主是吧？他有粉丝量的。
-- [03:44:10] **speaker_0**：感谢似水多年老哥打赏。按照禁卫军继承法，你不维护禁卫军的利益和地位，禁卫军就要做做到一件很经典的事，换个皇帝啊，是这样。
-- [03:44:25] **speaker_0**：是这样的，这个有人有人说那句很吓人的话了是吧？我就不说了是吧？嗯，老粉丝已经怎么怎么样，是吧？
-- [03:44:38] **speaker_0**：啊，就是有如说那男性博主都在干嘛呢？我都说了，美国现在的所有男性博主都是三步一主动是吧？不发信息，不约会，不说话，主动离婚。
-- [03:44:58] **speaker_0**：就是你们女人当时爱答不理，现在都想来当 traditional对ition no外婆了，你别沾边是吧？我们男人挣钱不容易。
-- [03:45:08] **speaker_0**：美国现在这个经济现状，你他妈别来沾边，我求求了是吧？啊，你刚才讲trareadlife那段我正好没在听。我想我不知道有没有您有说这个traread wife这个玩法，或者说这个打法，他其实也是利他其实也是利用这个宣传，利用社交媒体来公开的固定一个形象，来公开的故意形象。另一方面是和就是一方面是和这个普遍女性亲割啊，证明自己是就是突出自己作为好女人存在的个例，另外一方面其实也是通过发那种视频通过发视频啊，我主动去做三明治，男男人一掏烟，我主动出门啊？这种通过发这种视频，他故意营造一个就是自己是好女人这个标签这个身份。但是故意营造这个身份。
-- [03:46:04] **speaker_0**：你可以说他其实某种意义上算是呃。
-- [03:46:08] **speaker_0**：呃，嗯，就增加背叛成本的一种行为吧。对啊，那算是背增加背叛成本的一种行为来反过来试图取信男人。因为说实话，以美国男人现在的这个强度啊，就美国男人堆归也多啊。你刚才老魏也说了，但是。
-- [03:46:26] **speaker_0**：但是水温也已经太高了啊。对，你就女方不整点狠活，女方不整点狠活，男方是真的不出，男方是真的不伸手。是的。
-- [03:46:41] **speaker_0**：不伸手就。
-- [03:46:50] **speaker_0**：而且我还要跟大家说，就是你们知道这些女人最大的问题是什么吗？
-- [03:47:00] **speaker_0**：就是他们是有竞争对手的，就是我如上说的这些女人，大家要记住，她们的普遍年龄都已经20多岁、30多甚至40多了。
-- [03:47:14] **speaker_0**：你们知道他们最大的对手和他们的加强版是谁吗？就叫sugar daddy seeker。什么叫sugar daddy seeker？就是我就是来当三儿的。
-- [03:47:26] **speaker_0**：啊，我和那些妖艳贱货不一样啊啊，亲爱的是吧？啊，我年轻啊，肤肤我我肤白貌美大长腿啊。
-- [03:47:39] **speaker_0**：懂吗？就是我和他们不一样啊，我是我可以做他们所有版本的加强版。
-- [03:47:47] **speaker_0**：这个这个话我来总结一下，叫做男人不管几岁都要都要选十八的，我就要当那个十8的嗯。对，有诸er daddy seeker，就是这个对，就是你我就要当那个18的，是吧？那些想当tod能外的女人，他们都2十八了是吧啊，dady来看我是吧？我才十8。
-- [03:48:09] **speaker_0**：对吧啊，我这是年轻火候不粘人，我dady快选我啊。
-- [03:48:20] **speaker_0**：就你可以理解为原原本是就原本是这个这么说啊，相信相信他不一样的归男越来越少了之后，就开始出现劳魏说的这样的s ready seeker来还有traread出来。
-- [03:48:37] **speaker_0**：自我不一样了。是啊，感谢似水多年，鹅大赏，这不就是找堂爹那曲吗？对，说的就是。
-- [03:48:46] **speaker_0**：就是他的竞争就是他的他的磁性荷尔蒙太足了吗？
-- [03:48:57] **speaker_0**：哎，这这怎么说就归归男越多，被觉被归男越多，被吃干抹净的就越多，被吃干抹净的越多，这个这个男男性普遍朝规校规，朝规校规，乙女妓女的风气就越盛啊。
-- [03:49:13] **speaker_0**：然后然后就到了就到了这个try wife和那个serread stick的。
-- [03:49:20] **speaker_0**：是来自荐我不一样的这样的一个状态。所以就是就是归男越多，从归男多到从归男多到怎么讲，到主动的女人多，是存在这样的一个转化过程的啊，不要以不要以一时的局势来判断长久的发展。
-- [03:49:39] **speaker_0**：哥呢。
-- [03:49:49] **speaker_0**：就是就是他没办法，他优势太大了是吧？他年轻，他十八，我玩不过他就是。
-- [03:50:02] **speaker_0**：任何老女人都其实没法竞争，为什么？就是那张充满胶原蛋白质的脸，大长腿和和爆炸性的雌性荷尔蒙。
-- [03:50:14] **speaker_0**：就是很多苍很多人很多博主说的都是很苍白无力的，就这种这种suger daddy seeker。
-- [03:50:25] **speaker_0**：非常适应当下版本，现在经济不好，老娘一分钟都不想是吧？分分钟都不想，老娘就是漂亮，老娘就是要找个好男人是吧？
-- [03:50:38] **speaker_0**：你说你想当处dition no wife夫，你多大？哎呀，你都28了，我的妈呀，是吧学贷没还完呢吧，你看看我不一样，我18岁就出来了是吧？我就是要当爹地的心肝小宝贝儿啊，你比得上我吗？还学贷去了人对他他就这什么他他才十8啊，他连学都不，他连学都不上，他不给爹地欠钱。对？
-- [03:51:08] **speaker_0**：遇到这种他遇到这种你那种什么try life的版本，那就就转版本已经来不及了。人家是人家是直接是新版本，新角色新装备，知道吗？啊，直接打的伤害比你多一个0是。
-- [03:51:24] **speaker_0**：人家是巨龙，人家是巨龙时代版本的是吧？那个那个那个那个那个幻魔师知道吧？啊，人家是曾辉龙，知道吗？
-- [03:51:36] **speaker_0**：感谢似水多年老哥打赏，你的一切化妆技术穿衣搭配，在充满胶原蛋白质的脸面前不堪一击。哎，对的。
-- [03:51:46] **speaker_0**：就很简单嘛，你二8才开始拍才开始才开始警号try wife打上这个词条发视频。
-- [03:51:55] **speaker_0**：你16岁的时候干什么去了？对的。
-- [03:52:07] **speaker_0**：你遇上那你遇上十8的怎么办呢？那遇上这种这种这种什么这个GGgodady啊，goda seeker啊，不不是那种 seeker或者说是这种或者这种升级版的go digggger啊，升级版的go diggger，那你怎么怎么可能打得赢啊，不可能打得赢的是的嗯。
-- [03:52:28] **speaker_0**：有人说为什么打不赢，他的生育价值太高了，他的子宫是崭新出场的。
-- [03:52:38] **speaker_0**：你玩不赢的，他的子宫壁上的肌纤维是完整的。
-- [03:52:48] **speaker_0**：你能明白我在说什么吗？但是他屏幕上那层膜都没撕。
-- [03:53:00] **speaker_0**：对，原封他真的可以卖原价，他真的卖他真的可以卖原价，他的保修标都他的保修标还在街缝上呢。对，他就是原价，你怎么办？懂不懂崭新出厂的含金量呀？
-- [03:53:22] **speaker_0**：他真是原原厂原装，你怎么办嘛？对吧？
-- [03:53:33] **speaker_0**：3080，你真的要挑战吗？懂吗？就是你别觉得人家开价高是吧？
-- [03:53:52] **speaker_0**：他提供的价值是是是是配得上的。有人说这不就是全新未拆5090。对。
-- [03:54:04] **speaker_0**：嗯，是吧？就是他是会对其他的那些行成爆杀的。
-- [03:54:21] **speaker_0**：有时候那很竖值了。对那很竖值了，那，对吗？你想怎么还有人想要解决办法，你那我说个解决办法，你乐呵一听就完事了。
-- [03:54:41] **speaker_0**：啊，颞部门中，女性的平均劳动生产率大约是男性的58%。
-- [03:54:47] **speaker_0**：根据2023年美国的数据，在美国这样的一个高度服务化的经济里边，女性的平均薪水大约是男性的78%。而且随着学历和收入的随着学历和收入的提高，这一这一差距会拉大到74%。因为没有最低工资强行拉平两性差距。那换句话说就是啊女性在工作能力上就是58%到77%的男性。
-- [03:55:13] **speaker_0**：问题关键是，现在女性的收入在国内大概是89%，平均是男性收入的89%。
-- [03:55:20] **speaker_0**：啊，在美国在在美国那边的话是百分之就77%啊，说白了就是70%到80%。那换句话说，你以58%的77%的工作能力换到了70%，就是换到了77%到89%的劳动收入。
-- [03:55:38] **speaker_0**：中间的中间的这个差值就是补贴，明白吗？中间的差值就是补贴补贴给什么的？就是我们说的俗一点，就非要我把话说的，非要我把话说的这么直白吗？不生就是骗补。
-- [03:55:55] **speaker_0**：不生就是骗补是吧？是的，有人说118岁的go的serdady seekker太魅男了。
-- [03:56:10] **speaker_0**：这不是那妹男，这知道自己的价值，懂吗？
-- [03:56:21] **speaker_0**：同样的一同样一单位的劳动生产率，女性的平均工资比就是交给女性的劳动报酬多20%几到4%则多20%到40%。
-- [03:56:32] **speaker_0**：多出来的这部分是给劳动力再生产的补贴，明白吗？但凡但凡不生的，在全社会意义上就是骗补，哪怕在女性群体内也是什么，也是公贼啊。
-- [03:56:46] **speaker_0**：对，因为很简单，一个人一个人就是一个人这个就一个人啊。
-- [03:56:54] **speaker_0**：不搞家庭，专注事业，它实质上是在嘛？实际上是削弱女性整体的，就实质上是削弱女性整体啊，但凡所有女性都会参与到，都会参与人口再生产的这个预期越来越多，这个预期越来越削弱，越来越多，这个预期越来越削弱。那结果就是到最后你发展到现在这个状态。
-- [03:57:16] **speaker_0**：太平洋东西两岸，明算账的呼声越来越高，明算账算明战。
-- [03:57:23] **speaker_0**：感谢退坑的幕后人老哥打赏，给大家形容一下，就借用二友。当开服的时候，版本1.0的角色打10万伤害哇塞，好高好厉害。好啊，现在版本3.0喽，1.0老角色带上各种拐buff打了20万伤害可以吧，但3.0版本的新角色上了一随手一打就是一两百万，你1.0版本那老斑鸠怎么比，而且卡持还不降价，是谁有病，在3.0版本超1.0的角色。
-- [03:57:56] **speaker_0**：啊，再说了，我说我说实话，为什么为什么我我一直支持算明算账，算明账，因为我不想看见算总账。
-- [03:58:06] **speaker_0**：算总账太他妈吓人了，知道吧？我还是具有我我坦然承认自己具有就作为普通市民，具有小资产阶级的软弱性。
-- [03:58:20] **speaker_0**：即使我即使。
-- [03:58:22] **speaker_0**：其实我经常会考虑到一些说算总账的情况之下怎么样的场景，但我是归根结底。我从意愿上讲是不希望算总账的。尤其是你像那个屁大头的观众，就属于那种连人话都说不来听不懂的。什么补贴没几个钱，这是50%的人口，他的劳动价值被以20%到40的更高的数量计价的问题。你如果放到如果计算总类是万亿级的补贴，那可真搞笑，还补贴没几个钱，你还真当所谓的补贴是那个明着明着给的生育补贴的3005003335百什么。
-- [03:58:59] **speaker_0**：什么八什么什么八两千码块了，那根本不是那回事，那是影响GDP统计总量的数量底。好吧，说的直接一点，工业就是当年的统计数据嘛，15年的统计数据。
-- [03:59:14] **speaker_0**：男女双方的劳动力劳动力劳动能力就是劳单位实际上劳动生产率的差距是172比100。
-- [03:59:23] **speaker_0**：收入只有120只有112比100。嗯，那给男的给男的那边少的，给男的那边少的钱去哪儿了呀？那是搞笑吗？
-- [03:59:40] **speaker_0**：是吧感谢风言风语，老哥打赏赌一下。老爷我现在认为国内的男女关系和曾经冷战时期，中国和苏联很类似，曾经是无产阶级战友，能互相付脱性命同志。后来走过修正主义的苏联逼走，逼得中国和美国联手反抗苏联。后来苏联莫契祥和中国缓和关系，但是晚了，来不及了，裂痕造成了覆水难收啊，破镜难圆了。
-- [04:00:04] **speaker_0**：人死是不能复生的。后来咱们的关系是怎么缓和呢？苏联解体了，苏俄罗斯被他们的白月光北约孤立排挤，正反手大耳光子抽个几十年，把他们所有独立自主的想法都抽没了啊，只剩下汉语number one，老钟天下第一，三从四德万岁，女权是恐怖主义，我不要彩礼，我要拿前线士兵的抚恤金当嫁妆，求着老钟看看我，所以现在谈什么男女缓和都没意义。现在苏联还没解体呢，离俄罗斯靠我还有几十年。
-- [04:00:39] **speaker_0**：事情我就我就很烦，我就很讨厌讨论这些事情。因为我这个话一说出来，很多话一说出来就发早就。
-- [04:00:48] **speaker_0**：太丑陋了，明白吗？很多话一说出来太丑陋了，太太难听了，就是这话说出来太难听了啊，就是。
-- [04:00:56] **speaker_0**：呃，如果为为什么就直说了，为什么对于甘蔗渣啊，为什么对于甘蔗渣对于停水停电的而言，生活突然变得极其残酷。
-- [04:01:08] **speaker_0**：因为很简单，那20%到40%的补贴的理由不存在。是，就是说没有了这个就在物理上，你不具备匹配这种优待的能力了。女性不具备匹配这种优待的能力了之后。
-- [04:01:24] **speaker_0**：他就要回归58%到77%的工作能力的对成年人的这样的一个定位。呃，这个落差是非常巨大，非常残酷的，就是童话不在了，就是。
-- [04:01:41] **speaker_0**：是40多年左个这种账轻易算不得，我非常讨厌，但是你很明显你持续的故意掩盖问题，说白就是不教育，只通过互动，让人体会到这种问题的话，他在互动之中产生的体验往往不是很好啊。
-- [04:01:56] **speaker_0**：身份尤其是涉及到身份政治的时候，那你身份政治的过程中，你因为身份政治而什么身份政治的互动而产生的负面影，负面印象是极其持久和牢固的。
-- [04:02:10] **speaker_0**：嗯，没事，你先念SC嗯，已经很够意思了，放眼全世界，看看其他国家是怎么控制工作岗位，把女性逼回家庭的，别逼到大家走那一步很难看的。
-- [04:02:22] **speaker_0**：离回家庭都不是什么事儿，你知道？这真他妈吓人那是说呢，你你看俄俄俄罗斯打仗，发现要男人卖命的时候，直接哎。
-- [04:02:34] **speaker_0**：战争第一年宣布性变态啊，战争第一年宣布性变态是非法的。战争到第三年的时候，已经宣布女权主义是恐怖主义的。
-- [04:02:45] **speaker_0**：啊，虽然说到现在为止还是处在杜马立法的阶段，而且还是说完还是说需要需要男人卖命的时候这个状态。
-- [04:02:58] **speaker_0**：但其实这个还不是就是还不是恶化到最后的情况。
-- [04:03:15] **speaker_0**：就是对那有更直接的是吗？那体现你的价值吧，你要觉得你和男性一样，乌克完真把女人送上战场。
-- [04:03:27] **speaker_0**：那你看看吧，这没办法的。
-- [04:03:37] **speaker_0**：没办法的，就是现在现在目前全世界就到这个版本了，就是。
-- [04:03:49] **speaker_0**：感谢这样道德的嗯就道道德的基本逻辑路线，就道德的这个基本逻辑叫非特定对象的长效期待。
-- [04:04:00] **speaker_0**：是说第一是这个长效。其他换句话说，就是他的回报，它的作用就是它的因果因果报应。我们就说这个因果报应不是当时的，不是计时的，然后是而且它是非特定对项目。
-- [04:04:15] **speaker_0**：嗯换句话，这但是非特定对象长效期待这个东西。哎呀，嗯怎么说呢？这个逻辑这个逻辑被破坏的太严重了是。
-- [04:04:29] **speaker_0**：而且他使用嘛？他只有你持续的参与持续的参与劳动，持续参与劳动情况之下，你才能够说能够理解啊。
-- [04:04:41] **speaker_0**：在实践这中提升认识，才能够理解这个东西，很不幸。
-- [04:04:46] **speaker_0**：很不幸很不幸就算了，你先念吧，真的是我先念一下S说到底，有的群体喜欢上桌谈，那大伙可就起劲了。男人老狗知道自己几斤几两，你要是不知道，可以让大伙帮你上称看看你不觉得存在优待和补贴，对比你自己分别有多少斤的呀。
-- [04:05:05] **speaker_0**：但是有个问题，下次辞竞下次竞选啊，哈哈姐或者白走卷土重来，表面上这群高人会不会再次反弓倒蒜，以及劳魏能不能讲讲劳魏这样特别open问稿的氛围下，还会有多少老师站到老师写像大概是怎么样呢？
-- [04:05:21] **speaker_0**：在美国实际上不存在真正的义上的老实人了。谷歌那群ner儿的们玩的比谁都嗨，懂吗？只是他还没钱，有钱了玩的比谁都嗨。至于你说哈哈姐竞选或者白组冲突，卷组重来，美国就是现在这样，就是我说过他是个憎物，你知道吧？
-- [04:05:40] **speaker_0**：他每竞选一次就撕裂一次，然后再重新拿针线缝一块。
-- [04:05:46] **speaker_0**：这个针线是谁制作出来的呢？那些美国美国政治政坛里面那些老家伙们，那些还有着一些社会共识的人，那些精英的官僚们在纺织的这些这些缝合线。当这些老官僚们死的差不多了，共识彻底失去了，这种缝合线拼不到一块的时候，美国就是一摊烂肉了。
-- [04:06:13] **speaker_0**：就是他连赠物都拼不起来了。呃，这么说吧，就是也是是。
-- [04:06:22] **speaker_0**：对有对这个问题的一个补充吧。算是，实际上全世界现在都面临一个很大的问题，就是劳动妇女的数量正在减少。
-- [04:06:32] **speaker_0**：啊，但是呃劳动妇女他他在相对神奇老中，你的神奇老中最后一次公布妇女劳动参与率的时候，已经到了一个非常幽默的数字。
-- [04:06:43] **speaker_0**：就那就叮叮咚基叮咚基之后，当你讨论国女的时候呃。
-- [04:06:52] **speaker_0**：有一半以上的概率，他并不劳动。也就是说这种，但是问题关键是对于女性的待遇。
-- [04:07:02] **speaker_0**：还是以还是以那个曾经的劳动参与率的状态之下制定的不啊吧，或者还是以那个年代遗留下来。但是在但是现现状就是在叮咚机之后，当你谈到国女的时候，他有50%以上的几率并不劳动。
-- [04:07:23] **speaker_0**：哎，确是就但但是呢这个呃劳动妇女是仍然存在，虽然他已经变得很幽默，他这个数量已经变得很幽默就是。
-- [04:07:37] **speaker_0**：就是我们要认识到一个点，就是如何使妇女重新回归牢动，嗯，给他们真正应该得到的地位。
-- [04:07:48] **speaker_0**：这样他们就不得不为了生存而回归劳动，然后就会正常许多啊嗯。
-- [04:07:58] **speaker_0**：啊，我看一下啊啊，感谢感谢提审亚祖夫马哥SC啊，套用一费啊，OK.
-- [04:08:10] **speaker_0**：啊，批评第三波女权的白走价值取向的时候说过，你们边缘反对中心第呃没有意识到当代女性权益脖子上套着脚锁的有两个能让他们被能够让他们被赦免，成为现代社会公民，而非署民的垫脚箱。一个是声育，二是生产。如果你们执意把这两个垫脚箱踢开，那非但不会收获你们追求的第一爱，还会收获他的反面，女人脖子上的角锁收紧了。你们的理论凭铺过现代女性权益通往奥斯维新的铁轨。
-- [04:08:47] **speaker_0**：是吧就很多话就是说的就是哎呀说的还是不够难听。我我说句更难听了，就他真的饿的皮包骨头了。
-- [04:08:59] **speaker_0**：就是我们承认这些这个不愿意参加劳动的女性会有一些呃直接饿死，说句很难听，他们会直接饿死。
-- [04:09:10] **speaker_0**：这个情你你是否在查询日本营养失调啊，营养失调死是。
-- [04:09:20] **speaker_0**：就那就他们日服就非常的夸张了。日服的日服是啥？日服是咋说这个。
-- [04:09:29] **speaker_0**：就是她日服的女性是被挤在渣男和草石男中间，不要小看草石男，好吧，千千万不要小看草石男。
-- [04:09:45] **speaker_0**：啊，当当一个男性当一个男性，他既不追求升值，他真不追求进步，也不追求成家的时候。
-- [04:09:57] **speaker_0**：就他既不追求进，他完全不追求进步的时候嗯。
-- [04:10:08] **speaker_0**：那那那他的性价比，那他作为一个那就是首先它性价比高，其次他不追求进步啊。
-- [04:10:20] **speaker_0**：非常吓人，这不是不是无敌之人的问题，这不是无敌之人的问题，就是他也不搞事儿，他就往那一摊。
-- [04:10:31] **speaker_0**：他就往那一坐，他就上他就上这个班啊，但是有那么一点点不同，就是他真的可以一个月上28天。
-- [04:10:43] **speaker_0**：稳定的刷新啊稳定刷新提稳定运转28天，还能够还能够处理一些意外情况和和解决一些意外需求。
-- [04:10:55] **speaker_0**：嗯，那是那是性价比少年性价比就是他是他是写字楼底的和尚。
-- [04:11:07] **speaker_0**：懂吗？就是没有那种尘世的欲望啊，单纯就是上个班撞个钟。比如说这不是好员工吗？对他会把女性挤出去。
-- [04:11:18] **speaker_0**：对他确实是好员工，唯一一个问题就是他相当于他他他会他会沉到最底下，然后极其稳定啊，他会沉到最底下，极其稳定。
-- [04:11:28] **speaker_0**：就怎么讲？50年内无法分解，嗯，就4445十年不分解吧。
-- [04:11:37] **speaker_0**：那那你猜谁会被谁会被他们卷出去，谁会被他们卷出去，干着招呗。
-- [04:11:54] **speaker_0**：就真正恐怖的还不在这儿，就是那些女性在被饿死了一部分以后，呃，会有一些这个对。
-- [04:12:03] **speaker_0**：呃，会会直接破口大骂啊，会直接对这个赛里斯或者是希大的政政体直接破口大骂，然后引发一波这个很恐怖的社会舆论。
-- [04:12:16] **speaker_0**：当是没有用，因为真正的真正的怎么说呢？老中和希大都不是善人，老中和希大是不养全人的嗯。
-- [04:12:28] **speaker_0**：然后他们就会残酷，并且绝望的意识到这一点以后，他们只能被迫乖乖的重新回归到他们应该存在的阶层中。
-- [04:12:38] **speaker_0**：今天秀出来这个问你你你是否在查询数二克电视剧啊啊，就那个那个彻第二科电视剧那个多少有点太颠了。
-- [04:12:49] **speaker_0**：太点了啊，说树树木二科的故事好就好的都找了纷纷成功的和正式工和正式工结婚上岸了。
-- [04:13:00] **speaker_0**：Okay.
-- [04:13:01] **speaker_0**：读一下还有谁21岁本考二研嗯，21岁本考二战研毕业4至5年战国考，可以保证一个人在30岁前完全脱产，证明转移支富力够强力，衰退和停滞的疗效不及预期。呃，那个主要是由中国的传统道德保证的。
-- [04:13:23] **speaker_0**：懂吗？就是家里真的供你，真的养你，不会学欧，成年之后成年之后自己付生活费就老实了。
-- [04:13:35] **speaker_0**：乌尔科啊。
-- [04:13:47] **speaker_0**：感谢40多年老哥打赏。现在一些案例能在网上大面积传播，某种程度上说明一些问题，是希望大家了解和抵抗，碰撞出一些共识，别逼到行政手段那一步，会无辜伤害很多人，造成恐慌现象，实在不好看。
-- [04:14:05] **speaker_0**：身身份证治这个东西麻烦就麻烦在这里，就是你不可能只。
-- [04:14:11] **speaker_0**：就不可能只让其中一方打身份牌，而不让另一方形成身份共同体啊。那天那个那是我4个月前吧，直播时候说的话。
-- [04:14:25] **speaker_0**：That change.
-- [04:14:27] **speaker_0**：前一句叫两勺一宽，两少一宽的最终产物是害人。第二句叫女权的最终产物是男人。是的，就是当你你要是能听懂的话，你知道这个话就你要是能听懂，你应该你应该能从骨头缝里感觉到一种含义，或者是怎么讲啊，或者是战斗爽战斗爽的快感。
-- [04:14:47] **speaker_0**：是吗？是说白了就很简单，就是当你形成我和我们这个概念的时候，他者和他们就形成了。
-- [04:14:56] **speaker_0**：就他不需要自己出手的，就是你框定了你的群体以后，他者自动形成别的群体。
-- [04:15:11] **speaker_0**：就是画一条线实际上是区分了两个东西出来，不是一个。兄弟们，你记着就是你这条线画的越清晰。
-- [04:15:24] **speaker_0**：分离就越大，懂吗？就我们这么说，就是实际上在现在我们要面临一个很严重的问题。
-- [04:15:39] **speaker_0**：就是如果这个事情真的会发生的话，就及我跟HV现在说的这个事情真的会发生的话，那么这个。
-- [04:15:48] **speaker_0**：呃，未来的劳动就未来的女性里头会划分出两个东两个阵营，一个叫劳动女性啊，不对，三个阵营，一个叫劳动女性啊。
-- [04:15:57] **speaker_0**：但是他们还略微有一定的女性倾向，还有一种叫做我完全倾向于男性的权益的。我就是要讨好男性的啊这一部分的女性还。
-- [04:16:08] **speaker_0**：一部分就是纯粹的女权主义。那之后会发生什么？我觉得不用多说了。有人说美国这种现象。
-- [04:16:22] **speaker_0**：会发生在我们这儿吗？你自己想是吗？我也我们也不吓唬人。
-- [04:16:32] **speaker_0**：我们也不会说说说说说说冷的了，嗯，劳动性还是会有的。哎呀，劳动女性还是会有的，但是比例再这么下降的话，尤其是经济继续这么高质量增长下去的话。
-- [04:16:46] **speaker_0**：哎，就这很简单吧，你经济经济是高速增长的时候，那自然是就是那那自然是是是需要人手。
-- [04:17:01] **speaker_0**：是吧自然是需要人手，性价比不那么高啊，运作稳定性不那么强的劳动力也是要的啊，但是。
-- [04:17:12] **speaker_0**：从高速发展阶段转入高质量发展阶段之后，这咋说呢？错过招这个过招的动这个扩招动机啊已经逐渐从用人单位转向了教育机构。
-- [04:17:33] **speaker_0**：我都有点恶魔啊，是吧？说的有一点恶毒，有是吧？这个这个破招行为已经逐渐从用人单位转向了教育机构的状态之下。
-- [04:17:46] **speaker_0**：那用用人单位就需要考虑一下用工成本和用工性价比。支付宝到账5。
-- [04:17:59] **speaker_0**：你如如果有一个如果啊有一个劳动力，它可以每天稳定运作12小时，1个1个月运作28天。
-- [04:18:12] **speaker_0**：啊，另外一个，无论如何不可能稳不可能运作超过23天。，那怎么办呢？你看起来好像老婆我们放快一点，25天。
-- [04:18:27] **speaker_0**：你看起来是三天的差距，但是在用工成本，但是在效率上，这肯定是10%的性价比的差距。是的。
-- [04:18:39] **speaker_0**：读下SC，感谢渴望不止老哥打赏。说起干活，我当年毕业实训去电子厂流水线，一天12小时加班刚到14个小时，不到两个月，十几个女同学都出现了腹痛或者头痛。而我们这帮男的除了外表邋遢点，甚至还有精力打群架。
-- [04:18:58] **speaker_0**：啊，是啊，我们男性是被这么设计出来的，一方面是设计，另一方面也是训也是训练出来的。
-- [04:19:16] **speaker_0**：极为难弦酒重苦。
-- [04:19:21] **speaker_0**：就就就这个咋说，你不但凡是个工作，只要是个真工作啊，而不是一个而不是而不是一个纯粹为了饲养人类啊，而而是一个岗位，急危难险九重苦。，这7个字迟早沾上一点。
-- [04:19:38] **speaker_0**：这七项要求里边一项差上一点，一项差上一点，这合起来气维的差距可就不只是一点。
-- [04:19:52] **speaker_0**：感谢无火老哥打赏，能帮忙想1个OW的逆天ID吗？快是吧？二游社区的老哥们快帮忙想一个逆天ID。
-- [04:20:06] **speaker_0**：哎，不用搞哥是吧？回去玩OW啊，需要逆天ID哎。
-- [04:20:15] **speaker_0**：这有有些有些不是很好的ID其实我脑海里回想起了很多逆天，我不敢说鲍米考迪克如何。
-- [04:20:27] **speaker_0**：我哎呀，我我连暴雪都能原谅。对对，这就挺好是吧？
-- [04:20:37] **speaker_0**：你就取这个ID吧，我我连暴雪都能原谅。感谢我问娜啥，如果某些群族群想保证抓娃子的传统能够得到元系，那为了保护这种传统的族群是要付出巨大的额外代价的这这里面包括族群的未来。
-- [04:20:57] **speaker_0**：嗯，40感谢4水多年老哥打赏，真不希望走到那一步。我看过一些资料，早期一些女矿工未道子宫脱落的程度真的很不好。
-- [04:21:08] **speaker_0**：你猜猜苏联为什么骂被骂呢？就是他真让女人下矿。
-- [04:21:15] **speaker_0**：就虽然我我是很讨厌这个呃就是有一个称呼坦克啊，这个坦克的称呼是美国人先搞的。他们这个是因为他们称呼那个苏联的女矿工，劳动妇女，因为长期劳动，所以身体过于发达。
-- [04:21:32] **speaker_0**：啊，他们把女性雾化了，但是我有一点不得不替苏联老大哥说几句好话。苏联老大哥是为数不多的，真正把女性投入到真正的生产实践中的。
-- [04:21:44] **speaker_0**：并且，伟大的苏联劳动妇女在为这个呃共产主义的发展和进步做出了不可磨灭的贡献。
-- [04:21:58] **speaker_0**：就说到底，还是没法解决一个问题，就没法解决一个什么问题。
-- [04:22:08] **speaker_0**：呃，在在看起来无止境的增长，终于告一段落的时候。
-- [04:22:19] **speaker_0**：你怎么能让用人单位，就你怎么让用人单位去用一个平均质量80%的劳动力80%，这还是这说白这还是说的保守。
-- [04:22:45] **speaker_0**：哎，如果不让人劳动的话，那他没有经济，就没有经济权利，没有经济权利，随之后就会丧失一切权利。
-- [04:23:00] **speaker_0**：是。
-- [04:23:05] **speaker_0**：说到底就我一贯是倾向于选择我一贯是倾向于想一个什么想一个不那么暴力的解决方案。但是你看但是现在的问题就是我选了一个不那么暴力，不那么激进的解决方案，还经常被人认为是很激进的。你想在这个问题上，我的想法就是例行同工重酬。
-- [04:23:27] **speaker_0**：这个力是严厉的厉啊，注意是例行同工同酬好吧？不是同岗同酬，同辈同酬。
-- [04:23:38] **speaker_0**：同集同酬，力行同工同酬。是的，就是我就我相对我一直是一个比较温和的人。
-- [04:23:49] **speaker_0**：唉。
-- [04:23:52] **speaker_0**：感谢退空幕后人老哥打赏老A又是一个例子。310的真正的全女家庭，两个单亲妈妈得带两个小女孩，在310比较艰难的生活，两个妈妈都要上班，两个小女孩必须自己上学，周末两个妈妈也基本只有一天能休息一下。不过好在两个孩子爷爷奶奶都还在，周末接手照顾一下孩子。在这个家庭里面，因为父亲这个角色的缺失，必须所有人共同分担。父亲这个沉重的角色。不过好在两个妈妈都算收入不错，能维持住。有句话是对的，在社会结构里，男性不是一种性别，而是一种负担权利和责任的地位。真男人缺失了，就有女性自动递进，有所有全女简直可笑。
-- [04:24:39] **speaker_0**：即即使是即使是百合情侣，也要有一个教材礼嗯是。
-- [04:24:50] **speaker_0**：就我这么说吧，就是实际上实际上呃我们不讨论这个呃男就是两这个男性到底要不要承担这个责任，就是。
-- [04:25:03] **speaker_0**：呃，我之前因为大家想定的是这个男性要承担这个责任。但是实际上呃在我观察的很多家庭里头，呃，男性不一定是百分百要承担这一责任。
-- [04:25:15] **speaker_0**：这个责任是被分摊到了两个人身上以后啊，他们会做出一个选择，就及他们要扮演的角色。就是有有一些家庭是这样的。
-- [04:25:27] **speaker_0**：呃，实际上有一些家庭里头像父亲这个角色，他的一部分是被母亲的劳动所取代了，而父亲则要扮演那个母亲的角色。
-- [04:25:37] **speaker_0**：啊，嗯但是呢还有一种是父亲承担了这个责任的40%，而剩下的60%由呃工作工资更高的母亲所承担。
-- [04:25:48] **speaker_0**：啊，这样的例子也不少啊，但是说到底，这个是夫妻之间的一种妥协和相互，这叫什么相互试探的一种结果。
-- [04:26:01] **speaker_0**：啊，就这就有句话叫贫贱之家，百事衰啊？嗯，现在的问题就是从高速发展到高质量发展之后啊。
-- [04:26:13] **speaker_0**：或者说这个就自11自1968之后又过了一个康德拉GF周期之后，你这个是这个。
-- [04:26:24] **speaker_0**：整个资本主义世界该怎么办呢？问题啊，无像SC感谢我们昭昭满天星辰老哥打赏。
-- [04:26:34] **speaker_0**：我给大家说个东西，小仙女骂你废物，大家会呵呵一笑。秦良玉老将军骂你废物，大家只会觉得自己能力不行。
-- [04:26:43] **speaker_0**：啊，自但自古有多少女人比得上大名女战神呢？你牛逼，你能打你骂人都是对的。
-- [04:26:51] **speaker_0**：是。
-- [04:26:52] **speaker_0**：感谢4水多年老哥打赏，目前是靠强制性要求用人男女比例带来的结果是做不工办公室的越来越多，跑外勤的越来越累，更必提全体全呃全传奇女HR的girlhelps girl招聘原则，以及逆天的上岗就业驾孕驾，把用人单位搞得愈先欲死啊，是这样的。
-- [04:27:13] **speaker_0**：现现在还处在一个用人单位幻想，自己招进来的是劳就是用人单位还在这个用人单位的人，他的对女性的幻想主要形成于劳动参与率70%的时代啊，而不是这样1个2020年之后都不关都不都不公布妇女劳动参与率的现状，好吧。
-- [04:27:34] **speaker_0**：这个他还在处就用人单位目前还处在学教，就吃教交学费阶段，还还在学还处于吃教训阶段嗯。
-- [04:27:45] **speaker_0**：还处于吃教性阶段，别急别急，就日本有日本的解法啊，老东大也一定有东大的解法啊吧。
-- [04:27:56] **speaker_0**：树木科是一个很日本的解法，东大这边怎么解，我暂时我也我也不知道我也想不出来会怎么解，但是肯定肯定有办法解啊。
-- [04:28:08] **speaker_0**：嗯，感谢你离春煌老哥打赏，上图基本有点沉重，来点宵夜。嗯，感谢铁拳亚佐夫老哥打赏点歌声音大一点。
-- [04:28:20] **speaker_0**：猫尾能不能不要再去当陪酒女了，喵喵勿养你啊。
-- [04:28:31] **speaker_0**：我的神龟归超龟之歌，我天，我的我的我操我的爆表，我我的粉丝都是逆天巨魔，你知道吧？
-- [04:28:42] **speaker_0**：巨魔时间到了，不行了，我的我的粉丝没有一个正常人坏了啊，原来博主也不正常，那没事了。
-- [04:28:53] **speaker_0**：就是巨魔之间会相互吸引的。我感觉我的直播群早晚有一天变成巨魔说的，你们现在还在想妈妈岗，你知道我想的更更他人的事情是什么吗？
-- [04:29:06] **speaker_0**：更吓人的事情是，用人单位就是大量不归用人单位所用的男性劳动力。
-- [04:29:16] **speaker_0**：就确实是他妈干不下去的啊，你这个行政规定很牛逼啊，那不光是规定的比例，还能规定谁职位。你最后的结果是出现什么？出现这个就是第一是单位本身的效率下降，真实性的出现。
-- [04:29:32] **speaker_0**：出现大量不在用人单位，就是不在这些。说白了不在法律能管到的用人单位。
-- [04:29:41] **speaker_0**：所聘用的劳所聘用的男性劳动力，我不知道这个话拐了两遍，拐了两遍，有没有人能听明白啊。
-- [04:29:54] **speaker_0**：哎，你知道我想到了什么？快递小哥啊，还有还不止还有那个呃分公司转那个转转给另一分公司，然后只要有一个分公司，他们。
-- [04:30:06] **speaker_0**：呃，签了这个合同，而且因为他不是在一个分公司不停的工作，他是不定期要转，就他一定不会满足那个40小时啊。
-- [04:30:18] **speaker_0**：所以他一定不会有社保，，这就是伟大的法律漏洞嗯。
-- [04:30:29] **speaker_0**：你们是喜欢你们是喜欢依法治国，还是依法治国？外包外现在就是外包就会出怎么说外包会出现这样一个问题，就是他的人事关系不在你这，你真的管不到他。
-- [04:30:47] **speaker_0**：是哎，读下SC。
-- [04:30:54] **speaker_0**：感谢这老哥打赏点一个和主题没关系的轻松点视频，难得看到1个AI生成即喜感又不至于低于过于低呃低于过头的视频，以及弹幕总有人说我也干活，我也加班半个月，为什么对我们恶意这么大？我的评价是真要量化比劳动贡献比惨吗？women我得砍IC？
-- [04:31:17] **speaker_0**：哎，不是你坐在那10个小时，他也坐在那10个小时，你们两个干的活是一样的。
-- [04:31:27] **speaker_0**：有时候背景音乐声音有点小，这个歌实在是过于撕心裂肺了，我不是很想我。
-- [04:31:37] **speaker_0**：我这么说，就是劳真正的劳动妇女不应该在现现在应该在这儿发言，就真正的劳动妇女现在应该在哪呢？应该在那个矿矿井下头。因为因为。
-- [04:31:50] **speaker_0**：呃，我这么说啊，就是真正已经依法禁止工作了啊，已经禁止依法禁止下井。对，就真正的劳动妇女是在林场的这个伐木小屋里帮这个呃矿工制作宵夜，或者是呃在这个矿井里头帮这个矿工们制作宵夜的。
-- [04:32:09] **speaker_0**：包括凌晨的这个工作的采矿的矿工啊，制作宵夜的对，这是这是劳务妇女。嗯，就现在这个版本的劳务妇女是这样。
-- [04:32:20] **speaker_0**：哎，嗯，读一下SA是吧？感谢墨雨的人老哥打赏。劳魏，我得向直播间的朋友们道歉，对不起，做出不好的表率，请所有朋友们一定要记得有病及时就医，别自己整暗活，不然等到自己给自己搞伤的时候，医生给你涂协和炎药，那是真受罪。
-- [04:32:40] **speaker_0**：老哥，你不会是那个把用用用那个那个针灸罐给自己那什么抽出来的那个吧，他妈的。
-- [04:32:51] **speaker_0**：啊，不行了，我的直播间巨魔太多了啊对，掏世天石那个坏了，我操啊，什么拔罐超人我。
-- [04:33:02] **speaker_0**：天，我我他妈负压速压速压抽虚法，尿道闯天关，我操。
-- [04:33:12] **speaker_0**：啊，太他妈狠了啊，不行，我我我直播间巨魔太多了。
-- [04:33:24] **speaker_0**：哎，我当时就觉得他妈要出问题，我操我我我跟你讲，就感觉不如上世纪的这个老灯啊。
-- [04:33:35] **speaker_0**：呃，觉得觉得这个身体身体这个不太好啊，想来点这个降糖灵啊，觉觉得身体太胖了啊，来点降糖灵，喝这个中药降糖啊，结果一看这个中药酒加的是降糖灵，嗯然后结果低血糖晕倒。
-- [04:33:53] **speaker_0**：啊，而这就是我奶奶干的事啊，这咱这这个不是你看这个你看很多感冒冲剂，各种中药成分，最后最后给你来一个普热系毒。
-- [04:34:11] **speaker_0**：嗯，感谢4水多年，我哥打赏说，是的，面对一些强制性的社会保障卡死，一些公司老板选择逆恋武功秘籍，没法开掉你。那么我选择解散公司，再重新组织。
-- [04:34:24] **speaker_0**：不有啊，我是来解散这个乐队的，你是来干什么？那就是这样，对吧？
-- [04:34:35] **speaker_0**：绝命绝命厨师可还行，baking bread, bakingking bread,还有更地狱的呢嗯。
-- [04:34:49] **speaker_0**：就是当熬问处雨回家发现这个某些问题的时候，我这个呃决定补救。
-- [04:34:59] **speaker_0**：结果他们悲哀的发现自己打不开电，就是他们悲哀的发现自己的互联网发言水平不怎么高。
-- [04:35:08] **speaker_0**：哎，就这个是真的悲哀，就这种这种劳动赋予真正特点。就咋说呢？有有tra life就不错啊是。
-- [04:35:18] **speaker_0**：有穿万就不错了。我现在的问题是发生才能存在，但是很多人发不了深。
-- [04:35:27] **speaker_0**：哎，真正的劳动妇女发声被当成串子啊，感谢我我伟大宝哥打赏，事已至死，来看点黑暗六底，开心开心。
-- [04:35:47] **speaker_0**：坏了，巨魔又出现了。
-- [04:35:58] **speaker_0**：picking哎呀，我天，粉丝太多了，你们哎。
-- [04:36:08] **speaker_0**：我他妈要笑死，嗯，我的妈要被。
-- [04:36:16] **speaker_0**：我要说一下，呃就是呃我跟你们分享一下我我身边的一个故事，就是我的姥姥是一个非常标准的劳动妇女，尽管他是在南高丽工作啊。
-- [04:36:30] **speaker_0**：但是他在41岁的时候生了8个孩子，是截止到41岁生了8个吧。对，截止到41岁生了8个孩子。
-- [04:36:43] **speaker_0**：然后有两个还是那个最后活下来就有8个，他实际上他最后最后生了实际上是10个，他最后活下来的只有8个。那那比我奶奶强，我奶奶生个10个，活了7个。
-- [04:36:57] **speaker_0**：然后怎么说呢？就是我那个姥爷很想要个男孩，结果很可惜啊，我我我姥爷和我姥姥努力了半天啊。
-- [04:37:12] **speaker_0**：1个孩子只有一个是男的，然后还好还好这个我的这个舅舅他活下来了，然后结果之后染上了赌博哎不说不说那。
-- [04:37:27] **speaker_0**：感谢花南花过老哥打赏是吧？点首要嫁就嫁灰太狼可还行，这是有年头啊，这人。
-- [04:37:40] **speaker_0**：真的真的，你说可以点歌吗？可以点是吧？
-- [04:37:51] **speaker_0**：要说该该该读概率学了，概率学博士是吧？
-- [04:38:01] **speaker_0**：哎，现在的现在问题很多人就是是一个概率问题，概率和预期嘛，也就就概率就就咋说。
-- [04:38:11] **speaker_0**：概率和预期以及就基于预期的很多上层建筑。你现在预期发生了变化，但是原本的上层建筑。
-- [04:38:20] **speaker_0**：和这预期不匹配啊，妇女劳动参与率70%百分之妇女劳动参妇女劳动参与率79%，我操76%最高的时候。
-- [04:38:34] **speaker_0**：76%时候定的政策和百分之官啊，和不在公布时候的现状，这很明显是不匹配的，而且不是政策的问题，你观念。
-- [04:38:43] **speaker_0**：很多观念是延续下来的啊，更恶心的就是就是就是咋说呃这个。
-- [04:38:54] **speaker_0**：威威胁到就威胁到他们威胁到他们生理功能的稀缺性，时就是昏迷啊吧？没威胁了之后，就是没没威胁的时候就带入啊。
-- [04:39:12] **speaker_0**：哎，那只能说未来社会最好啊，强制有一些义务。
-- [04:39:21] **speaker_0**：你们现还有点存在它这的价值。嗯，有人问那个40%不劳动，参与不劳动的数据来源，我要拿回来做啊截图。
-- [04:39:31] **speaker_0**：查什么数据，我应该能查到的最后一次嗯妇女劳动参与赋予赋予劳动参与是吧？应该是20年应该是20年最公布一次，再往后就不太好看了，估计是。
-- [04:39:49] **speaker_0**：校正回归也校不来，也顾校正回归也叫不回来了。是我挑开命位的面纱，看到的都是好事，可还行。
-- [04:40:05] **speaker_0**：那可太好了，太残忍了嗯。
-- [04:40:14] **speaker_0**：嗯，这咋说呢？呃，你你如果按照这个时候就要就要就就就要用那句经典名言，你还能有老祖宗聪明。
-- [04:40:30] **speaker_0**：啊，妇女年二十不婚者还是年十十几不婚者啊，就是女子二七天春日可两个字叫什么吗？叫武算。
-- [04:40:44] **speaker_0**：五算是什么意思？5倍的人头税按5倍的按5倍收税，按5个人收税。
-- [04:40:53] **speaker_0**：嗯，就是武算嗯，就是你你还能有就你你还能有汉高祖夫妻俩聪明。
-- [04:41:09] **speaker_0**：嗯，你还能有汉高祖夫妻俩聪明？感谢终局T90A老哥打赏，我看一下。
-- [04:41:20] **speaker_0**：，这是有史以来第一次大规模啊出青女性，算是吧？也不一定是第一次。
-- [04:41:32] **speaker_0**：那个在你你的超级剧唐在你的超级剧唐在妖后篡国之后，连一个正牌皇后都没有。
-- [04:41:42] **speaker_0**：是的，直直到灭亡一个皇所有的皇后都是追授，那皇后这个头衔都变成了追授头衔，你们可是啊可以啊自自然可以考虑自此以下的社会层面的影响和变化。
-- [04:42:00] **speaker_0**：是不是只有些荣誉头衔，只能变成给死人，嗯，一个活的皇后都没有。好吧，唐德宗这个逼坏了一次规矩，嗯，他老婆临终就给他老婆临终之前。
-- [04:42:16] **speaker_0**：反正死前一天还是死前两天杀了个皇后。那说那说白了皇后这个头像还是只给死人。
-- [04:42:26] **speaker_0**：感谢似水流年老哥打赏女子年十4不嫁加税，十6不嫁地方官强制婚配，就算把你赔给老手，你也得认。
-- [04:42:49] **speaker_0**：哎，有时候还是算人头吧，那是那那你要不然咋整呢？
-- [04:43:04] **speaker_0**：我先我还是跟大家补充一下啊，就是比人说美国这个测试就是你看现在就有的人又说什么，我们不一样，是这样。
-- [04:43:16] **speaker_0**：我虽然不讲国内，我虽然讲的是美国，但是请你首先要相信一个事儿，就是我们都是晚期制人，就是我们在种群上可能稍微有点差距，但不大。
-- [04:43:30] **speaker_0**：就是首先你不要觉得什么你还能有老祖宗聪明。其次，另外一个是就是人和人之间的差距是吗？虽然在成就上会比人和狗大。
-- [04:43:44] **speaker_0**：比人和狗都大，但是在生理指标上面没有那么多差距，它分泌的荷尔蒙个体上的差距可能比人和狗都大，整体上的话真不好说啊。
-- [04:43:56] **speaker_0**：整体上差距真没那么大0对吧？就是你分泌荷尔蒙，他也分泌，你的七情六欲，它也有。
-- [04:44:07] **speaker_0**：没有那么大差别，荷尔蒙上了一样的上头，荷尔蒙退去一样的低货，就是先别把自己想的过于不一样。
-- [04:44:22] **speaker_0**：懂吗？感谢晚的起名字老哥打赏是吧？
-- [04:44:28] **speaker_0**：弹幕不一样，那个老哥讲了半天，那些逆天不过如此，在阿卡林都见过，所以我这阿卡迪索妖塔就不当了。这么好的阿卡迪妹子，应该找弹幕老哥一起好好相处，洗洗房，抱抱金币，戴戴绿帽，体验体验人生险恶啊。不对，是美好。祝弹幕哥赶紧替我等索妖塔，锁死他们挂图。
-- [04:44:52] **speaker_0**：这又是什么图？我根据我的水友的逆天程度，我觉得这个图会很逆天嗯。
-- [04:45:05] **speaker_0**：有说脑力劳动没有在进一步程度上改变这个状况。你看美国劳务工务局的数据是学历越高，整体收入层次越高的情况之下，男女之间的收入差距越大。
-- [04:45:17] **speaker_0**：是为什么？因为很简单就是最低的情况。因为哎呀在低收入的情况之下，有这个最低工资这个东西强行托底，就是有强行拉近男女的收入差距。你真要往上算的话。
-- [04:45:33] **speaker_0**：这要往上算是越算，就是越往上是差距越大的，提77%到了大到了这个大学以上和年入多少，年入是5万美元以上的时候就到73%了。
-- [04:45:48] **speaker_0**：哇，就是这是江西哪儿啊，那个老得起名字，我这是江西哪彩礼58.8。
-- [04:45:58] **speaker_0**：黄金单算8万8万，他来了，送价2万，小看一万，大看2万鹂娘。
-- [04:46:07] **speaker_0**：28000见面礼8800，肉面1万，装灯2万，买衣服1.8万，节人2.8万，每人6.呃6800。
-- [04:46:19] **speaker_0**：这是啥呀？这是这是江西哪的呀？没，我知道没算方式，这是哥，你能说说这是江西哪儿吗？
-- [04:46:32] **speaker_0**：已经有点我已经有点麻了，这这江江西江西经济这么好吗？
-- [04:46:47] **speaker_0**：啊，不是这是江西哪呀？这是不是这世世这世界如同一个巨大的二游啊这个。
-- [04:47:00] **speaker_0**：你你你教材里和你给二油氪金能够获得的保障属于同一水平啊，但至少你给二油，但至少你给二油氪金不会把自己氪进监狱。
-- [04:47:14] **speaker_0**：哎呦，我的天哪，不是。
-- [04:47:30] **speaker_0**：这是我现在很想知这是江西哪儿这么有钱，这经济发展的有点太好了。不对，有有有有老米八这个这个策略在啊。
-- [04:47:44] **speaker_0**：发出尖锐的声音，也要也要进监狱。哎，感谢四川多天老哥打赏，也许不是经济好，而是通过高价彩礼互相给形成一种经济循环，利好无凤台。
-- [04:48:02] **speaker_0**：就是不是江江西老哥是真能忍啊，我操。
-- [04:48:16] **speaker_0**：啊，不行，我我现在看着有点头疼了，认真的吗？
-- [04:48:27] **speaker_0**：哇点有点有点共和国超人的意思了，怎么挣到这个钱啊？
-- [04:48:42] **speaker_0**：南干北都有，那坏了，我还以为是局限在某一城市。不这这这里边还是同情一下江西老哥，江江西老哥还是。
-- [04:48:54] **speaker_0**：老哥可以考虑一下矿卡。对，就实在不行，咱们考虑考虑矿卡吧。呃有矿矿卡说不定还能用啊，，说不定能玩呢。
-- [04:49:12] **speaker_0**：还带得动，不是行。
-- [04:49:24] **speaker_0**：就有一点，我就是现在我我不知道是是是是现在经济形势又这么好，58.8万啊。
-- [04:49:35] **speaker_0**：咱们就按60万算吧，咱们算月薪5000，一年一年6万1年。
-- [04:49:46] **speaker_0**：就是你月薪5000得工作十0年才能把彩礼挣出来，不算下面其他的上哪儿凑这个钱啊？
-- [04:49:59] **speaker_0**：上哪儿凑这个钱，你告诉我。
-- [04:50:06] **speaker_0**：啊，那那江江西老表的最优解是不是就是直接这个怎么讲？到到外面打工，到外面打工，然后不回家，然后等着等等着收到一份等着收到一份遗产证。
-- [04:50:23] **speaker_0**：太他妈好人了，不先有个大上高，你有经验，人拆碎了，卖得上这个价吗？卖不上希大的流浪汉卖不上这个价。
-- [04:50:32] **speaker_0**：不上不可能，你60万6咱们别的不算，咱们按60万人民币算啊，60万人民币已经将近10万美元了。一个流浪汉拆散了，卖不出这么多钱。
-- [04:50:48] **speaker_0**：我说的还得是比较年轻的那种，就是身身体健康、身体指标比较好的那种，卖不上这个钱。
-- [04:51:02] **speaker_0**：卖不上了，想什么呢？说实话，刚才有人提到彩礼贷，我想那个彩礼贷呀，确实其实如果如果我们那个修修改一下的话。
-- [04:51:13] **speaker_0**：这个彩礼贷如果我们稍稍加改进的话，可能会有一些可能能够提振社会稳定性。比如说比如说彩礼贷的只能只能由家庭还款。
-- [04:51:27] **speaker_0**：有如说近百万彩礼，如果放希腊能找到什么档次的对象，不不好说拉丁小妹一分钱不要我的。
-- [04:51:38] **speaker_0**：或者是什么，或者是这个这个彩礼袋彩礼带的这个是是是咱翁带的老婆花。
-- [04:51:47] **speaker_0**：哎这我有一个更恶毒的想法。
-- [04:51:57] **speaker_0**：你太就你可以鼓励我们应该鼓励银行去把彩礼贷转化成次贷。别别别别别。
-- [04:52:07] **speaker_0**：别，什妈证券的话可还行，债券的话可还行，你看男男人就有这个问题，太有米线了嗯。
-- [04:52:20] **speaker_0**：就是还是有米线，还是不够住是吗？还是不够住，泥泥泥路泥路还是太少啊。
-- [04:52:32] **speaker_0**：能够能够看着能够看着罗马点火，能够看着罗马燃烧乐起来的人还是太少。有时候100万能找七八个拉丁小妹吗？
-- [04:52:45] **speaker_0**：100万兄弟在街头找到黑帮阿米狗二0刀就愿意为你杀人了。你你为什么把人命看的这么值钱？
-- [04:53:00] **speaker_0**：就是掺了一半奶粉的强化剂，20刀那么一小一小包，米狗愿意帮你杀人。
-- [04:53:12] **speaker_0**：懂吗？twenty bucks,你想什么呢？就是帮你开两枪对，帮你开两枪是没什么问题的，一发子弹才几几十美分。
-- [04:53:25] **speaker_0**：好不好？对于他来说太他妈值钱了，感谢无魂我哥打场新ID非常好用，拿下全场最佳啊，抢抢下对面死神四杀最佳啊，谢谢HV啊，你看。
-- [04:53:39] **speaker_0**：哎，你看啊等等，就是你看我就很可惜，为什么大家不能不能把这个这个彩礼袋也变成400？
-- [04:53:50] **speaker_0**：把彩礼贷变成次带，这是一种促进我国经济发展的一种方式。哎，比说9毫米，哎，9毫米大量买，不可能一刀一发的想多了。
-- [04:54:03] **speaker_0**：40多美分40多美分好吧，而且经常是经常是买一送一的。就是你买一方，2025年产的，送你一方11975年产的。
-- [04:54:16] **speaker_0**：好吧，就是老配心，感谢似水中间老哥打赏。在我们这边私人企业因公死亡赔款也才30多万，这还是男性撞牢率的赔款，是啊？
-- [04:54:29] **speaker_0**：这是照着黎，这不就是照着良名往死里盘波吗。
-- [04:54:42] **speaker_0**：是这样，就是我讲一下啊嗯。
-- [04:54:54] **speaker_0**：就是我们老家是什么情况呢？就是有油田啊，有油田。
-- [04:55:03] **speaker_0**：油田下井死一个工人，呃，我算这是我最后一次见着他们陪是2018年。
-- [04:55:14] **speaker_0**：一个胡文哥尔的大老爷们儿啊，就是上过大学的，就是能下矿的，能下油井的，死了是赔多少钱？
-- [04:55:24] **speaker_0**：225000啊，还是275000来着，就是两拨钱，就是好像公司再额外拿点，可能连30万都没有，看20元。
-- [04:55:35] **speaker_0**：就是你们想一想，就是中石油科班出身，读个读个985或者211大学。
-- [04:55:46] **speaker_0**：就是地质人地质系的人才死了就差不多赔不到30万。两个国家辛辛苦苦培养的就是高材生。
-- [04:56:01] **speaker_0**：死到了油井里，不到60万，东北穷，感谢我哥大赏，等于等于再熬每给几百刀就帮你杀人，不是假的那你以为？
-- [04:56:21] **speaker_0**：你知道你知道培养这样的大学生，国家要补贴多少钱吗？就嗯。
-- [04:56:42] **speaker_0**：所以你看这就是为什么我我推荐大家这个要要去搞这个所谓的彩礼贷的这个次贷化。因为彩礼彩礼贷的次贷化会导致直接的一个结果，就是要么大家直接不要彩礼。
-- [04:56:58] **speaker_0**：有人说候有人说要么呃大家变聪明了，然后然后是吧，要要么大家不解我。
-- [04:57:10] **speaker_0**：以后就没有彩礼的，用利用彩礼贷就直接可以消费到呃未来将近到。
-- [04:57:17] **speaker_0**：如果我们这个正正体能撑到那个时候的话，可如果可能它会存在那个结结束那一天啊，他都不太可能会重新出价。也就说这么便宜，就是我老家很大多数房子只有3000多块钱一平，30万能买一套100平的房子。
-- [04:57:34] **speaker_0**：就是人民币还是挺值钱的，人民币还是挺值钱的，一个一个幢幢1一平房子，3000块出头。
-- [04:57:48] **speaker_0**：啊，3000块出头是30万购买个100平的好房子啊，就是给的并不低，只不过就是。
-- [04:57:59] **speaker_0**：就是有些人太贪，大家为什么觉得30万低，这不是这不是有要588000的吗？
-- [04:58:12] **speaker_0**：呃，老爷，我跟你讲，588000在天津可以买一个别墅了，你去天津，你是可以买一个别墅的，差不多。
-- [04:58:26] **speaker_0**：哪怕你在110啊，你在110一年1个1万，你也能租一栋别墅了，只要一年一万。
-- [04:58:38] **speaker_0**：就是哦，不对，一个月1万，说错了，不是一年1万，是一个月1万。我我感觉江西老表过的都是东南苦山行的日子，东南苦行看的江江江西老表过着西西福斯推石头的日子啊。
-- [04:58:55] **speaker_0**：我们必须想象西西福斯是快乐的。哎，嗯对。
-- [04:59:09] **speaker_0**：为什么我我再说一遍，为什么我会那个鼓励大家去把这个所谓的彩礼那次带化。
-- [04:59:18] **speaker_0**：就因为彩礼带四代化带来的直接优势，是直到我们政体结束的那一天，都不太可能会出现彩礼啊，彩礼这个东西。
-- [04:59:28] **speaker_0**：于良民是不会存的，就所谓的那种真正遵守规则的，就是在良民会直接不存在，就他们会直接消失在这个历史中。
-- [04:59:38] **speaker_0**：江江西老表太坚强了，嗯行吧，对这不就是这这你这个你这个不就是典型的这个杀民你除贼嘛？啊，民民进者贼绝啊。
-- [04:59:56] **speaker_0**：唉，我觉得你这个有点你你有点蒋介石的，我觉得你有点蒋介石，有点中正味道啊。
-- [05:00:06] **speaker_0**：你这这典型的杀民以除贼，民进则贼绝。我我我现实有点有点太反动了。
-- [05:00:16] **speaker_0**：那我想想有没有更温和的手段，让大家你别想了你别想了别想了别想了是吧？唉，你已经你已经为你已经为美国烟入味儿了，你不要想。
-- [05:00:31] **speaker_0**：行，我看看我这他妈闹铃响了，一会儿哎。
-- [05:00:37] **speaker_0**：等这个S，感谢3点之3，老哥打赏QQ私信分享一个我认识的扶贫干部经历。第一，家里没钱但富高彩礼的地方，大概率彩礼是某种程度上的生意。家里男孩富高彩礼，女孩才卖得出价格。2、该干部当年为了制止某省村民付高额彩礼的行为，整出个婚礼上吹唢呐，往水里扔洗衣粉的逆天操作，被人发网上后被狠狠批评。3、该干部提醒我，别带入这些富高彩礼的心态，你理解不了，那是不能理解。
-- [05:01:12] **speaker_0**：就是江西老表还不赶紧跑啊，好吧，赶紧跑，咱别回江西了，就是。
-- [05:01:22] **speaker_0**：家乡可能有时候没那么好，咱跑吧，兄弟就呼呼背着大草原也不是不能带，就跑呗，出去等等等我讲，出去出去打拼，打拼，一个人过也不是不能过啊，然后就等然后就等着接一封律师或者派出所的来信就行。
-- [05:01:43] **speaker_0**：这这家乡不要也行是吧？跑吧是吧？我我我我其实一般不鼓励人是吧，抛弃自己的家乡的，这样做不太道德。
-- [05:01:54] **speaker_0**：但是就是就咱先跑是吧？咱先跑这个叫江江西人，江西人逆干江而上，逆干江而上，走过大鱼到晋岭南，这乃是千余年的传统啊。
-- [05:02:15] **speaker_0**：真他妈被三床被子压住，跑啊，人挪活树挪死，跑赶紧跑。
-- [05:02:25] **speaker_0**：不能呆赶紧跑，兄弟，这哪是人过的日子呀，这哪是人过的呀，这还不跑。
-- [05:02:35] **speaker_0**：哎，想想家了是吧？外地找个江西馆子，不正宗的也对付。
-- [05:02:45] **speaker_0**：这个这个这个家好像是不太能回哎。
-- [05:02:56] **speaker_0**：对你这奎是吧啊，你的猛男都跑重庆了，给江西重庆更完蛋呀。一个重庆一个四川一个成都给给江西老梗推荐个两个地方，一个地方叫白俄罗斯，一个地方叫巴基斯坦。
-- [05:03:16] **speaker_0**：好吧，就是呃巴基斯坦呃，你要是能单一，你可以去，对吧？
-- [05:03:28] **speaker_0**：那个要不然就是去俄罗斯也行。我说个地域的就是啊有的俄罗斯女儿会拿着她丈夫的抚恤金来找你的。
-- [05:03:38] **speaker_0**：俄罗斯和白俄罗斯现在是极度缺男人呢，那些似水多年把哥打赏。最近几年我回家，家里人话题从来都是谁谁谁不结婚，到谁谁谁才得高。再到谁谁谁又离婚。互联网普及以后，油门的速度前所未有的快。
-- [05:03:55] **speaker_0**：那是啊，就是兄弟们漠河走一走是吧？漠河走。
-- [05:04:09] **speaker_0**：走一走，口岸走一走啊，霍尔果斯河、黑河、霍尔果斯啊都走一走，好吧。
-- [05:04:21] **speaker_0**：有有有人怕就是某些教友妹妹是那个学历低，可以去霍尔果斯，中亚几个斯坦教育都不错啊。
-- [05:04:35] **speaker_0**：你看这就是我们我们苏联伟大的地方，老大哥真的出众拳，把不让女子上学的这个这一些人出众拳打了一遍是。
-- [05:04:46] **speaker_0**：就甚至发动了战争，就是请你去就是就是江西老表们，或者说全国的男性朋友们，你们一定要相信就是。
-- [05:04:56] **speaker_0**：你一定要相信人民币的购买力，你一定要相信是吧？你生活在世界第一工业国，就是人民币是很有保障的，人民币的是很值钱的。
-- [05:05:10] **speaker_0**：人民币比这个世界省段，你与其劝他们这个，你不如劝他把微信改一改嗯。
-- [05:05:23] **speaker_0**：性太高的问题，规性太高的结果就是就是就是洋炸鸡，洋炸鸡来到国内也变成老乡鸡。
-- [05:05:34] **speaker_0**：归男出去的归男出去的反归归男出去的，人家本地的男的还在骂，骂的不是抢女人，骂的是你们他妈的把本把我们的女人变脸。
-- [05:05:46] **speaker_0**：哎，是吧有人有人老有有人老都说那个。
-- [05:05:54] **speaker_0**：就是就是我忽悠老跟我往别的地方跑，我往西大跑，是这样，就是你要是能玩，你要是能跟西大女人玩的转，你再玩。
-- [05:06:05] **speaker_0**：我目前目前我这个服的版本强度是最高的，就是你想来，我也不拦着，好吧。
-- [05:06:15] **speaker_0**：是我这么说，亿人民币和那个巴基斯坦卢比是1比40，就是亿人民币不去黑市能换40卢比，黑市是62左右。你在美国是77.4人民币换亿美元。
-- [05:06:33] **speaker_0**：就是你得明白，就是谁的福强度高，好吧，你月薪3000。
-- [05:06:42] **speaker_0**：在巴基斯坦你也能住别墅，懂吗？
-- [05:06:55] **speaker_0**：就是你要是没，就是你多数人也不是也不是头一次听我直播了，你喜欢先潜伏的强度，你就来。
-- [05:07:08] **speaker_0**：我也不拦着你，我从来不拦着任何人，你喜欢给自己上强度，我还能拦着你来吗？
-- [05:07:16] **speaker_0**：啊，对啊，有人说还我太坏了，你到底知不知道哪的强度高啊，知道吗？
-- [05:07:26] **speaker_0**：就是我我们这边的就是我我们这一刀暴击是77.4的系数，懂不懂？刀刀烈火懂吗？
-- [05:07:38] **speaker_0**：你知不知道我在西大养活自己，我一个月差不多要赚三四千美刀的，就我现在养活我自己。
-- [05:07:48] **speaker_0**：我在美国以我的能力，我一个月要赚三四千，有的时候赚四五千没到，你懂不懂什么概念？三千。
-- [05:07:56] **speaker_0**：就这么说，就是哪怕是就是西雅图仍然是就仍尽管它的经常下雨，呃，但是它仍然是一个宜居的城市，你要换一个不太宜郁的城市？
-- [05:08:08] **speaker_0**：比如说北边的地方嗯呃6000刀都不太够养活自己。我我先说一下，就是我是一个每个月能够自己养活自己，不吃不不吃家里人钱的人。
-- [05:08:20] **speaker_0**：懂吗？我一个月的平均消费是4000多美金，四期是28000，将近3万。我折合人民币，我差不多一个月挣3万，你知道吗？
-- [05:08:35] **speaker_0**：就不值合人民币是吧？我的收入也所以所以早年移民是真的能攒钱，懂吗？你你要是喜欢先潜伏的强度，你就来。
-- [05:08:50] **speaker_0**：对，而且而且不不要只看先遣伏的什么男女性别身份证之这个强度啊，还有什么经济压力的强度。你要想想，先先遣伏是一个一年。
-- [05:09:03] **speaker_0**：年人口枪毙枪毙六七万人，失踪五六十万人。然后这个这个报失踪案，报失踪案失踪人口。
-- [05:09:14] **speaker_0**：5440多万的嗯5440多万的地方，四五十万的地方。在加开先减伏之前，最好看看自己的面板和属性，还有装备。
-- [05:09:28] **speaker_0**：还有富国币，感谢4水多年老哥打赏，学习先进经验，迭代核心打法，布局完海市场，强化和心竞争力。你是我见过最美的女孩，我要回家继承产业了，这是我给你的礼物。
-- [05:09:46] **speaker_0**：啊，可以，嗯，就是街头会刷新跑刷新跑刀仔的地方，你知道吧？
-- [05:09:58] **speaker_0**：就呃应该应该这么说，就是你是我见过最美丽的女女孩啊，我而我要回家继承我的家产，这是我给你的礼物棒。
-- [05:10:11] **speaker_0**：这就是西希大先遣服，都们喜欢就来。七大大舞台有活你就来，没活就没命了。
-- [05:10:26] **speaker_0**：就是我我推荐老哥们去的地方都是优势的，就是就是你你可以对他们打出暴击的，你知道吧？他他打你是不破防的。
-- [05:10:38] **speaker_0**：哎，美美美国人呃，希大的人可以可以自豪的说，美国人不怕美国人能吃药。
-- [05:10:52] **speaker_0**：能吗？你你你怕吗？有重金属中毒的老哥是是是靠嗑要抢救回来的。
-- [05:11:09] **speaker_0**：急性重金属重毒对急性重金属净毒。，比如说飞升类固纯星球，急性重金属净毒就一两秒，类固醇星球好歹还得个十几年。
-- [05:11:26] **speaker_0**：比说博菲丁什么就是杜猛定，什么奥士康定美士康定。哎呀，雷克丁雷克丁哎呀，是吧？纳洛桶纳洛桶。
-- [05:11:39] **speaker_0**：呃，这么说说吧，就是呃杜冷丁那个东西在你的东纳一周只能打三针吧。嗯就是而在你的希腊这个呃杜冷丁是可以一天四一天5针的。就是我我跟你说啊，就是中国人喜欢吃缓视。
-- [05:11:58] **speaker_0**：就美国不搞这个，就是美国上个就是极限剂量，知道吧？什么狗屁缓视是吧？什么狗屁长久释放，24小时循环给药。没那说法，上个就是极限剂量，先挨一针。
-- [05:12:13] **speaker_0**：啊，先把命吊住，再说别的啊，太重量级了，还行吧，还行还行。
-- [05:12:23] **speaker_0**：就是你知道医工人医工人种的优越性吗？啊，医工人种的优越性懂不懂懂不懂什么叫工业化？
-- [05:12:35] **speaker_0**：懂不懂什么叫做什么叫做维多利亚严选，懂吗？有时候那跟军有什么区别？你知道美国的枪伤科几乎是天天爆满的吗？那和军医就是没区别呀。
-- [05:12:52] **speaker_0**：军军医见的枪伤没有没有事如一多。对我这么说吧，就是中国某些大医院的老教授，他肯定做手术是比我强的。但是你放心，处理枪伤他肯定没我好。
-- [05:13:10] **speaker_0**：就绝活就肋骨肋骨抠单片知道吗？我他可能看的病人比我多。
-- [05:13:21] **speaker_0**：啊，就是重金属剑的一定比我少，就就拿拿出来的子弹碎片到底对不对得上那颗弹头，这是真的只能凭感觉和经验。
-- [05:13:35] **speaker_0**：因为可能没那个没那个美国时间，让你慢慢把他拼回去。
-- [05:13:41] **speaker_0**：感谢我QQ上月的是吧？哥，你说高达一个月大约多少，看情况，这玩意儿有淡忘季啊，你说高达算高危职业吗？不算我们是后去。你作为教授的学徒，有学徒费吗？有就是就是就是教授的就是教授的奴才，知道吗？
-- [05:14:00] **speaker_0**：嗯，就是藕六孙儿对，低六孙儿。嗯，你们每个月补助2000左右是吧？2000左右嗯。
-- [05:14:12] **speaker_0**：哦，那差不多是呃，然而很可惜，2000左右是完全不够一个学生生活所需要。我得自己再做点小生意是吗？
-- [05:14:20] **speaker_0**：感谢朝昭满天星辰老哥搭赏看看啊私信。我给大家说个故事。我从欧洲回来的第一课学习就是如何跟大家好好交流。大家可以想象我在欧服的日常强度是个什么状态，以至于我回国后第一课是先学会温良攻俭让。对的。
-- [05:14:40] **speaker_0**：有人说老魏，你怎么在美国搞社会小团体，我怕死。兄弟们，我怕死，我是个胆子很小的人，我是个柔软如同棉花一样的人，我怕死，知道吗？
-- [05:14:54] **speaker_0**：我必须搞小团体，不是因为不是因为我真就想坏，而是我想活着，懂吗？
-- [05:15:04] **speaker_0**：我就是想活着而已，我希望活着回国啊，我还想传宗接代呢。好吧，其实就这么简单。
-- [05:15:20] **speaker_0**：你们惹到我，你算是惹到棉花了。嗯，哎，我想想怎么说就是。
-- [05:15:32] **speaker_0**：呃，为什么你们会发现我现在越来越温和，越来越善良？因为就之前我我那个饿的那一面。
-- [05:15:46] **speaker_0**：是在哪被培养起来？大家想一想，在在拍冰雪豹的地方，就是原冰羊拍摄原生曲在班阳的在在巨人樵夫班阳的家乡培养的。
-- [05:16:06] **speaker_0**：支付宝到账30元，感谢4水多年老师哥打赏。国内对麻醉药管理极其严格，用量极其谨慎。
-- [05:16:14] **speaker_0**：我上次做肺部手术，局部麻醉，第一次没给足麻药，后面又补了一点，就这样我还能感觉到管子往外抽的感觉，浑身发冷，疯狂冒汗。
-- [05:16:25] **speaker_0**：我之前好像讲过，就西大的这个这个这个麻醉师有多值钱吧，就是你要在希大这堆药罐子里面精准的给到药量，又不要死他。
-- [05:16:38] **speaker_0**：在美国那可是相当值钱的。感谢老哥打赏，某些部门会专门组织全保美交流枪伤之救治经验啊，这是是的。
-- [05:16:51] **speaker_0**：肯定的哎，感谢放手一搏忘我哥打赏，我看看。
-- [05:17:01] **speaker_0**：老谓重金属中毒真不是笑玩笑话，是字面意义上的重金属中毒。大多数民用弹药弹锌是含铅的，而且敌火也含。
-- [05:17:12] **speaker_0**：啊，现代弹枪弹起火爆药主要成分是碟氮化纤燃烧会释放铅烟啊。
-- [05:17:20] **speaker_0**：尝试从事室内射击的人，患慢性铅中毒的风险很高，而且真有弹片没及时取出，造成慢性铅中毒的病例啊，是。
-- [05:17:30] **speaker_0**：我见的一般不是慢性的，都是急性的。
-- [05:17:36] **speaker_0**：啊，我要讲个地域效哈，就是那个呃如果你们观察过弹药储藏室的那些呃老登记员们，你们就会发现他们会有惊人的概率或获得这个慢性的铜种度。
-- [05:17:52] **speaker_0**：我说麻醉是怎么判断病人抽没抽过，大哥验血验那什么的那这这能交给你。
-- [05:18:05] **speaker_0**：那那你得专门花钱去学的，这能随便是吧？告诉你吗？越能告诉你。
-- [05:18:13] **speaker_0**：就是我有一手绝活是什么呢？就看在卡在肉上那个弹片，大致推断一下是什么枪打出来的，不一定百分之百准是吧？六七成准是有的。
-- [05:18:27] **speaker_0**：有人说怎么练出来的？你只要看的重金属中毒的人够多就行。嗯就是。
-- [05:18:37] **speaker_0**：这这这早上那波盘一端不对，子弹的分量不对，还有一片没取出来，你能做到这个程度吗？我做不到那个程度，那太极端了。
-- [05:18:56] **speaker_0**：嗯，怎么说这还有人活着吗？有啊，身中十几枪活着的人挺多的，就人都挖到停尸房了，你知道吗？
-- [05:19:09] **speaker_0**：人都拉到停尸房了，我们手术刀都取出来了，他一他他一下子他他一下仰卧起坐起来了，你知道吗？
-- [05:19:22] **speaker_0**：啊，肾上腺发力了孩子们肾上腺发力了，生存的意志比谁都要强烈。嘻嘻，我一定要活下去啊。
-- [05:19:33] **speaker_0**：是有时候诈尸啊，就是枪弹抗性抗性拉满，知道吧？
-- [05:19:41] **speaker_0**：你你不你不前上上一期说的那个什么就那个那个疯美国女警啥啊，故意下套害他前男友，然后开枪打他前男友。对，打多少枪，前男友不也活下来，十五六枪了，活下来了，嗯十几枪还是活下来了。
-- [05:20:00] **speaker_0**：当嗯就是说这在晚上不得吓死吓不死，这吓死啥？那个就是就是有种尸体叫做高阜，知道吗？就是有种尸体叫高阜。
-- [05:20:15] **speaker_0**：西雅图是一个雨特别多的地方，你知道吧？就是黑帮仇杀呀，这个火病啊，这个抢劫强奸啊。
-- [05:20:26] **speaker_0**：他们抛尸的话，就会把尸体抛在一些地方，垃圾山啊、垃圾堆啊、小小巷子里啊。
-- [05:20:35] **speaker_0**：就是当你某一天早上阴雨一个阴雨连绵的早上，你接到的报告是某某地方有一具尸体。
-- [05:20:45] **speaker_0**：就是它大概率是什么？就是他是前一天晚上半夜的时候杀的，第二天早上七八点钟发现的就是雨下了一一夜。
-- [05:20:57] **speaker_0**：啊，这个时候温度呢就是也不算太高，也不算太低啊，就是蚊蝇还没有消退，老鼠也在活动。
-- [05:21:09] **speaker_0**：嗯，你知道我在说什么吗？
-- [05:21:17] **speaker_0**：哎呀，我直接点说吧，老爷这么说，就是大家知道为什么佛教他有一种修行方法是叫斯驼林嘛？就是为什么狮驼林是一种使人超脱生死的修炼方法。
-- [05:21:32] **speaker_0**：在心态上超脱生死，因为狮驼林实际上就是一个高温高湿啊嗯。
-- [05:21:42] **speaker_0**：然后非常适宜微生物活动的一个环境。然后里头所有的生物都会，只要它死掉以后，它就会直接分解成大量的。
-- [05:21:51] **speaker_0**：湖状物有人说西雅图有多潮湿，西雅图是一个石头上讲青苔，能把整面墙染绿的地方。
-- [05:22:03] **speaker_0**：感谢似水流年，老哥大赏，感觉老美人民真的快进化了9毫米免疫了。看过一个西大执法记录仪，一个剑圣顶着圣枪游侠的火的硬是刀子上去。
-- [05:22:14] **speaker_0**：啊，这穿的。
-- [05:22:29] **speaker_0**：哼有人说很那个有的时候还要什么？就是有些帮派吧，就是太没有礼貌，就是喜欢切碎了喂狗。
-- [05:22:44] **speaker_0**：就有的时候呢，就是你你你不是喝人去，你要和狗去抢，你知道吧？你要把狗都打死，从他们的胃里掏东西出来。
-- [05:22:59] **speaker_0**：就是你把狗打死，从狗肚子里面掏出来一些半消化的某些部件嗯。
-- [05:23:15] **speaker_0**：哎，你你在说这个事儿的时候，他妈西安还要下5天雨，有时候冻宝会不会到你的下麻了给我。
-- [05:23:27] **speaker_0**：，已经下一个月了，我操大哥别下了，收了神通吧，大圣。
-- [05:23:37] **speaker_0**：而且你就知就是就是你看啊我不住西安，我就往八水绕长安，什么时候能再看见一次啊？
-- [05:23:49] **speaker_0**：哎，是啊，八水照长安，可是长可是帝都之相啊。有有人说有人可有人那个到底在狗肚子里找什么呢？
-- [05:24:04] **speaker_0**：就是开狗，有的时候吧会把那个骨头吃下去，就是开狗肚子是等于开盲盒的，你们懂吗？开的狗肚子是开盲盒。
-- [05:24:15] **speaker_0**：就是有的狗呢会囫囵个儿吞下去一些什么，有的狗嚼得碎，就是你不一定能开到什么啊。
-- [05:24:31] **speaker_0**：我告诉你们，我现在我身边那个状态是什么？柏油路上长那个绿丝藻，就是那个只有在水里才能生长的绿丝藻。
-- [05:24:41] **speaker_0**：然后因为它绿丝藻生长的实在是过于茂密了，以至于车在开过这一段柏油路的时候容易打滑。有的说候捡狗肚里这些尸体有什么用？可以根据消化的情况去分析他们是什么时候吃到的尸体。
-- [05:24:57] **speaker_0**：从而进而分析他们吃到的是不是一具要进验DNA的，就是什么时候吃的这只狗什么时候吃到的这一部分，那只狗什么时候吃到另一个部分，他们为什么吃到这个部分，尸体到底发生什么了？
-- [05:25:14] **speaker_0**：啊，嗯，对吧？就是还可以看这个吃到的尸体肉上面沾没沾一些什么火药啊，金属碎屑呀。
-- [05:25:28] **speaker_0**：一些什么其他的皮毛啊组织啊之类的，就是是有一套流程的。
-- [05:25:42] **speaker_0**：什么定驱推食啊，是吧？就是看蛆虫的发育阶段，推定什么时候人死的嗯。
-- [05:25:57] **speaker_0**：我说我身上什么味道，我身上没有味道，我身上很干净的，我比绝大多数人都爱干净反正绝大多数女人都不一定有我干净。
-- [05:26:10] **speaker_0**：嗯，我身上什么我身上什么味道都没有，我身上有股花香味儿，好吧。
-- [05:26:23] **speaker_0**：我会很仔细细心的打理我自己的。有时候直播什么主题，主题都讲完了，现在是闲聊阶段了，崩测试服的崩溃和回滚已经讲完了。
-- [05:26:46] **speaker_0**：感谢似水流年，我哥打赏，下雨实在是饿不起来，我最近工作统计了一下，深东这边某镇的玉米产业大约60%，减产到一半，三0绝产未受影响极少，花生更散。
-- [05:26:59] **speaker_0**：北方现在下雨量急急增，有人说你怎么做到的？
-- [05:27:08] **speaker_0**：我我做不到我我做不到，就是有一种很神奇的东西叫做呃现代化学啊，工业化学。
-- [05:27:19] **speaker_0**：懂吧？嗯，就是非常的amazing。
-- [05:27:28] **speaker_0**：能帮助我消除很多味道。你用的是迪奥还是那个啊是吧啊，5巴黎世家还是什么实实验室有专门的，实验室有专用的嗯。
-- [05:27:41] **speaker_0**：啊，你自己调的懂了。对，我们实验室会自己调的啊，比时候如果硫磺味，美国人会有什么特殊感觉，没什么特殊感觉。
-- [05:27:52] **speaker_0**：没什么特殊感觉，美国人也用硫磺肥皂是吧？哎，有我想当年我在实验室用过捏了精油做。
-- [05:28:04] **speaker_0**：自己拿偷偷他们的材料做香水，操，有人说有人说有人把自己咽入味，怎么可能我那种非常专业的消味剂，我们都是猛猛放的，好吧。
-- [05:28:16] **speaker_0**：放心，一定请相信现代化学好吧啊，相信现代化学的伟力，好不好？
-- [05:28:35] **speaker_0**：比人说特异特应性皮炎怎么治？我不是医生兄弟，我不接触活人的，问我活人的病怎么治，你问错人了。
-- [05:28:48] **speaker_0**：呃，这个老哥我问你是鳞屑病还是什么病？啊，皮炎是哪种皮炎啊，然后你是不是跟神经相关的？
-- [05:28:59] **speaker_0**：呃，最好去大医院找那个皮肤科医生看一下，他们会给一些药。有人说我这高达是哪种高达，没听明白，听糊涂了。
-- [05:29:12] **speaker_0**：我说的不是模型，我我给新粉丝说一下，我说的高达不是模型，我说的高达不是模型，你想多了。
-- [05:29:22] **speaker_0**：你以为我是什么骄，我我确实是骄傲，但是我不玩高达的，我玩战锤的。我说的高达不是真高达。
-- [05:29:32] **speaker_0**：就是就是我不玩我不玩胶，我玩的是血肉，好吧，就是用用游戏技能，我我干的这个行业叫血肉重构，知道吧？玩过万制牌吗啊。
-- [05:29:48] **speaker_0**：领勇师啊，我是做领泳的，好吧，呃，这么说就是呃我这么形容吧，就是。
-- [05:29:57] **speaker_0**：呃，半机械老E一啊，嗯然后然后加上这个血这个这个这个一定的血肉血肉控制。
-- [05:30:11] **speaker_0**：这么一个玩意儿，然后呃这么说吧，就是呃有一句话不知道大家有没有听过，叫做你能想象高达曾经拯救过多少人类吗？
-- [05:30:24] **speaker_0**：感谢似水流年，老哥大赏，以我的经验，比较方便的处理实措方法是提前穿一身旧衣服，事后直接烧了。怎么可能天天烧衣服，我们用的是专业的衣服，是事前事后用白酒使劲ip全身喷洒。
-- [05:30:39] **speaker_0**：有人说啊是这样，就是或者我是什么呢？就是就是我是没有非锐化的那个磨判磨判官，知道吧？啊，就是没有文化，没有非锐化的磨判官。
-- [05:30:53] **speaker_0**：好吧，不是按40K的说法，就是雪灵人嗯。
-- [05:31:10] **speaker_0**：就是就是我是没有非锐化的那个魔判官，大姨妈艾雷侬是吧？
-- [05:31:20] **speaker_0**：理屠夫叩击了也好吧，艾威龙不大行，哎，你知道我想来我我跟我表象的一个。
-- [05:31:30] **speaker_0**：跟跟我比较像一哥们儿是谁？就是那个呃我现在应该怎么说，就是你们是要诅咒建军，诅咒建军吧。
-- [05:31:42] **speaker_0**：就诅咒建军有一个战团叫黑龙战团，你们可以看一看，他们是那个呃。
-- [05:31:52] **speaker_0**：呃，火蜥蜴的那个被被这个呃是马象也缝了一些晚，哎，还是多拉考尔缝了点吧，什么东西。
-- [05:32:01] **speaker_0**：有有人说一墨库是这样，一虽然虽然奥扎奇这种东西没有性别，你知道吧？就是但是一默库。
-- [05:32:11] **speaker_0**：衣摸裤，但是大家默认他是女性哎。
-- [05:32:27] **speaker_0**：就你你好，我这么说吧，那个诅咒建军时期的那个黑龙战团在有有一部分后来进了科莫罗，他们被抓了科莫罗了。
-- [05:32:37] **speaker_0**：是，然后在那个火蜥蜴呃，还有其他的战团对科莫罗基行复仇以后，把一些黑龙给救了出来。
-- [05:32:50] **speaker_0**：然后有一个黑龙被那个火蜥蜴的那个牧师给抓到了，就就抓到了一个火蜥，他们自己的那个监狱里头关起来。然后这个牧师觉得他能治愈这个火蜥蜴啊，不对，他那个牧师觉得他能治愈这个黑龙战团的。
-- [05:33:08] **speaker_0**：这个战堂有涨几点了9点就是这样行了，歇了，兄弟们该上课去了。
-- [05:33:17] **speaker_0**：你其实也不是上课，该去写文文吧，歇吧，兄弟们，9点，这是半夜12点了，该写了。哎呀，晚安吧，兄弟们。
-- [05:33:31] **speaker_0**：晚安晚安晚安晚安，歇了谢了歇了，拜拜拜拜拜拜，谢谢谢。
-- [05:33:42] **speaker_0**：12点了，晚安晚安晚安，哎呀，谢谢谢谢收收收。
-- [05:33:53] **speaker_0**：晚安吧，兄弟们。
+- [00:00:00]：。
+- [00:00:11]：大家晚上好啊。
+- [00:00:23]：播开播开播来影开播。
+- [00:00:33]：嗯，等我啊，别急别急。
+- [00:00:45]：哎，开波利开波利。
+- [00:00:59]：哎，哎呀，我天，你们这群人啊是不是别别成天发一些有的没的。
+- [00:01:10]：还没坠机呢，对吧？你们这群人是真行啊。
+- [00:01:20]：不要乱发，妈的搞事情，这还没有追机呢，对吧？
+- [00:01:32]：瞅瞅你们这群人是不别搞啊，哎哎呀啊啊。
+- [00:01:43]：你说我一兄弟好点了没嗯呃义兄弟，你是说我师弟吗？
+- [00:01:57]：真的，我就是你这一说一兄弟，我就有点没想起来说的是谁哎呀。
+- [00:02:08]：哎喂是哎，我把另一个平台啊，不是我把另一个渠道也发一份儿。哎呀，晚上好晚上好，晚上好啊，兄弟们。
+- [00:02:24]：感谢本属哎呀老哥送的城市票。
+- [00:02:33]：啊，感谢老哥感谢老哥，哎呦啊有是好奇那个拔罐器的兄弟。
+- [00:02:44]：呃，我也不知道用拔罐器那兄弟好没好点是吧？这个你这个说的我好像。
+- [00:02:54]：不关心人家一样，但是确实是我不知道啊，人家也没再发过发过信息，所所以我也不知道哎。
+- [00:03:08]：洪博子老哥儿子怎么样了？洪博子老哥，他儿子还还活着呢呗，就也仅限于还活着。
+- [00:03:18]：至于你说活着有多好是吧？那是哎。
+- [00:03:29]：不能要求那么多，好吧，活着就行。哎，真的你现在现在美国这个形式活着就成呗。
+- [00:03:43]：支付宝到账30元感谢宝哥大赏，我西雅图小曲是真的吗？啊，你是说极光大道小曲吗？就是就是那个B站上那种搜视搜老司机视频能搜到那种是吗？那个是真的。
+- [00:04:02]：啊，不过我奉劝你也不要有什么想法，跟大九堡公园差不多啊，好吧，就是不要有想法呃。
+- [00:04:14]：感谢退坑暮糊人老哥打赏是吧？女女人们震惊，连好男人也不在在乎舔狗也不在乎。来吧，应景小视频老实男人都去哪儿了。
+- [00:04:25]：可以啊开幕雷机好吗？哎哎呀。
+- [00:04:34]：这这个简直了，哎，经济形势变化太快了。
+- [00:04:47]：今天就是我今天是真正意识到什么叫经济基础决定上层建筑，你们知道吗？
+- [00:04:56]：也不是今天吧，就是我知道现在经济形势不好，但是我没有想到不好到这种程度，你知道吗？
+- [00:05:09]：我为什么说就是不知就是没想到不好到这种程度呢？你们要知道啊我待在这个鬼地方是个蓝州，而且是个南墙州，就是铁杆，就是蓝蓝挡南营的就是铁杆装稼。
+- [00:05:29]：实际上，左派的魔怔人和受LGBT思想那种魔怔人是非常非常多的，就是连这种地方。
+- [00:05:42]：他妈的开始出现了一些版本崩溃啊，还有这个回这回回滚回转回滚的这种情况。
+- [00:05:53]：就如果连我们这种州府都这样了的话，别的地方我都不敢想啊。
+- [00:06:03]：兄弟，那是我真是不敢想啊，哎呦。
+- [00:06:13]：真的那是我不敢想的等一下，我看看。
+- [00:06:25]：感谢老哥打赏，我看一眼啊。
+- [00:06:33]：我看看感谢奶蒙图找老哥打赏啊，还有那个感谢贵物中贵物我哥大赏。哎呀阿姨谢过你的流量，我点的预约都不提示了啊，正常正常正常正常啊，非常的正常是吧？我。
+- [00:06:48]：我看看啊，读什么这个暖宫通骨者老婆，这个先读啊。老魏，你前天的直播后半段，我因为第二天要面试，所以没看昨天晚上看过不，我真差人晕死过去。是这样，我问你，你不会先把我的法律回滚到华夏法系吧。华夏法系吃人属性，你不会不知道吧，我谁让你要回滚那个版本了，妈经典的经典的不要就经典的一谈道德就就就回到旧社会，。
+- [00:07:12]：哎呦，往左边偏坠，因为现在往左边偏坠，所以所以不能往右走，为什么不能往右走？因为右边是坏的。
+- [00:07:25]：啊，点中点，哎呀，我不能不讲道德。
+- [00:07:34]：谁告诉你要回滚到那个版本了，你知不知道这个彻底消明你说的仁义道德，我们现在被付出了多少留学习生，你你可拉倒说这套，现在中国的所有体系甚至就是在依靠在所谓的传统仁义道德和传统的优良作风上，我都不敢想，如果按照现行法律规定，18岁就把孩子撵出家的话，。
+- [00:07:58]：哼哼我都不知道中国社会会是什么样啊，你你可你可别来这套是吧？我不是学法的，对国胜也无感。如果只凭一个人道德水准就给他定罪，那能上去的人都是伪君子。谁告诉你要道德水准给人定罪了。
+- [00:08:19]：我的意思是你在讲法的时候不能完全不讲道德，完全不讲道德的法律都是恶法。
+- [00:08:28]：天下大同才多久啊，你看看不讲道德的法律是什么样的，人家还办成铁案呢，那按法律来嘛。
+- [00:08:40]：你告诉我天下大同是为人民服务吗？哎？
+- [00:08:51]：还还还还还不讲人义道理，明明明明自己吃了最多所谓的这个现代法系的苦。
+- [00:09:04]：哎，怎么着，合合理合法吃你全家绝护是对的呗，可以不讲道德呗哎。
+- [00:09:19]：还还他妈叫访丝都整出来了，绝对不能真换成华夏法系教访丝的出生孩子是绝对不能参加歌曲，不能下地务农或者去经商的。
+- [00:09:33]：啊，所以你的意思就是他合理合法卷走你的东西是对的呗，那还说啥呀？
+- [00:09:43]：不讲道德是吧？那那那没玩吧，等会儿先别急，我读完，没我没读完呢，等我读完。嗯，因为家里中坊以前就是县衙老爷。
+- [00:09:55]：知道这套架构有多黑暗，你拱瓜不知道。
+- [00:10:06]：嗯，如果如果讲究现代性，就是一个民族的消亡的话，那那宁可不要兄弟。
+- [00:10:18]：你别忘了，任何东西都是要让人生活下去的。
+- [00:10:26]：就是如果一个制度只有理论上的好处，他生活在那个国家的人都已经无比憎恨这套体系，这套东西是玩不转的。
+- [00:10:41]：知道吗？还这套架构有多快要回滚，哎，有的说候平等一说。
+- [00:10:54]：讲平等讲平等能平等吗？你的意思是，汉奸和烈士也应该一个待遇是吗？
+- [00:11:06]：是那么玩的吗？比说跟人是一点不沾边，你光说旧社会的东西不做人东西都不对。
+- [00:11:19]：那问题你现代化的东西没有先进性啊，你记住不是所谓的人要回滚，而是人要活着。
+- [00:11:31]：而是人要活着，知道吗？人要活着，你不要拿一句现代性，就是以前多多多么多么黑暗。
+- [00:11:46]：把以前的东西全都否了，啊，就经典是是是水太多会淹死人，所以不能喝水。
+- [00:11:57]：你都快吃咸烟，闲死了，喝口水都犯法呀哎。
+- [00:12:10]：就是这都啥程度啊？如果天下大同那个案件稍微讲一点道德。
+- [00:12:22]：都不是这个样子，都啥样啊，你不能无视社会现实。
+- [00:12:31]：你不能无视社会现实中的大象，懂吗？要的是平衡。
+- [00:12:43]：我要的是讲究道德，不是要你回到封建社会。点中点一说要讲道德，就是回到封建社会。
+- [00:12:53]：所以现在这个不讲道德的社会，你很喜欢吗？来吧，人人都给你讲法律下限，很好玩吗？
+- [00:13:11]：他家里有县衙，就是不讲道德，我都不敢想中就是现在的中国人如果只讲法律，不讲道德是个什么样的社会。
+- [00:13:25]：现在，中国是繁超过18岁，还在吃家里的人，还在由家长供养的人。
+- [00:13:35]：本质上是依靠传统的优秀道德在在在在在运行的，而不是依靠所谓的法治。
+- [00:13:45]：你老爹18岁就把你撵出家了嘛，让你自己是吧？你是一个成年人了啊，在现代社会的定义下，你是一个拥有完整独立人格的人了，你应该为你的行为负责了。你告诉我这种事发生过吗？
+- [00:14:07]：你别骗我你别骗自个儿啊，你千万不要骗自个儿，骗自个儿是很没有意义的。具体什么情况你是知道的。
+- [00:14:19]：对吧你的高中学费超过义务阶段的学费，你的。
+- [00:14:28]：你的大学学费，你的生活费，你的培养的各种各样的费用。请问你的父母是以一种什么样的姿态再出的？
+- [00:14:39]：是他肩负起了传统中华父母的义务和责任和道德，还是说现代法系里面规定了，他必须这么做？
+- [00:14:52]：你不要骗我啊，你骗我也行，你别骗自个儿，你自己能明白吗？你是活在道德中的。
+- [00:15:03]：而不是活在具体的某个法条下，因为没有任何一个法律规定，18岁以后还要养你，懂吗？
+- [00:15:14]：你高中18岁以后就自负盈亏了吗？没有吧，你还是活在爹娘的庇护之下。
+- [00:15:23]：你没有像欧美的高中生一样，就是我明明上次直播已经讲的那么悲惨了，就是红脖子老哥已经很不错了，他还能让自己的儿女住在自己的家里。
+- [00:15:40]：吃自己的，但是他也没有钱付学费了，因为天经地义是过18岁了，老子没有没有义务再给你额外出一笔学费了。
+- [00:15:58]：懂吗？你自己都是活在道德里的，你是活在传统道德的保护泡泡里的。
+- [00:16:08]：你要是现在能跟我说，18岁以后，我的所有自己挣钱和交税的记录算你牛逼。
+- [00:16:17]：如果你不你如果你做不到，你先不要跟我讲什么，就是不讲道德，你不配，知道吗？
+- [00:16:27]：就是你不能在享受着前现代社会的道德的一保护之下，又大谈得谈现代性。
+- [00:16:37]：那是不对的，懂吗？你猜猜我在社区里面猛猛捐钱，哎呀，这个孩子有一颗金子般的心，是因为欧美人也不都不讲道德吗？
+- [00:16:56]：嗯，你不要听傻了，孩子不要既要就要。你明明直播间的多数人是不喜欢小仙女的，你不要学他们。
+- [00:17:23]：对，感谢微笑的普提西安老哥大赏。法律是强者制定的，道多是少数能够约束强者的枷锁，不是枷锁，是个纸做的名义上的枷锁，只谈法律，你弱者怎么死的都不知道。是的。
+- [00:17:44]：就是就是我都不知道，现在中国有多少年轻人，明明是活在古代的传统道德的保护之下。
+- [00:17:54]：他在这跟我大谈特谈，不能讲道德，要讲要讲法律，简直好笑，你不要那么好笑好不好？
+- [00:18:12]：懂吗？就是你明明自己都活在这种状态里，对吧？我再说，哪怕你有钱自己挣钱了，你失业了，回到家住，你觉得你爹管你要学要要要房租，对不对？
+- [00:18:32]：你如果说出一个不对来，你告诉我他是以什么名义在帮你懂吗？你没有那么强足够强的后现代性，你不是美国人。
+- [00:18:48]：我告诉你，所以你不要跟我说什么，只讲法律，你不配好吗哎？
+- [00:19:01]：是吧你大学生活费是谁给你掏的？那风州建设美学上高哥打赏是吧嗯？
+- [00:19:10]：呃，感谢峰之剑生美女就上有个打赏，两个两个打赏上图，南高地呃高新战略核心材料全部掌握在邪恶老钟手里。嗨呀，那不很正常吗？
+- [00:19:26]：第二个，邪老中金刀记，要么杀新罗马海军造船慕容锤，要么杀新罗马养的狗儿子慕容令，要么一块杀啊，最好是一块杀。
+- [00:19:39]：嗯，完了完了完了嗯嗯嗯。
+- [00:19:51]：嗯，这就有人说有说另一个渠道是直播一样，慢讲那边也是直播是吧？另一个渠道，等一下，我把这玩意修改修改。
+- [00:20:02]：什么玩意儿怎么要这么多，我等会儿，我把这个礼物改一下，这玩意儿他妈每天礼物有任务，我把礼物额度都修改到最小啊，别急。
+- [00:20:24]：呃，我把我把这东西截一下图哈，微20我我看一下。
+- [00:20:41]：感谢虎诗雨替老哥大赏，历代法律造反都是违法法违法不拘同罪，能活下来都是违法分子，别着笑了哼。
+- [00:20:50]：啊哎啊，我把这个心愿重新生成一下。
+- [00:21:03]：嗯，要不然就太抽一样了，哎呀，就是慢脚这边兄弟们就是这个这个就帮如果能帮忙就帮忙打赏一下是吧？这玩意儿这平台他妈有任务，他和B站不太一样。
+- [00:21:18]：啊，好吧，就大家能帮忙就帮帮忙，都是都是差不多1块钱的礼物，五六块钱。
+- [00:21:27]：，然后我再读一下嗯，等等会别剧，我读一下S，感谢一只猫头老哥打赏。其实早在老早之前就想说，中国的法律应该是为我们公序良俗社会主义价值观保驾护航的。但是有很多生物喜欢在条文里咬文嚼字。
+- [00:21:46]：啊，是啊，感谢腾哥大家走个打赏，不错，已下单推荐这什么玩意儿？
+- [00:21:55]：地狱犬登场光剑测试，等会儿看看我先我先把这我先把剑圣老哥这个这个这个图上一下。
+- [00:22:05]：看看南高地又有什么狠活啊啊，我看看。
+- [00:22:21]：根据10月13日，韩联社报道，韩国产业通商资源部发布一份资料显示，哎，这怎么这么抽象啊？
+- [00:22:33]：不会是制裁韩华吧，等一下。
+- [00:22:43]：啊，分依赖度分别为97.6%和98.8%，这不就是提斗放哈吗？我的妈呀，这依赖度也忒高点吧。
+- [00:22:58]：啊啊，感谢兔崽子老哥赠送的啤酒，感谢感谢，感谢本手我也送的城市票，感谢老哥。
+- [00:23:07]：这这这是不是呃这占的太多了，这不就是随便啥吗？这这不是粘珠吗？我操有20种自华进口半导体核心原材料，尼龟的对华进口依赖度分别为78%和63%。
+- [00:23:25]：哎，二次电极正极材料核心原材料进口总额中，中国占比达到65。此外，甲98%，石墨97%，乙93%，镁84%。
+- [00:23:40]：这不是我们要他死，他就得死吗？哇塞，我健圣老哥总能找到这种非常刁钻的新闻。
+- [00:23:49]：哇，这不狠狠的拷打是吧？谁让他做美国小弟，我天，这不这不狠狠狠狠拷打，我的妈耶。
+- [00:24:02]：嗯，等这个机械定他们有问题，怎么要过这么多？
+- [00:24:12]：啊，不要那么多，这要30个机械定的方意都是30个，我这改一改哎。
+- [00:24:22]：我说韩国人绷得住，韩国人绷不住，这他妈怎么绷得住。韩国人这要是绷得住，那就有鬼了呀。
+- [00:24:37]：这怎么绷得住啊，制裁韩国也是为了制裁美国是吧？哎呀，制裁韩国造船。对，早就该制裁韩国造船了，让他们死。
+- [00:24:50]：知道吗？让他们死，我是特别你我我跟你们说一下哈，西雅图这个地方和韩国有一些不解之缘。
+- [00:25:00]：啊，我这个是我必须要讲的，为什么呢？当年美国对口扶持韩国的时候，重点的扶持项目之一就是造船业。那么请问。
+- [00:25:15]：韩国的造船业主要来源于哪儿呢？它的核心技术啊、设备啊、人员培训，你们猜猜在哪？
+- [00:25:24]：就是西雅图。对的，就是美国本土。
+- [00:25:28]：美国本土不就不算夏威夷啊，离韩国最近的能够重点培训海洋制造海洋业的各种设备制造和人员培训的地方，就是西雅图。所以西雅图实际上有大量的含义社区，你们知道吧？
+- [00:25:47]：哎，这些这些狗屁打造的就是所谓的傻逼含义美国人啊，就是他们大概率是最傻逼的两种结合，就是他同时继承了美国人的傲慢。
+- [00:26:01]：和目中无人又继承了韩国人的那种歇斯底里。就是。
+- [00:26:11]：没有这么唐的吧，而且这些人往往来都来自于这种就是要么就是韩国的这种制造，就是船舶制造企业，要不然就是美意的韩国人在西雅图的韩国人开的制造企业里面。
+- [00:26:28]：啊，就这种人是最容易对着老钟哈气的，你知道吧？就是无论是他作为含义的身份，要对老钟哈气，还是他作为美国狗的身份，要对老钟哈气。
+- [00:26:40]：或者是他自己作为美国人的那种傲慢，哇，就赶紧让他死，你知道吧？赶紧制裁韩华，他妈的这边移民来的这种韩国韩国和韩国二代，基本上都是韩华的，妈的，赶紧让他死。
+- [00:27:00]：真的赶紧把这群傻逼按死，还他妈跟老子成天跟老子吹牛逼哎，是。
+- [00:27:12]：我见过这样的傻逼韩国人啊，大家还记不记得那个就是那个我之前讲过吧，就是我们在学校啊有傻逼美国人白皮问我那个啊你们中国人吃不吃狗。
+- [00:27:30]：我我我我当时的回答不是说说我们中国人哎呀，不仅吃狗，还吃猫是吧？啊，还吃你们美国小孩儿。
+- [00:27:38]：那个白皮他没有破防，他只是被我问傻了，你知道吧？他没想到我能这么回答，谁破访了呢？下了课以后，有他妈含所谓的傻逼打引号的韩裔美国人破防了。
+- [00:27:54]：就是啊，怎么能吃狗啊，你们你们你们中国人是怎么怎么样怎么怎么样，我说你是傻逼吧。
+- [00:28:05]：你们他妈韩国传统就是他妈吃狗的，啊，妈忘数点忘祖，属于是。
+- [00:28:13]：你说他为啥破防啊，我攻击美国呀？他作为美国最忠实的狗，我还攻击白人啊。对，感谢风之建视媒体学程老哥打赏。韩华海洋前身是大雨造船，主要是南高地海军造船，同时也是新冠马海军造船的承包商。对，赶紧让他死。
+- [00:28:31]：知道吧？就是这种数点往左数点往左的畜生哎。
+- [00:28:44]：哎，就是就是挣着挣着卖0卖挣着卖面粉的钱是吧操着卖白粉的心呢。
+- [00:28:56]：哎，感谢电焊国宝宝哥大赏，我看一下啊，老爷图片放一下，顺便说一下，各位给美国美式民民法洗涤，不顾传统道德。那我只能说支持撼地行舟。
+- [00:29:13]：嗯，这老哥，你这个图整理成一张，这玩意是吧？
+- [00:29:22]：我上一张嘛，嗯，你说这不就是拿自己国民当猴子，然后自己是不是国民。
+- [00:29:32]：就不当猴子，差不多这种心态吧，差不多这种心态挺傻逼的哎。
+- [00:29:52]：等一下，我把这个这图片有问题，我重新我重新拍一张。
+- [00:30:11]：真的是，而且我跟大家再说一下哈，就是这种韩裔美国人或者是越南裔美国人啊，对美国有一种怎么说呢？
+- [00:30:25]：就是那个话应该怎么说？有一种很脑瘫的魔怔心态，就是这种魔怔心态是什么呢？
+- [00:30:35]：类似于很就是那张非常经典的南朝鲜南朝鲜电视剧，就是啊能当大名的狗，真是荣幸。
+- [00:30:44]：就是他永远有这种寄托的想法，他只不过是把大明大名换成换成换成新新新新国马，就这就这么点区别，实际上区别不大。
+- [00:30:58]：就是他永远有一个效忠对象，而且自己效忠的时候不是以加入这个集体为荣，而是当这个集体的狗为荣。
+- [00:31:12]：是这种千年当狗的国家，这种这种扭曲的这种狂热，就是你没法打断，你知道吧？
+- [00:31:24]：就是你说你这你他妈是狗吧啊，他告诉你啊，很开心我能当狗，就他是无敌的，你知道吗？
+- [00:31:34]：他贼他妈无敌，哎呦就是就是你所谓的攻击他的所有的点，他都欣然接受，就是他是无敌的。
+- [00:31:46]：嗯，支付宝到账。
+- [00:31:58]：嗯就是你你没法说他，你知道吧？就是你你就像打在了沙包上一样，就是那种打在了空气中一样，你对他的所有所所有的那种不做人的那种当狗的那种侮辱。
+- [00:32:18]：他可以笑嘻嘻的跟你说啊，对是吧？当狗好爽哦，就是。
+- [00:32:27]：它只有它只有就是两种状态，一种是脖子上没垫子的时候，那种无依无靠的可怜流浪的小狗的劲头。第二种就是当上狗以后，那种嘤嘤狂吠的劲头，它永远不做人。
+- [00:32:52]：有人说北方那有人时北朝鲜不这样，北朝鲜他也这样，无非他把崇拜的对象换成了国内的人。
+- [00:33:01]：本本民族的人是显得稍微好一点，不过也挺唐的嗯。
+- [00:33:12]：有时候那不就是有时候那不就是李总兵的家奴啊，某种意义上是吧。
+- [00:33:23]：感谢岁月之名老哥打赏，正好说到韩国，发现国内文娱界，包括做游戏的大把给韩国人当狗的，最近就有朴伯哲和陈泽冰两款游戏爆这方面围了。昨天大晚上笑的睡不着觉，纯排着半个月的惊世智慧，是过往十0年中所有2英厂商的总和，帮忙问问HV老哥感想，已经快尽到fly away，发 away了，再不播一下，尸体都臭。930后15天一直在爆炸，没停过。
+- [00:33:54]：啊，等一下等等我读完，等我读完，没停过啊，这长黑桃青梅出嫁，屏蔽瓷歪屁股兔女王韩夫特供自曝其黄啊，以前称外夫评级无法管理，并果然凭运气得来的成功，一定凭本事输掉。
+- [00:34:13]：是感谢妹，你贴吧看多了吧嗯。
+- [00:34:22]：感谢风之剑圣美绝生老哥大赏，南高低也是三星家奴，先当代元的狗，再当代名的狗，再当代青的狗，再再当侵华日军的狗，最后当新罗马的狗啊，是。
+- [00:34:34]：他他就这状态，他习惯了问问老魏教子现在怎么样，他年纪小是吧？他挺开心的，他吃嘛嘛香啊，无忧无虑。
+- [00:34:46]：真的唉。
+- [00:34:59]：我不玩二游，其实我不清楚是吧？我就读个SC唉真的。
+- [00:35:17]：哎呀啊感谢芝麻蝴蝶老哥送的人气票，感谢阿东叔叔送的粉丝团长牌，感谢本属老爷送的一定发财，感谢老哥。
+- [00:35:27]：哎呀，这我是服的，你知道吗？哎呀，二游这个东西嘛，想玩就玩，不想玩，赶紧跑。我不建议任何人玩二游。
+- [00:35:43]：好吧，哎哎呀。
+- [00:35:55]：因为因为是这样，玩一般游戏的社区其实就挺磨怔的啊。二游社区我都是不敢想的。
+- [00:36:05]：哎，哎，老A，那你是没看战雷社区。对呀，就是我说的吗？就一般游戏我都不敢一一般游戏都那啥了，更别他妈说二游了，是吗？不不不，老A告诉你真正的那个赛博索要的战雷，你知道那个能把米线山放进来，然后让米线山说出我只是串我不是蠢啊，这这种言论，你想象一下这个社区有多恐怖啊。
+- [00:36:35]：是吧唉战个也可不是一玩游戏，是这样，就是我是玩过MO的，就是有人玩过MO吗？知不知道MO是啥啊，我是玩心灵终结者的，是吧？
+- [00:36:54]：哎，那你可能不知道我在说一种多逆天的东西。哎呀。
+- [00:37:07]：来吧，这是什么幕红人老哥点的，哎呀，这算是某种契合今天主题吧，女人们震惊了，连好男人也不再关心了。
+- [00:37:22]：呃，加得宝类似于什么呢？加得宝类似于一个美国特化版的这个宜加IK呀。
+- [00:37:37]：就是嘉得宝的经典画像是什么呢？嘉德宝的最经典画像在美国，就是一个老爷们儿，手里拎着领着两个孩子，自己自己女儿怀里再抱着一个，甚至再怀着一个，然后推着一个大车去买家具。
+- [00:37:56]：啊，呃，感谢徒手解放成老哥搭赏画宝宝爷子可算是能分享了。画宝宝啊，那个那个轨道专家是吧？那个啊看了看了。
+- [00:38:08]：啊，老爷子是憋坏了，等我先看完视频啊，等我先看完视频，现在这种地方没有男人了，这不都是你们美国女人自己作的吗？
+- [00:38:19]：here, there's no men here.
+- [00:38:29]：The single men are in and out of Home Depot before 9 a. after that we're at home working on our projects.
+- [00:38:36]：The men at Home Depot later than 9 a are with their wives. We know what we need don't linger and move out with purpose I have a serious fucking question and a't of the answer to it right fucking now We're the fuck are all the nerdy boy where I was a fucking nerdy boy.
+- [00:38:55]：啊，这句话本着就是说那些凯子们都哪儿去了啊，就是。
+- [00:39:03]：女人这么问，就是凯子都去哪了啊，那些愿意负家庭责任是吧？啊，能够正常正规明媒正娶娶老婆的给婚戒的那些男人都哪儿去了？
+- [00:39:16]：啊，他本质上就是换个一句，中国人听得懂的事儿，就是怎么没有人接盘了呢？
+- [00:39:28]：啊，这个话的本意就是哎，接盘的男人都哪去了啊，男人怎么都不见了？
+- [00:39:37]：嗯，对吧嗯哎，老A现在西大那种婚姻类的律师应该很赚吧。
+- [00:39:47]：婚姻类的律师恰恰不赚，因为没有人结婚了，没有人结婚就没有人离婚了，你知道吗？啊啊，我本来还以为说这种情况下，希藏那些婚姻律师是赚的很满。我今天马上就要讲就是。
+- [00:40:03]：我之前讲那些和美国女人约会那些事情啊，那些规则大概上是两年和两年半以前的玩法，就是疫情疫情就是疫情刚刚结束，那会儿就是。
+- [00:40:17]：大家是刚刚从疫情的那种那种那种环境下出来，就是已经是后疫情时代开始了，整个局势都已经翻天覆地的变化了。而且我以前吧。
+- [00:40:30]：我一直在跟谁聊呢，就是我在跟银趴哥和黑哥聊，后来我发现不对。
+- [00:40:36]：为什么呢？这两个人本质上都是富二代、富三代，甚至是更多代，他们本质上和女人的交往是和普通人不一样的。我在和播音哥的交往就交谈过程中，我发现妈的不对，实际上普通美国男人，中产美国男人。
+- [00:40:57]：就是遇到的情况已经和以前完全不同了。
+- [00:41:01]：对，就是版本崩溃了，版本要回版本已经回滚了，你知道吧？就是我说我操，不是吧，这好像局势有变，好像和他妈的。我刚来美国那会儿不不他妈一样，这个变化也太他妈快了。这两年经济崩溃啊。
+- [00:41:20]：就哎呦哎呦。
+- [00:41:26]：就是有时候是都不结婚了吗？是这样，就是现在是美国是什么情况？男人清一色不想结婚，女人清一色想结婚，为什么呢？他的本质底层逻辑和中国差不多，但是比中国要急迫，为什么呢？就是美国的男人已经是2.0版本，就是他们已经和家庭和责任和一切都已经脱钩了，你知道吧？啊也玩不起就是美国人实际上他们接受天下大统这种事儿的拷打是什么时候呢？20年前10年前。
+- [00:42:07]：就是他们已经版本更新了，就是我他妈才不结婚呢，结婚对我一毛钱好处没有我结婚就是分脑子的钱，结婚就是影响我的事业，结婚只会影响我出刀的速度，开枪的速度也不陪你玩了。
+- [00:42:24]：美国女人现在是法国了，美国女人再也不叫嚣，这个世界上有的是男人了啊，美国是全世界这这个这个流动人口最多的国家，全世界的精英男人都来美国，她再也不讲这个了，就是也不讲什么缺不缺男人了，现在讲什么。
+- [00:42:43]：我想当老婆，我想结婚，我想有婚戒，我想有孩子，而且我不想上班，我想当traditional wife tra life什么意思呢？就是wife.
+- [00:42:55]：就是传统家庭主妇，老老娘不想当女强人人设了，老子不想要什么左派女权虚事了。老娘现在兜里没钱了。
+- [00:43:09]：你懂吗？就是他现在想版本回滚了，就是现在的版本，他发现妈的好像是再也不利于再再也不利于这个新时代的所谓的打引号的独立女性了啊。
+- [00:43:25]：就是这种视频里演的女的，就是你们以前不是最他妈讨厌，这是吧？nerd boy吗？啊，你们不是很讨厌吗？这怎么又开始找了呢？为啥自己经济要崩溃了，崩不住啊，是吧？
+- [00:43:44]：哎呦，很简单。
+- [00:43:50]：是吧找不着吧，I'm so fucking tired of the athletes啊什么叫受过过渣男呢？these fuckuck boys什么叫什么叫fuck boys呢？就是只和他们做爱是吧啊，就是只只只只CCB是吧？不得就是只只走事不走感情。
+- [00:44:10]：啊，懂吗？进行连接啊，对，接就是只进行人与人的连接啊，就是就是就是不买婚戒，也不谈孩，也不谈责任了，也也不谈孩子了啊，他现在想起传统男人的好了。
+- [00:44:26]：啊，你记住啊，这是纯粹的翻译问题。这里面是的fuck boy，可不是渣男，知道吗？
+- [00:44:36]：where are the fucking nerds?就这种女人就是这这种这种白妞就是典型的就是就是典型的什么呢？
+- [00:44:47]：啊，自己从十五六岁开始，一直到二十五六岁，已经和这些fuck boys们，就是和这些所谓的打引号的渣男们玩个十多年了啊，现在自己二十七八岁了，二十八九岁了，马上奔三去了，自己的经力也不太记了，是吧？生理指标也下降了。
+- [00:45:13]：他现在想结婚了他现在想结婚了，嗯，就是对我想这个就是I just wna changenerd boynerd guys life或者nerurd boys life。
+- [00:45:33]：这句话是现在欧美小仙女最经典的话术之一。
+- [00:45:41]：就是兄弟们，你们可以把这句话记住，如果你以后跟美国白妞谈这有谈他说这句话的话，你你赶紧跑跑的要多快有多快，否则你你你是吧？啊，你都hold不住自己啊，感谢老哥打赏啊，感谢我看看感谢贵物中的贵物老哥打赏。老，这首曲子真是太好听了，麻烦放一下。
+- [00:46:06]：啊，行吧，微信收款30元，嗯，别急别急啊，是吧？那等会儿等我多完，感谢ZZP老哥打赏。
+- [00:46:17]：啊啊，说到踩踩踩踩背来上张图啊，这这这这他妈的。
+- [00:46:26]：有点极限嘛？嗯这个图可以先上一下。由于这张图是纯图，没什么内容，就先上了啊。
+- [00:46:39]：这个这个踩踩贝是不是有点太凶残了？老A呃，感谢我大，老一会儿可以放这个拧巴锤的视频。虽然说搞全南IP是纯口嗨，但是其中似乎确实能看出一些变化来啊，是的。
+- [00:46:57]：来吧，我们把这个看完 life bro, I just want to change his mind forever.
+- [00:47:06]：IfThat's so fucking hard, why can't why can'tI find a nerdy man, I want a nerdy man, I want a nerdy man that knows random fucking shit.
+- [00:47:17]：你看他还是就是又不跌位说教，就还是没有放弃女权那一套趋势嗯。
+- [00:47:27]：I want to change this nerd's life and make you obsessed with me I that so hard to fight他们其实想找一个就是找人接盘?
+- [00:47:37]：when she saysnerdy man, it's more like Henry Cavill and less like us average dudes.
+- [00:47:50]：She means engineers and software developers who play sports on the weekends and sometimes go watch sports at their buddies house parties, not the dude playing video games and watching Star Wars for the 18th time men want to be the woman in the relationship so bad these days like relax Princess there's no fucking reason why I should be paying for dinner.
+- [00:48:10]：there's no reason why we should be going on a trip or就是就是这里面说的就是传统男人负担的一切，就是哎是吧？现在AA就挺好，妈的，我是男人，我才不要版本回滚呢，是吧？凭什么要回到那个男人负一切的时代呢？
+- [00:48:29]：对吧哎，我就不富啊，哎，我就是不想回滚啊，是吧？哎呀，以前不好是吧？哎，别别别别，我坚决不搞什么大男子主义是吧？啊，咱们就AA是吧？我再也不当什么传统男人了，是吧？传统阿尔法型男人是吧？现在就挺好是吧？啊，我什么都不富啊。
+- [00:48:54]：是吧也没有什么约会旅行了 anywhere. And I should be the one pulling up my car to pay and you're just staring at me like a dumbs. There is no fucking reason why对，就是现在就是。
+- [00:49:12]：美国男孩子就是三步一主动，什么三步呢？不发短信，不打电话，不约会啊，主动退出婚姻。
+- [00:49:24]：这就是现在美国男性的，就是三步一主动，就是不约会，不打电话，不发信息，主动退出婚姻。
+- [00:49:38]：就是就是嗯就是美国男人好像突然间也发现了，我只要三步一主动，我的生活质量其实可以很高。
+- [00:49:54]：你懂吗？呃，感谢岁月之明，老哥打赏放个歌啊，就是这是后面就咋了好几首歌了嗯。
+- [00:50:04]：啊，不急是吧？哎，就目前就这么个版本，目前就这么个版本是吧？
+- [00:50:14]：I should be texting you first there is no reason why you shouldn't be bringing me flowers or buying me a coffee just because or just doing something that doesn't even cost money just to put a smile on my face.
+- [00:50:27]：No in this fucking generation, it's the other way around why in the fuck are women becoming so masculine II want to comprehend what is happening to the men是什么叫.
+- [00:50:41]：什么叫女性男性化呢？就是说白了就是奥黑上台以后的一系列左倾操，就是妈不能用左倾这个词，就是白左操作是吧？女权操作。
+- [00:50:55]：就是他已经给美国女人注入了一种更加有毒的思想，就是男人做的我们女人能做。所以我们而且我们女人比我们男人更聪明，所以我们做的更好。
+- [00:51:08]：就是收款20天，我我一会儿就要马上讲到这一类女人这一类人在美国，就是他们已经没救了，就是他们自从。
+- [00:51:19]：整个的奥巴马的两个任期培养下来的那种恐怖的意识形态和三观，已经拧不过来了，就是他们已经无法回归家庭了。
+- [00:51:31]：感谢真老哥打赏。老A今天看到一个有意思的说法。现在二阶段的猫易战最大的贸驿战最大的变化可能是老钟的心态已经从谁中切蛋糕多一点，转变成凡事有人敢给我切蛋糕都得死。这次稀土家船运明面上打的是美帝，实际上冲着小日子和南高地的命门去，估计金毛被底下人提醒到两只狗真的会挂，所以光速他口啊，好日子还在后面呢。
+- [00:51:57]：也就是说这个白女像个鬼一样，真的有人要吗？啊，首先来讲这是个黑人啊，这是个黑人，就是。
+- [00:52:07]：老哥们还是见的美国女人少，这是一个经典的白人扮相的黑人女，好吧，就是回血已经混了很多白人血脉的黑人，就是她已经扮相上不能往纯粹的黑人女性上扮了。
+- [00:52:22]：啊，天哪这是这是一个黑人女性啊。
+- [00:52:28]：你说这黑人根据一滴血原则，确实是这不是一个白人，这不是一个白人他的面相和他的面相和语气和画风都是一个黑人，好吧，他只不过就是混了太多白人血脉。
+- [00:52:43]：大概可能只有4分之1或者8分之1的黑人血统，，这个不是个白女兄弟，这是个黑女，好吧，当然她的思维和思绪方式已经很白了。
+- [00:52:58]：啊，支付宝到账25元，就是就是黑人老哥就是比较诛心的说法是你当不了一个好妈妈，就是你当不了一个你当不了一个传统黑人社社区里的背个妈妈，那种富有爱心，就是能拉扯孩子长大的那种妈妈是吧？你也当不成白人。
+- [00:53:21]：感谢铁产亚左风老哥打赏，有一收益老A，我觉得脑膜炎没二又笑死那天啊，还行吧，至少MO玩家不会把波安卖草莓当成神仙咔咔一顿半啊，那倒是另外能把这张图放一下吗？此外，现在还关注纯埋的，其实在新入欣赏一部叫提斗放哈林增红，或者又名锦城哈毛恶作纪的电影，只是这部电影电影片太贵了，一张票的人价人均5000块。
+- [00:53:51]：哎，就是你这张图一会儿一一会儿放吧，这张图有点太地域了。
+- [00:54:01]：啊，不是我跟大家说一下，就这个女人是一个经典的黑女是吧？啊，白人画的黑女，感谢夏辉老哥打赏，我看一下。
+- [00:54:14]：呃，下回老哥，你发我，我没看你发我嗯。
+- [00:54:26]：有人说这能是黑女吗？典型的黑女，兄弟们，这是典型的黑女，好吧，感谢老哥打赏。老位大漂亮是真不知道读书好才能找到好工作吗？知道不能说为什么呢？戳破社会的共识，大屋子里的大象，为嘛受欢迎的却是运动员呢？
+- [00:54:45]：他的野兽性还是存在的，为嘛女的人审审美这么奇怪，但又要读书好的接盘。这小仙女思维啊是吧？我要身强力壮的男人来干我，又要有钱有脑子的男人来养我。就是当这两种身份不能合在一个人身上的时候，我就希望两种男人同时来找我。
+- [00:55:08]：就是他既希望这个男人有脑子一门心思的扑在学术上面，然后成为一个比较有钱的工程师什么的。一方面又希望这个人没什么脑子，从小天天去运动，练的一身腱子肉来操他。
+- [00:55:24]：是当这两种身份能合而为一的时候，自然好。如果不能的话是吧？那我分别找两个也不是不行。
+- [00:55:37]：有人说这不就是左右脑互搏。呃，一般传统意义上这种叫法叫做东食西素啊，传统一点的叫法。
+- [00:55:49]：这个采踩贝的这个图片，我我已经发了好几次，怎么发不到这个这这这个这个慢脚这边，我只能重新自己截一张图。
+- [00:55:59]：哎，有时候好事，这不全让他占了。对，所以现在男人们想明白了，最起码有脑子，那些那儿的那些书呆子男孩想明白了，就去你妈的是不凭什么老子还供养你。
+- [00:56:15]：Why do you want to be us so bad like do I have to take you for a fucking petty or a fucking manicure, what is happening?
+- [00:56:24]：What is happening, I genuinely want to fucking no I'm done.
+- [00:56:32]：I'm done we finally opened our eyes. We give what we receive men don't beg or chase anymore. Where are the normal people就是就是三步一主动就是永远不给女人发信息，永远不约会女人.
+- [00:56:48]：就啊永远不和女人说话，然后主动离婚 my case I mean like normal guys today呃， I feel like大家看见这个女人了吗？这是我操，我看见这个女儿有点生理不适了。
+- [00:57:03]：为什么我生你我有点生你？不是我有点想我有点我现在有点想想想想想想发火，就是啊这个是非常经典的白佐女的扮相。
+- [00:57:20]：就是就是我女朋我我前女友差不多就是这么个扮相。
+- [00:57:26]：啊，感谢下回友个终于发出了，我读一下宝薇呀，我经历这么多年的考察后发现集美是一个和小丑一样的哲学方法问，很多时候恰恰是不作为和乱作为，才有集美的出现。而集美的犯案恰恰会摧毁知心姐姐的存在基础，是否可以以后见十年中知心姐姐女高职之类的不可界定与描述的生物会被大规模消除。。
+- [00:57:51]：一定的。
+- [00:57:54]：国外的邪邪交502会借助算法渗透和组织极美加速冲，已经是这样了。还有给你看看我做的好吃的，也给大家分享一下炸藕核青炖狮子头南煎丸子东安东东安饥松鼠鳜鱼，海鲜扒肘子，海参扒肘子，顺便附上两个宋词，请读出来。平日不修善果，最爱石油军火，冻辄鸡鱼龟则，总是邪迫归索，全面推断振果环球同死良热，老东舰队海上来，今日防止我食我美帝末年宋词，平日不修善果，见人哈气不躲，动辄复泉压迫，诬告紧追不舍，必然润啊，等会这么端。
+- [00:58:39]：等我读完，就是不要在我读的时候震我嗯，孤独啊，必然瑞心叛国，反冲啊，百百吨大运呼啸为今日方知我是我。
+- [00:58:54]：完哇来，我我我把我把几张好看的发一下是吧哎？
+- [00:59:11]：真的是我们把视频看完哈，就是就是我觉得自己挺正常啊，不行了。兄弟们，我听到这句话，我PTSD要发了，就是我觉得我自己很正常。
+- [00:59:30]：啊，不行，我现在我现在脑海里全部都是不好的回忆，你们知道吗？
+- [00:59:36]：我不行了，就是我看见这个女我看见这个女人的装束和这个帽子，还有这个脸型，就是这个面相啊，还有这个画，就是那个动作不行了，他们好像一个模子里套出来的，我我现在脑海里面就是已已经开始开始人生走马灯了，你知道吗？
+- [00:59:56]：有人说没看懂有啥看不懂，我前女友就这样，你知道吗？就是我觉得自己挺正常啊，我觉得我自己可好了，就是我我就是哎呦。
+- [01:00:13]：啊，我不行了，就是不行，我我看见他微软PTSD发了，这是非常典型的白灼小仙女啊，非常非常典型的白灼小仙女就是啊啊不行。
+- [01:00:26]：我看见有点有有点他妈PTSD发了嗯嗯嗯补充此外，国内二有厂商只有老A前女友plus老为前女友pro，老魏前女友pro max老为前女友 ultratra这几个级别啊。
+- [01:00:43]：嗯，就是。
+- [01:00:55]：他扔完飞刀，我去问他，你不觉得你有问题吗？
+- [01:01:00]：然后就是他跟我就一个词儿都没改啊，兄弟们，我觉得我自己挺正常啊。Ijust feel like I'm just normal,就是那种一脸无辜风轻云淡是吧？摆一个很可爱的pose。
+- [01:01:18]：就不行，我现在就你们现在我知道为什么我对我前女友心理阴影那么大了吧？就是这种女人是就是你们你们想象一下，他要谋杀你。
+- [01:01:31]：就是他抄你他他抄你扔一些很恐怖的东西以后，他还能风轻云淡的说出这句话来。Im just normalIm crazyI don't do anything crazy坏了，我操一个词都没换啊。兄弟们，这说不是都是我前女友的词啊，一个字没改啊，兄弟。
+- [01:01:49]：就是啊，我我不行啊，兄弟，我我不行了。
+- [01:02:01]：Im just person just a person dok whatever啊就是虽然有tkt账号什么但总体来说非常普通大家说一下你在美国约会的有一个女跟有tk认t是用来打拳的东西。
+- [01:02:35]：懂吗？就是虽然没有什么虽然没有什么大的体量，但是有一小群粉丝搁那傻逼共振啊就in generalI'm pretty normal pretty feel like all my friends感觉从小到大认真的朋友都很正常。对，都是他们这个圈子里的人，他们圈子里觉得自己是正常人 normal。
+- [01:03:01]：啊，我不行了啊，我我我有点我我现在有一点PTSD犯了，你知道吗？我现在脑海里全是画面。
+- [01:03:13]：行我我我现在不仅想起我前女友，我还想起了他的那些那些逆天闺蜜嘛，你知道吗？啊，我我有点我有点多少多多少少那啥了啊。
+- [01:03:26]：啊，真的感谢腾哥大做老哥打赏，换换心情啊，看看我的啊。
+- [01:03:36]：You are a horn.
+- [01:03:40]：等会把视频看完是吗？ where are the normal people just normal people everyone seems to have some sort of mega red flag or some like just就是美国人说下头就是说red flag就是美国人一般不说直接说下头啊，他们说red flag redd flag就是红旗橘红就是。
+- [01:04:01]：美国女人的标准就是green flag ，green flag就是绿旗，绿旗就是OK完美，很好。red flag红旗就是不行。
+- [01:04:10]：Strange trait That is a turn off to me. I don't know. Like maybe I am too picky. I don't think I am I don't think Where are you guys, normal guys are at home doing normal stuff. Check your friend zone. You ignore the normal guys because they're too boring for you. You want the experience. Chad. The one with a hairy chest. We, the normal dudes will not accept being settled for. No, thank you. go stay with Chad. We're fine being single.
+- [01:04:38]：O love how girls just use this啊，坏了，这个扮相是另外一种美国经典扮相，叫vely bitch.
+- [01:04:48]：之前那个黑女其实就已经很歪y背上了，啊，但是那不是她第一身份，就这个哎呦，我天不行了。
+- [01:04:57]：就是就是峡谷峡谷绿茶，就是加就是这个就是我跟大家说一下。
+- [01:05:09]：美国标准的ins博主的面相啊，或者TT博主的面相就是女女博主的啊模样。
+- [01:05:19]：啊，懂吗？就哎呦这个这个这个面相也是非常的经典，好吧，这这个面相也是非常非常经典的那种。
+- [01:05:35]：啊，就是精致叉叉N人设的那种美国女人。有人说小视频女主那种吗？呃，一般这种女人不是小视频是吧？她是比较高端的绿茶 their diary in their little journals. That's what I'm going to do.
+- [01:05:51]：But I have been thinking and I'm so single, like so incredibly single, it's not funny but.
+- [01:05:58]：I think that my future husband is not in the US.你放心啊，就是就是呃我马上一会儿讲正题的时候，我也会讲到这种女人，你知道吧？非常非常的恐怖，你们知道吗？ think就是他肯定不在美国啊，对的对的对的， somewhere else.
+- [01:06:17]：because just看到了吗？就是贬低本国男人，捧外国男人是这些女人的标配。
+- [01:06:27]：啊，你看到了吗到了吗看到了吗？看到了吗？
+- [01:06:39]：这些打扮精致、时尚又漂亮的女性博主，她们往往第一性就是。
+- [01:06:48]：任何话题一转攻击本国男性，就是你们想一想，如果如果中国男人可以被攻击，我还可以说是什么第三世界国家呀，发展中国家，美国可是天下第一啊。
+- [01:07:09]：有时候他那他们捧哪国男人呢？你猜猜哪个国家在小红在在在tktok上最火呢？懂吗？就是你想一想，如果你是美国男人，你累了一天下班回家。
+- [01:07:29]：看见这个不是你PTSD不就你现在把你带入一个美国男人的视角，你想象一下。
+- [01:07:40]：就是一个享受着美国男人供养的这么一个漂亮女人拍视频。
+- [01:07:48]：几分钟就来一句，我觉得美国男人配不上我，我觉得我未来另一半在国外唉。
+- [01:08:04]：是每个国家都有自己的林先而要面对，你知道吧？那点吧是不是点完了？
+- [01:08:16]：这种女人的扮相和话语，你是不是在某小红薯上面经常能看见，是吧？对。
+- [01:08:29]：也就是除了美国男人，哪个国家的男人都行，你也不知道这个美国几十年的霸权。
+- [01:08:38]：啊，在全世界威震四方的霸权，在他眼里都是配不上他的。就你们想一想吧。
+- [01:08:51]：是所以你们不要以为某些东西是中国人的劣根性，全世界都这样全世界都这样。
+- [01:09:02]：你们懂吗？他真的是这这个东西真的是不分国家的，全世界都一样啊，就是所以请中国男人放宽心是吧？就是永远也会有这么一群女人呢。
+- [01:09:18]：永远是国外的香，世界第一你也不行。美国现在是无可质疑的世界第一吧，那也不行，美国男人不行。
+- [01:09:29]：啊，对，集美是国际化的。
+- [01:09:37]：The guys here are not it. They're not doing it for me就是就是为了防止有人说他歧视就是哇完全不是我的菜， I don't know what's going on or how对，就是不是他的问题。他认为是是是是别人的价值观扭曲，不是他的价值观 screw up but.
+- [01:09:55]：看到了吗？就是我也不知道美国男人还要怎么努力，能配得上他。
+- [01:10:07]：就是有的时候我也觉得美国男人挺可怜的是吧？american men doing你看就是他可以神色自若，脸不红心不跳的把这一句话说出来。
+- [01:10:26]：哎，这可是他他说的可是美国男人啊，懂吗？
+- [01:10:43]：But then it's like I guess I need to go这种女人一会也是要我要嫁 over somewhere like surely they have better men out there this can't be this cannot be the dating pool everywhere it can't be this bad, right?
+- [01:11:00]：No, as though I got to, I got to book a flight and I got to go somewhere else to meet my future husband, he's probably like in Italy or something like with his family taking care of his Nana or something like I don't even know, I don't know but.
+- [01:11:17]：US men are not it I gotta know like especially since this is international张嘴就国际化时代了 if you are in a different country and you're a girl and you know like what's what's it like are there good men out there do know?
+- [01:11:33]：Because it's not happening here the state's just not it's not it when attractive women complain that they can't find a man maybe they need to look inwards and self reflect because there' are plenty of good guys out there No I'm not the only girl who's noticed that guys don't come up to us in public anymore.
+- [01:11:52]：只会隔着酒吧盯着你看还记得我说的吗？就是这种女人就是经典的，她年轻10岁就是会坐在酒吧里面。就像我说的，狠狠羞辱并拒绝每一个上爱搭讪的男人的那种女人。
+- [01:12:09]：ll就是男人根本就不敢上前的。因因为到目前的版本就是美国男人在酒吧里面主动出击得到的基本上只有羞辱. that's the epitome of what dating apps feel like. It's just a bunch of guys staring at your profile liking you quietly but saying nothing. And I'm sitting there like how we ever gonna speak Are you hoping I make the first move online就是这种女人就是说这种光冕堂皇的话.
+- [01:12:40]：然后男人真的来来问你就是不行狠狠拒绝 also passive like everyone's watching each other but not doing anything.where's the connection?这就是我说的那种Let me put it in an analogy you'll understand.
+- [01:12:54]：I'm driving and I know there'sa cliff coming, should I keep driving, that's what a relationship is now. we know the outcome, Why continue.
+- [01:13:02]：Why are all the girlsies in the same boat right now from my last post about where the girls finding boyfriends nowadays can we debrief how really every single girl had the same comment they're like, I don't know, I'm trying no luck blah, blah, blah, blah blah, like why are we all on the same boat Why are 50% of the comments saying Facebook dating?
+- [01:13:23]：Are people really using Facebook dating No bother and then just recently the video started gaining traction from the men and they're like yeah we can't find girls either we were told don't talk to the girls so you have to come up to us first like.
+- [01:13:40]：I think I should clarify that it's not that I can't find is一种很经典的面 find men because we can they're everywhere it's just we can't find the right men, the right men that we are looking for that we have preferences so maybe I should rephrase my question into where are all the good men who have potential?
+- [01:14:04]：这也是美国小仙女的经典话术，是有潜力的好男人就是。
+- [01:14:12]：美国的小仙女说，有潜力的好男人，她说的是谁呢？她说的是那种在学校里面刻苦读书，并且读完书以后会去大公司技术岗科研岗那些nerd的们。
+- [01:14:28]：啊，但是呢他们不会和这些男人交往，最起码不会在初期阶段交往，为什么呢？因为他们要享受人生是吧？啊，享受下半身的快活，他去找他去找什么，他去找运动员去啊。
+- [01:14:46]：他什么时候就是那些潜力的好男人开始吸引他了呢？就是当这些男人真正的从痛苦的漫长的读书当中毕业了以后，真正有一个好工作了。
+- [01:15:00]：就是当他们的潜力开始展现的时候，懂吗？比如说这个长相是什么？美国富首尔。
+- [01:15:13]：这是经典的美国富首尔的长相，懂吗？就是跟你一本正经的搁这分析男人好像自己很聪明，很理性一样。
+- [01:15:25]：啊，有时候吃现成的对，就是有潜力的好男人哪去了？
+- [01:15:34]：Today's women ridiculous expectations, they all think they are tens, they don't know how to have a healthy relationship, they entertain multiple men at the same time, they lack appreciation and put in low effort.
+- [01:15:53]：The bear is still available, though. Nothing is more annoying and honestly immature to me than when a man clear这个是就是黑板 Karen这个是也是很经典的长相。哇，这个视频这个视频作者很有水平啊就是。
+- [01:16:11]：哎。
+- [01:16:13]：这个视频是点型那种高职黑妞小仙 wants to approach me he clearly wants to say something but won't like he'll do everything to be in my peripheral if I'm somewhere like the gym like he'll go as far as following me around every set every workout I'm doing guess who's getting ready to set up next to me when I used to online date like I used to do online dating these would be the type of guys that would message me and be like hey like I think I saw you at the gym and it's like yeah dude it's so obvious you follow me around and you don't say anything want to be chasete and it's not for the reason that you would think like you know maybe they think they're more attractive etc no.
+- [01:16:56]：Y'all have social anxiety and you're awkward that is why some of you want to be chaseste it has nothing to do with gender roles or anything like that because if honestly if you see something you like, you should have the goal in the balls to say something waiting around for a woman主 that also putting your.
+- [01:17:17]：有时候在美国现在主动搭讪是不是相当于性骚扰啊？对的，就是为什么男性不敢主动搭话呢？因为很容易被告性骚扰的兄弟们是非常容易被告性骚扰的。
+- [01:17:32]：非常非常容易被高兴骚扰，就是长得漂亮的女人。
+- [01:17:44]：被男人吸引吸引男人是很正常的。但是由于黑暗森林法则，你根本就不知道这个女人会不会把你送到警察局，所以根本就不存在男人主动去那什么的时候。
+- [01:18:02]：啊，有人说这漂亮嘛？在黑人女里不错，感谢这老哥打赏，经典要求有上进心，我操太熟悉了。这味纯纯PUV吊规流程，以及敢反驳。就说你是下图男和新牙阿抑啊，是。
+- [01:18:16]：感谢玉离曾老哥打赏，我看一下。
+- [01:18:21]：啊，谢照谢照志五五杂祖京师妇人有五不善，蝉也兰也刁也淫也浊也，于见四方犹患，取京师女为妾者。皆庆滋福以供口腹，必精神以遂其欲，及归故底，则撒泼求敌，父母兄弟群然消敬，求其勤俭干家，不千百种不能得一憾也。老爷，我刚刚来没听几分钟，这不就是东施西素嘛。是啊，也就是有法律，这种人说难听点只是一个好看的娃娃，没有法律的话，就玩完留着都嫌麻烦，没有任何价值。什么你问我生育价值，且不说他有没有，就凭他这种思想，你确定孩子是你的都用救啊。另外，某书上的人玩的都是别人剩下的吃不到一口热乎。
+- [01:19:08]：啊，是啊，你以为为啊，这这有有人说这就是对你看着过吗？这就是只讲法治，不讲道德的社会。
+- [01:19:22]：有人还之前一开播就有人说是啊，不能讲道德。
+- [01:19:27]：一一讲道德就是要回封建礼教，你看看吧？不讲封建礼教一点不讲道德的社会是什样 in a position where you know, you're basically bumping elbows with her for her entire gym session is weird. It would be weird even if it was the other way around. If I was following a man around the gym under the guys that he's going to say something or approach me. Welcome to the world you created enjoy.
+- [01:19:54]：Okay, so I deleted all my dating apps a bit ago and with my best friend and she's like, I haven't even met anyone in the while I'm going re downloadload them.
+- [01:20:04]：呃，这种也是美国经典拉拉队长长相吗。I really don't want虽然他不是金发碧 don't any dating apps. I'm gonna resort to Tiktok so。
+- [01:20:18]：这种女人转战take talk就会发现一个非常恐怖的事情，是吧？就叫兔子不吃窝边草啊，一会儿去体检 fuck boy。
+- [01:20:27]：Preferably over.
+- [01:20:31]：为什么是这个年龄呢？就是男人毕业以后事业刚刚起步阶段啊，也就是美国女人所谓的展现了自己的潜力的有潜力的男生，就是这个时候还叫男生，不能叫男人，因为还没过30岁。但是他们已经参加工作，有能力的人已经崭露头角了。就是二十三四岁毕业，二十七八岁就是差不多第一批很有能力的男生已经当上个小小领导小小组长什么的了，或者某个小项目的副副负责人，。
+- [01:21:08]：啊，你看吧哎，人品要好，性格必须有趣，你看吧，全是要求啊，有幽默感，不能无趣。
+- [01:21:18]：What else I love a man whos not American哎，这句点吗？完我超爱外国男生，不过美国人也行了。
+- [01:21:33]：这句话点吗？兄弟们，这句话点够不够点兄弟。
+- [01:21:43]：这这句话点吗？这可是美国女人啊，点吧。
+- [01:21:55]：点吗？是不是已已经点了，不能再点了。
+- [01:22:08]：嗯，就是你们现在知道EZQ不是中国的问题了吗？
+- [01:22:17]：全世界都这样，就是大家共用一个大脑，他们是是不是大家觉得都释怀了一下？
+- [01:22:29]：有说怎么美国也有这么多牛排，因为你永远就是鹤玉鹤玉难填，你世界第一的美国也填不上他们的欲望，懂吗？
+- [01:22:42]：你永远做不到，懂吗？
+- [01:22:53]：玉壑难填嗯，是的。
+- [01:23:06]：就是你不要你没有任何男人添得上，所以就是你也不要自卑，就中国男人不要自卑，就是没有世界上没有国家的男人能做得到的。
+- [01:23:20]：那他们想找哪个国家的，你一会儿听我播，你就知道了，很点吗O。
+- [01:23:28]：All right, that is my type.
+- [01:23:33]：So if you are interested, she's probably not going to reply to anyone anyway, they're all the same she just wants to use the Sims as an ego boost that's all your husband is in your friends zone Anyway guys you can now share your raw unfiltered experiences about why you went Mtow send the video bye.
+- [01:23:52]：这这视频做的太好了是吧？这视频简直做的太好了，发的都是一些最经典的，就是就是已经点就是他这个视频里面的所有女人就就已经点到那种无以复加的程度了。
+- [01:24:10]：嗯，真的说句难听的，像淡漠老哥说的，中外，感谢这老哥打赏啊。说句难听的，就像淡漠老哥中所说，中外那么多思想，不同的先贤居然会达成某种程度上的共识，充分体现某个啊神秘物种的含金量啊。
+- [01:24:29]：多补充一句，现在总算理解为什么有那么多嘲讽这个物种的英式美品笑话了啊，是啊，那那是这样的呀。
+- [01:24:39]：懂吗？这嗯就英式的那种黑色幽默，有的时候也是也是挺地域的哎。
+- [01:24:50]：你你没辙，你知道吧？就是man what can I say是吧？
+- [01:25:05]：没有用，你不要想象有人能够满足他们不存在的任何国家的任何男人不存在任何可能性去满足他们。
+- [01:25:14]：啊啊，现在把之前欠的图都给上一下是吗？真的。
+- [01:25:29]：是吧有这个图太大了，慢脚那边肯定是上不去，慢脚那边限制图片大小。
+- [01:25:38]：上一张真是有点太大了。哎，我要不请大家看看松鼠桂鱼是吧？洗洗眼。
+- [01:25:52]：哎哎呀，就现在大家知道就是某某个群体的问题是世界性的了吧。
+- [01:26:05]：啊，哎呀，这没办法，某个群体就是在全世界的口碑都是一样的。
+- [01:26:16]：这种人那种群体是没有国籍的，知道吗？有这哎他居然发出来了，是吧发了。
+- [01:26:27]：南半角这平台这边也发一下，或等会能太图太多，一个一个上，真的。
+- [01:26:42]：你们现在看到一个社会讲道德是多重要啊吗？兄弟们啊，兄弟们，你们现在知道一个社会讲道德是多么重要的了吧？
+- [01:27:02]：嗯，支付宝到账8慧。
+- [01:27:16]：看看哎，等说这还没见货到全民枪战呢，哎，这是这是这不是。
+- [01:27:25]：多数人其实大家都是日子人，懂吗哎？
+- [01:27:37]：我把剩下这个图还都上完，等会嗯，我看看这个这是哪个老哥打的。
+- [01:27:46]：88块8嗯，还有这个这这边能上。
+- [01:27:58]：啊，给小给小小弟弟买棒棒糖吃啊，谢谢谢谢谢谢谢谢谢谢谢谢。嗯，我看看那女。
+- [01:28:11]：有人说老A这个这种情况能好转吗？没打仗导致的没打世界大战导致的，感谢我哥大赏。老A刚才去看了IG和T one的比赛，让我有种绝望的感觉。老A麻烦放一下英雄联盟21年世界赛主题曲。
+- [01:28:26]：欠的东西有点多，哎，这之前有好几个老哥点视频是吧？我我得。
+- [01:28:35]：我得先把这个视频放一下，之前还有一个微信收款138元。嗯，我想把这个视频搜一下。
+- [01:28:44]：21年主题曲是吧，英雄联盟总决赛主题曲。
+- [01:28:57]：啊，不可阻挡是吧？啊，还还有好多把这个BV也发一下。
+- [01:29:09]：其实就是大家看完这个视频是不是突然有一种释怀的感觉啊，原来真的不是我们中国男人的问题啊，是某个群体的问题。
+- [01:29:22]：嗯嗯啊果然是这个太空王嗯。
+- [01:29:37]：我看看啊啊，感谢老哥大赏，头一回上见啊，感谢老哥私信我是吧？我把你拉进群里，好吧，先把先把歌放一下吧。
+- [01:29:48]：这囤回一堆东西哎。
+- [01:30:00]：哎，就没办法，兄弟们没什么好办法，现在这个世界这个样子就是不打世界大战导致的。
+- [01:30:18]：啊，感谢your yourouryourkennyyours skinny老哥打赏是吧？上见嗯，我拉老哥进群。
+- [01:30:32]：啊，当然了，可是说不打世界大战导致的，打了以后能好多长时间呢？呃，这个看情况是吧？
+- [01:30:47]：这个看情况，有的大概能好上个50年左右吧，短的也能好上个30年左右。
+- [01:30:56]：哎哎。
+- [01:31:10]：等一下啊，这还有视频没放，哎呦，这是差的有点多，等会儿给你我这边也开一下。
+- [01:31:30]：哎，然后这个是也是老哥们点的视频是吧？我得放一下，怎么调整一下。
+- [01:31:45]：有时候美国打赢冷战红利延续到80年代吧啊，冷战不是90年代才打赢的吗？这个老哥是不是有点问题？
+- [01:31:59]：感谢老哥们送的人气票是吧？感谢老哥们感谢老哥。
+- [01:32:12]：，然后放一下视频嗯，uction。
+- [01:32:23]：啊啊，带是什么玩意儿，你怎么这么自私？
+- [01:32:34]：这什么玩意儿什么玩意儿等一下。
+- [01:32:44]：这是好多点的事情 Herbal therapist Dr. Blaine, all you've done this week is make your mom jokes. That is not true. Really, Na one other thing you've done.
+- [01:32:56]：Your mom have to go to therapy I hate it because that's what your mom wants I guarantee you she would not want me going if she knew what kind of jokes my therapist was making Listen she makes me go to therapy too.
+- [01:33:09]：I didn't like it at first but now I've actually started to enjoy it you enjoy it all you want I'm quitting your mom said if you quit she's going to quit your money.
+- [01:33:17]：You know, I've got to be honest with you I did not expect you to come back today I'm only here because my mom made me come she made me do the same thing last night回一下.
+- [01:33:32]：You know, I've got to be honest with you, I did not expect you to come back today I'm only here because my mom made me come就是我妈妈逼着我就是 my mom made me come.
+- [01:33:43]：这个我我给大家翻译一下，就是made me come，它有一个就是就是它还有另一种意思，就是英语的双关语，就made me come就是让我达到。
+- [01:33:55]：高潮和和和那个你搜着点，你啊就是m就是你妹那个单词换换成CUM多好，别别成就是。
+- [01:34:09]：你没看啊，那懂的都懂是吧？啊，是因为我妈妈逼着我来，就是就是嗯she made me do thehe made me do the same thing last night。对，就是。
+- [01:34:23]：Da, the money mom threatening not to send me is your money why can't you step up for once and let me quit therapy because you being in therapy makes your mom happy?
+- [01:34:32]：You know what they say, happy white, happy life, oh my god dad, she's got you on a leash.
+- [01:34:43]：I don't get it Why do you keep coming back Because my mom likes the idea of me in therapy and apparently my only purpose in life is to make her happy Well then you're talking to the right guy because I make your mom happy shuthu up Dr Blaine Hey that is no way to talk to your future step Bob I'm of talking about my mom Everything is always about her and you don't even know her name What are you talking about I know busty Barbara.
+- [01:35:08]：啊，我不行了，啊，就是就是就是这里面野生我就是巴y。
+- [01:35:21]：巴是什么呢？巴sity是一个词条，就是波，就是它翻译成波霸对不对呢？某种程度上也对，就是你们去某些黄黑网站搜的时候，你们可以搜basity。
+- [01:35:37]：啊，巴斯提是是他就是她不完全是，但是她是指那种身材很丰满圆润的女性。但是。
+- [01:35:49]：多数时候他们指巴ity的时候是是是是带有那种就是那种情节的，你懂吗啊？
+- [01:36:01]：barber就是非常经典的，就是ho或者hoker女性的名字。 do mom's。
+- [01:36:10]：You know how Dad, what's the name of the therapist you and mom go to Doctor Victor Blaine, Oh no what I think mom might be sleeping with him dling.
+- [01:36:21]：36 years she couldn't hide something like that for me, which is why she let me watch please make your jokes today.
+- [01:36:30]：I'll throw what am I supposed to do for the next just sit in that chair and don't make a sound That's usually your dad's job You you agree with me.
+- [01:36:43]：行哎，这这也也也是也是他妈够地域的这个。
+- [01:36:55]：哎，行了，就就是这个这个你们双双关语太多了。
+- [01:37:04]：有时候太变态了，你还是不太理解美国人啊，感谢这个哥打赏。刚刚想到过去两年更地狱的事儿，一是过去总觉得明朝成都理学太泯灭人性，现在惊讶该不会明代的环境到了一个地步，所以才出现这种东西吗？对呀，那你以为呢？
+- [01:37:23]：二是我只讲一半，大伙都知道我说的是哪个段子，只有骗子才能满足他们的要求。最后这个和主题没啥关系，那轻松点儿问题。想请教一下老魏，现在西雅图的海边除了海鸥有没有海豹之类的动物，那些动物亲人嘛？有海豹，一般都会让那种环保组织驱离回海海海里面。
+- [01:37:41]：新人呃也跟小仙女差不多，你手里有鱼就那什么嗯。
+- [01:37:50]：感谢J老哥打赏是吧？读一下老A即使是从功利性判断，他高道德水平的存在，也是对族群有利的。是这样的，因为道德会降低族群内部的互信难度，减少合作成本。而人类生产力发展提高的基石，只要上过初中都知道是分工合作。因此，在族群之间的竞争比的就是谁能爆出最大的生产力，谁内部合作效率高，成本最低，因此，良好的道德状况对族群发展是必要的。历史上低道德水平的族群不断被淘汰，就是名正强敌对我们的道德破坏本质上是对我们族群战争潜力的破坏。但是这玩意儿就跟病毒一样，你白皮也不对这玩意儿免疫。是啊，。
+- [01:38:30]：唉。
+- [01:38:44]：真的哎，有人说低道德。
+- [01:38:54]：道德还是要讲的，不讲道德是不行的，兄弟们一定要讲道德哎。
+- [01:39:04]：比说道德老美道德滑破，老美其实以前也不这样，你要明白他是个宗教的清教徒国家，他以前也不是这样的。
+- [01:39:14]：，真的就啊你懂吗？
+- [01:39:26]：哎呀，有时候嬉皮士运动是不是转折点？
+- [01:39:40]：嗯，其实转折得比那个早二战就是一战二战白羽毛，就已经这样了吧。
+- [01:39:49]：比人说候黑手背大锅啊，那那倒那倒是另一回事了。嗯，我我把这个歌放完。
+- [01:40:01]：啊，这这把这几个歌放了。哎，比人说欧美这个状态是不是我们的未来啊，放心吧，是不会是我们的未来的。
+- [01:40:14]：我们建立的社会，最后一定是以我们的道德标准为主的，懂吗？就是一定要恢复某种程度上的道德体系。
+- [01:40:28]：不可能随着他们的那个指挥棒动的，否则太夯了，你们知道吗？我我真的是很难想象。
+- [01:40:38]：一个完全由西方的道德话语体系构建的世界，懂吗？对我们是绝对一点好处没有的。
+- [01:41:02]：唉，都说了，不要极端，不要极端，就是别他妈一说道德就滑坡到了封建社会。
+- [01:41:14]：然后就什么都是现代法制队，他妈学西方那一套都他妈学傻了哎呀。
+- [01:41:30]：绝对不能学的。好吧，啊，感谢腾格戴斯老哥打赏是吧？很合理很合理分享一些传统知识。
+- [01:41:47]：哎呀，这又是什么呀？我看一下这这又是什么逆天活。
+- [01:42:03]：真服了，哎，哎呦，我天。
+- [01:42:17]：是BDM改编大东北是我的家乡。对对吧？现在现在现在除了小歪猫，还有一群傻逼，喜欢喜欢改编这种歌。然后这些傻逼把这些歌改编出来以后，我的逆天水友就会点。
+- [01:42:32]：啊，真的然最近音乐太带派了，还行吧。
+- [01:42:42]：嗯，有说有时北欧是不是也也是和那什么差不多啊，算是吧？啊，感谢J老哥打赏，探求道德对社会的作用就离不开讨论什么是爱，所以强行相关点一首大力王0.65倍速版what is love.
+- [01:43:02]：嗯，老哥，你给我发B站链接吧啊，这是OK还行，能点开，我还以为不是B站链接，点不开。
+- [01:43:16]：就大力王这个歌也是很难蹦。
+- [01:43:29]：怎么这么久？行，无所谓了。
+- [01:43:38]：有时现在放的BGM是什么啊？凯尔特史是大大北境，我的家乡，你是就是东北于姐版的。
+- [01:43:54]：有的事情很难懂，正常正常，有时候词编的很好啊，确实。
+- [01:44:06]：对，本质上还是代派小曲儿是哎。
+- [01:44:22]：我说只有只有二逼花钱连麦，哎，那你可能不懂是吧哎。
+- [01:44:35]：等下我把这个东西给大家看一眼，就是我给大家画点图，怎么说呢？
+- [01:44:44]：看一下啊，那个啊我给大家看个比较点的。
+- [01:44:55]：这个图啊，我为什么要放这张图呢？
+- [01:45:08]：就是我要说的是什么？就是在美国这个国家真正需要帮助的底层女性，其实从来没有因为小仙女搞的这套东西而得到任何好处。
+- [01:45:22]：就是小有人说我是不是反女权，反反就是恨女人，我从来不恨女人，我也不反女权，我也不反对平权。这个世界上有很多很惨的女人，尤其是在美国这种国家，完全不讲究什么道德，是吧？
+- [01:45:42]：这种完完全全的禽兽夷敌之国，嗯，懂吗？就是。
+- [01:45:56]：就是真正悲惨的女性，你们刚才看那个视频了吧，来，我们看一下你觉得这种女人的利益和权益会被那些小仙女们讨论吗？
+- [01:46:12]：啊，也不是完全不会讨论，他们只会吃人血馒头。他们其实并不关心这种最底层的女性的生存境遇。
+- [01:46:23]：懂吗？但是那群女拳小仙女打拳的最喜欢借着这种议题是吧？来给自己谋利，就是自己一身毛病。
+- [01:46:36]：啊，就是利用他人的苦难来给自己争夺争权夺利。就是。
+- [01:46:44]：这种新闻或者说这种事儿在欧美其实经常发生，欧美的小仙女最喜欢借着这种议题发挥了。
+- [01:46:59]：，懂吗？就说啊，一生说女性被压迫，你们男人要补偿女性。其实那些所谓的补偿，从来都到不了这些最底层的女性啊。
+- [01:47:12]：手里从来都到不了，兄弟们，懂吗？？
+- [01:47:22]：比如说对，拿别人的苦难给自己谋利啊，你说让他们花钱，花时间，花人力，真正的去保护这些女流浪汉，那他们是不花钱的。
+- [01:47:38]：竹马，说。
+- [01:47:52]：有最底层女性起码有人可怜男性呢。对呀，我还没讲呢，你们想一想那些小仙女吧。
+- [01:48:01]：对吧成天张牙舞爪的拿最底层的女性去事来给自己谋地，男性就更惨了，你看都看不见。
+- [01:48:12]：男性男性流浪汉死在大街上，其实是没人管的。有时候男底层男性是纯耗财呃。
+- [01:48:24]：他们有的甚至变成流浪汉之前都不是底层。你们一定要知道，在美国这种国家，流浪汉他在变成流浪汉之前，他不一定是吧，比你差，甚至有的比你还好啊，只不过会经常因为小仙女儿变成流浪汉。
+- [01:48:48]：懂吗？这是很常见的。
+- [01:49:02]：有人说有人说没人管，也也不至于完全没人管啊。本人我会管是吧？我会拼高达是吧？
+- [01:49:14]：啊，如果底层那种每在美国底层流浩汉男性如果寄了的话，一般会送到我们这来是吧？我们给办葬礼啊，也会给他相对体面的送走。
+- [01:49:27]：找个牧师啊，找块墓地啊，做个葬底啊，就是在做一切之前，只不过需要用他的身尸体做点实验啥的。
+- [01:49:38]：啊，也不能说就完全没人关心嘛，我会关心的是吧？孩子们我会守护大家的是吧？
+- [01:49:48]：唉，以说这算不算最后的体面，算算怎么不算呢？还行吧。
+- [01:50:08]：就是除了我的算值比较低以外，其他的都还好。啊，比是不讲道德的下场，有说这是讲道德的下场。
+- [01:50:27]：对吧就是我们还稍微讲点道德啊，就是还能把他们发送走。
+- [01:50:37]：维持着心里最后一点慈悲嗯，有人说是说感激这哥布林出师长。
+- [01:50:50]：不用外说不用外说，好吧嗯。
+- [01:51:02]：大帝王这小曲这总算放完啊啊，确实有点难崩，怨天堂没有啊，是。
+- [01:51:13]：哎，愿天堂没有吧啊。
+- [01:51:23]：来吧，兄弟们，我看一下啊嗯哎差不多啊，行，行，就差不多可以讲正题了，是吧？
+- [01:51:35]：啊，这啊这还有个视频也没放啊，把这个视频放啊，把这个放完，咱们就讲正题啊。今天啊群英荟萃，兄弟们，今天很精彩啊。
+- [01:51:52]：哎，这真的今今天真的是群英荟萃。有时候得我看这不和叉叉N爆啊。
+- [01:52:02]：呃，很难。
+- [01:52:05]：很难，你看美军那个你看新罗马天兵那个状态，欠下是吧？也不闹，饭都吃不起，也不闹。就是美国人的温，就是新罗马人的温顺程度是远远超乎你的想象的，有枪也不造反。
+- [01:52:24]：或者说现代社会，你就有两把破枪就想造反，是不是有一点懂吗？这就有点搞笑，多多少少沾点搞笑。好吧，有把枪就想造反，你以为是古代社会呢？
+- [01:52:41]：懂吗？维多利亚严选人种跟你闹着玩呢，这可是能从一工，这可是能够发动第一次工业革命的种族。
+- [01:52:51]：嗯你以为啊是吗哎。
+- [01:53:01]：真的。
+- [01:53:11]：你别断打取义了行吗？就每一次说到这个我都觉得好笑，就是。各位要明白，你有枪，你的口径顶多也就是上到要包括有可能有一些人有12.7或者什么的，你这些东西在正规局面前，你都我都不好说，你就你除了能打穿一点悍马，你还能干到啊，人家你看那个AATF啊，要剿剿匪的时候，人家可能是能摇来主战坦客的。你觉得你那玩意儿你能打得赢。
+- [01:53:47]：德报怨，何以报德，以之报怨，以德报德。可怜之人必有可恨之处。可恨之人必有可悲之苦，无孝有善无好为大，顺不告而取为无后也。家和万事兴，父爱则母敬，母敬则子安，子安则家和家和万事兴，富懒则母苦，母苦则子惧，子惧则家衰，家衰拜三代。百善孝为先，万恶淫为首，百善孝为先，论心不论计，论计寒门无孝子，万恶淫为首，论计不论心，论心世上无完人啊。筷子拿得高，财善远。
+- [01:54:22]：筷子拿的高才能夹得远，男带观音女带佛，那是男带观音，女带福，你一点文化都没有话。
+- [01:54:33]：这种被误读的东西还还很多呢，尤其是喜欢被一些小仙女拿来用，是吧？
+- [01:54:42]：正常了，看的我都红昏了，哎，真的哎。
+- [01:54:52]：行了，等会啊，我放一下本直播间经典小曲是吧？哎来，我我把本直播间经典小曲放一放。
+- [01:55:07]：啊，有人说本直播间经典小曲是是小白猫吗？啊，并不啊，本直播间经典小曲啊，另另另有另有其人。
+- [01:55:23]：啊，啊，这才是本直播间的小曲，是吧？
+- [01:55:38]：。
+- [01:55:49]：有人说这歌叫就叫看猫头鹰嘛？对，这歌就叫看猫头鹰啊，我上个厕所回头咱们讲正题，好吧啊，我上个厕所。
+- [01:56:04]：I can.
+- [01:56:16]：We know more I get about the we know more about.
+- [01:56:48]：哎呀，回来了，比说这歌什么语啊，这歌是柬埔寨语，就是高棉语，高棉化。
+- [01:57:04]：好吧？嗯，这这歌是高眠宇。
+- [01:57:21]：就是柬埔寨的官方语言，当然他唱的是变调嗯嗯。
+- [01:57:40]：啊，好好好，哎呀，讲正题啊，今天呢啊也是也是高血压的一天是吧？
+- [01:57:49]：来吧，兄弟们啊，今哎今今天今天也是也是排行榜环节。
+- [01:57:59]：是吧就是但是今天的血压呢比平时会高一点，好吧啊，就是高那么一N内啊，高那么一N内是吧？请放宽心是吧？
+- [01:58:11]：啊，就是我起名字呢都不是瞎起的是吧？我排榜呢一般都是很有原则的啊，今天也是天梯赛是吧？啊，今天是德比啊，德德比大师赛。
+- [01:58:27]：好吧，啊，排什么？今天排的是欧美的这些怎么说呢？最新的男女关系变化是吧啊。
+- [01:58:40]：就是比较逆天的啊，就是局势已经和两年前我了解到的美国婚恋市场啊，相亲婚恋啊、结婚交友市场完全不一样了啊，美国女性美性就是就是我标题是吧测试服的崩溃与回滚啊。
+- [01:59:00]：就是美测符是吧？就是我们说的这个新罗马测试符已经是进化到了全新的版本啊，或者说。
+- [01:59:11]：它是一种很古怪的版本，它同时回滚的一部分。同时呢有一部分崩溃重组了，崩溃重组的这部分和回滚的这部分融合在一起，形成了一种非常畸形的模式。这种畸形的模式呢？怎么说呢？
+- [01:59:32]：就是给我看的高血压了啊，就你看看我这个排榜的名字是吧啊啊，血就是你你你看看我这个名字起的。
+- [01:59:44]：多多有水平啊，明白吧？啊，分别是几个级别，就是最最最低档叫血压高高止不住是吧？第二档叫山高巨顶，血如著啊。
+- [02:00:01]：第三集叫三血霜干案脑干柱是吧？第四集叫头顶尖尖爱问物啊，最高一级叫非是人间等闲物。
+- [02:00:13]：啊，就是请尽情欣赏美侧福的逆天创造性，懂吗？啊，非非常的非常的具有创造性。
+- [02:00:24]：有时候高血压居然是基本操作吗？对的，就是里面最轻的一个操作都能让你高血压。
+- [02:00:33]：啊，哪弄这么多逆天的排名名称，我自己我自己琢磨的是吧？
+- [02:00:42]：都是我自个儿琢磨的啊，你们放心好啊，绝对精彩。妈来吧，我们先排一下。
+- [02:00:52]：嗯啊，感谢金江区区来老哥打赏啊，能不能点首歌挥亲2D版啊，不行，这个太长了，别放了是吧？
+- [02:01:03]：啊，这这这这这这个这歌有点太疼了，算了算了算了啊。
+- [02:01:10]：对，有人说这些都是你在美国现行了解的吗？对对的对的对的，就是我之前吧就是参考目标呢有点有点问题。我还是就是我说过了，我之前的参考目标呢都是黑哥银趴哥这种。
+- [02:01:28]：他们两个最大的问题是这两个，一个是富二代，一个是富四代，很有钱。所以说对于他们来讲，他们很早就不和女人讲AAA了，也不和女人讲感情，就只走肉体，不走心。
+- [02:01:45]：你能懂我的意思不？就是他们其实并不处在一个美国婚宴市场的正常状态。从他们两个这边了解的呢，虽然也逆天，但是是另一种风味的逆天，就是不太贴合实际。
+- [02:02:04]：上周末呢就是周天的时候，就是这银趴哥终于是休息了呀，就是和银趴哥聊天啊，不是和银趴哥，就是播音哥，他才是美国标准的中产中产良家子，白人良家子是吧？他的话他遇见的女人和他参加的相亲和约会，才是相对而言比较有代表性的。
+- [02:02:29]：然后他跟我讲了一下，他最近的这个是就是这个约会生活。我就发现哇，这个美国这个版本好像是他妈的和两年前两年半之前完全不一样了呀。
+- [02:02:47]：啊，就是已经不是那个传统意义上。
+- [02:02:53]：美国女权或者LGBT就是白左版本的那种啊，男人行，我们女人也行是吧？我们女人也是拥有完整独立人格那种白左叙事了。现在整个就是版本回滚，就是先经历叶文崩溃，然后崩溃完之后，有人想回滚。对的，就是现在美国目前这个经济政治文化上面，都是全面崩盘的。所以它回滚实际上也回滚不到黄金年代那个程度，崩溃呢也重组成了一个畸形的怪物。
+- [02:03:34]：他有一点类似于什么呢？就是。
+- [02:03:38]：大家见过亡灵憎物这种东西吗？它是由不很多尸块拼接出来的反仿生反生之人。就是你说他是死人吗？不是他是活的，最起码这具肉体是活的，但你说他是个活人吗？他也不完全是个活人，他的整个肉体是东一块西一块崩溃过的碎片化的尸体拼成了这么个东西。
+- [02:04:05]：啊，缝合怪对的对的，他是个缝合怪，而且他缝的很不美观，很畸形，就是强行说自己活着。
+- [02:04:16]：啊，就是有一种有一种非常非常就是让人头皮发麻发炸的美感啊。
+- [02:04:25]：就嗯哎就嗯你说这不是我专业领域了吗？
+- [02:04:39]：种程度上算吧是吧？来，我们一个一个讲，我们先讲就是血压高高止不住，就是tra traditional wife。
+- [02:04:50]：什么叫traditional wife呢？我这里没加引号，但是我就在这儿说一下，实际上这个东西是应该是加引号的。
+- [02:05:00]：什么叫traditional wife呢？我先跟大家描述一下，什么才是美国人认知当中的traditional wife。
+- [02:05:10]：就是经历了一战二战呃，一战歼战期二战和以后的就是baby boomer潮的这些家庭。
+- [02:05:22]：那个黄金年代，工业化蓬勃发展的美国的家庭，里面那种勤俭持家，落落大方，有能力养孩子，也有能力工作的美国坚强的独立女性。
+- [02:05:38]：那才是美国人意义上的traditional wife，就是它其实和我们传统价值观中，就是勤俭持家，忙内忙外，上得厅堂下得厨房的好老婆，其实是差不多的。
+- [02:05:54]：是他在家内部能够勤俭持家，把一个家维系好是吧？在外面也能维系好一个男人的面子，也能维系好家庭关系。
+- [02:06:07]：就是黄金年代三四十年代、四五十年代、五六十年代，那个年代的女性就是美国黄金年代出生并培养和长大的女人。
+- [02:06:22]：啊，那个时候的女人就是所谓美国标准意义上的traditional wife，就是传统女人，传统夫妻，叫传统老婆。
+- [02:06:35]：啊，就是现在美国由于经济形势极大的崩溃，意识形态极大的崩溃，教育极大的崩溃。
+- [02:06:48]：美国今天实际上经济下行中已经走的非常惨了，大家看没看过毛仗的那一期直播和录播，就是美国下休就业人员的那个事儿，就是从91.1万下修到0，还记得不？
+- [02:07:07]：啊，就是羞没了，就是美国的就业形式已经崩到不能再崩了。那么在这个市场里面，谁最先遭殃就是女性。
+- [02:07:19]：竞争能力不大行，，就优先被提出就业市场了。
+- [02:07:26]：这一部分女人啊，尤其是美国这些成天把白左女权LGBT后现代觉醒挂在嘴上的这些美国女人，突然间发现自己这套逻辑讲不动啊。
+- [02:07:42]：啊，就是那句话是对的，就是经济基础决定上层建筑啊，兜里有钱的时候，他怎么白活都行，怎么说都行，没钱了。
+- [02:07:55]：没钱了，那怎么办？凉拌啊，这什么意思呢？啊，我们可就是C可以和解吗？我们能不能回滚版本，我不想当独立女性了啊，独立女性太难了，是吧？大女主人设有点维系不下去了，我们能不能回到黄金年代，让我当个traditional wife，当个全职主妇，就是我只负责美美的是吧？你负责挣钱好不好？
+- [02:08:29]：懂吗？有的老哥说，此时此刻对，此时此刻，现在美国女人掉头了，就是我现在想当个好女人行不行，是吧？就是您您看我还有机会吗？就是那种感觉，你知道吧？
+- [02:08:48]：啊，就是就是我们可以和解吗啊。
+- [02:08:58]：我现在不想当独立女性了是吧？当独立女性太难了，太贵了啊。我现在想当传统女人了是吧？啊，我给你生孩子行不行？
+- [02:09:11]：啊，我负责给你生孩子是吧，你负责挣钱好不好？比说还能和解吗？
+- [02:09:22]：你目前反正是这么个版本了，就是经济形势太差了，是形态，白左全面溃败，白鼬，或者说极端右翼，传统保守思维，如如狂风一般席卷而来。
+- [02:09:39]：他没辙了他没辙了，就是现在就是我现在想当个好人。
+- [02:09:49]：嗯，比人说那能成吗？还是能成的，就是也不是没有男人不渴望传统家庭。
+- [02:10:03]：如果他真的愿意好好的当个家庭主妇，其实也算好，只不过就是有点心口不一，是吧？
+- [02:10:13]：啊，就是他已经是最好的了，就是你觉得很让你高血压，很让你难受吗？但是你放心，这已经是美国这群女人里面最好的了。
+- [02:10:27]：啊。
+- [02:10:29]：感谢似水流年，老哥打赏，有没有线下贤妻良母，一上网就哈气，拳法依旧老爸的那种。有有老哥太对了是吧？你你简直就是我最好的捧哏是吧？啊，感觉老哥已经有健身老哥的功力了，就下一个叫啊就三高巨顶血如注，叫加击啊。
+- [02:10:51]：就是这部分女人，她和上一个部分女人有什么区别呢？就是她们仍然是百左意识形态入脑那一套，就是我之前说的。
+- [02:11:04]：我虽然在现实生活中，我现在想当传统家庭主妇了，但是我嘴上不能说，而且这种女人是坚决不接受荡妇羞辱的。
+- [02:11:16]：啊，或者说他们叫反荡复羞辱，什么意思呢？就是他把自己当鸡，他把自己当鸡，为什么呢？就是他认为我实际上是在和这个男人做生意。
+- [02:11:34]：就是我用我的下半身去换他供养我，只不过我们签的是长期合同。
+- [02:11:43]：啊，我不是没工作，我们是平等的，是他在用钱和食物换我的下半身。
+- [02:11:54]：就是你可以理解为又当又立啊，对吧？他唯一的问题就是我们两个之间有有婚书，有有纸协议。
+- [02:12:11]：懂吗？就是就是在他看来，家庭主妇无非就是一份长期的啊就是。
+- [02:12:20]：就是嫖娼协议，懂吗？有人说他自己把自己当机，这是不是不太对？美国啃魔怔的白族女人是从来不觉得当机有什么不对的。
+- [02:12:31]：我跟大家反复的说过，这一派女人的一个核心论点，就是你的手难道比我的下半身高贵吗？你们男人可以用手创造价值，我们女人就可以用下半身创造价值。
+- [02:12:46]：对吧你们男人不让我们这么干，就是歧视女性，打压女性，对吗？只讲法律嘛，只讲国辑嘛，不讲道德吗？
+- [02:12:59]：吧如果你抛开道德，那就一定是下半身和手没区别，都是自都是天然形成的器官的一部分，凭什么不能挣钱呢？
+- [02:13:13]：对吧？感谢风吹剑圣媒体热山老哥打赏啊，说白了就是破鞋啊。对，差不多对的啊，你看剑圣老哥永远能送上最最适宜的图片，是吧？
+- [02:13:26]：啊，就这类女性她嘴硬，就就就像似水流年老哥说的，就是她嘴上可从来不认识我。
+- [02:13:36]：他嘴上是不认输的，就是他说啊我有一份工作啊，我不是没工作啊，我不是需要男人供养我，我和男人就是啊用用下半身来换他的供养。
+- [02:13:52]：啊，我们这是交易，我是有一份工作的，我的工作就是给男人提供那什么，无非就是我只给一个男人提供有长期合同。
+- [02:14:09]：啊，就是非常的逆天，就是不管现实生活中怎么当娇妻啊，在互联网上嘴绝对不能软。
+- [02:14:22]：啊，嘴是绝对不软的啊，一说就是我是独仍然维持着那副我是独立女性的派头是吧？啊，无非我的工作是用下半身进行的，无非我服务的对象只有一个人罢了。
+- [02:14:44]：啊，他们还很骄傲，就是这种把自己类比于妓女的状态，他们还很骄傲，为什么？因为没有道德。
+- [02:14:53]：没有道德，就是下半身和双手是一样的是吧？都能创造价值，对吗？就是只盘只盘经济逻辑只盘逻辑是吧？只盘生物学啊，不盘道德，那就这样呗，是吧？
+- [02:15:09]：那这就是让你们看看只盘逻辑和法律是吧？只盘只盘经济不讲道德。
+- [02:15:19]：啊，感谢这宝哥大赏点个图，看看方不方便上，不能话，放群里就行。以及那个3080不会是我想的那个吧。
+- [02:15:28]：啊，对老哥，就是你想那个，那我建议改成叉480，相信懂图图吧拉基佬嘛一定能懂哎。
+- [02:15:38]：就是说白了就是三就是加级是比谁呢？是比那个是比最后一集就是嘴硬啊，就是虽然自己已经是家庭主妇了。
+- [02:15:51]：但是嘴上一定不能怂啊，在互联网上战斗力超群，对吧啊。
+- [02:15:59]：最起码在ins或者小红书或者tktok上面和自己的粉丝共振的时候，嘴一定不能软啊啊，我这就是工作是吧？我只不过是用下半身工作罢了。
+- [02:16:13]：嗯，很逆天的啊。
+- [02:16:27]：有人时候那还那还有救吗？没没什么救。我告诉你，因为他们已经是完全不讲道德的形态了。
+- [02:16:38]：啊，他们就跟你讲法律是吧？那哎。
+- [02:16:48]：没救，就是兄弟们，这才是三高血三高三高巨顶血如注，这才是倒数第二个等级。
+- [02:16:58]：吧就是你你觉得完全不是人了是吧？其实我跟你说，在这个体系里面还算好，就是在最起码在目前的美国女人的三观里面算是好的。最起码她还在老老实实的当家庭主妇，只不过嘴硬而已。
+- [02:17:16]：有说还有高手，你放心，我从来不爱说，后面全都是高手。感谢似水流年老哥打赏。上图，我觉得这图很符合他们的逻辑。
+- [02:17:31]：我真的我排东西都是讲国际的，我的老粉应该都知道，我从来不乱排的，我从来不乱排的。
+- [02:17:41]：就是当你觉得很逆天的时候，你放心，后面有的是逆天东西啊。
+- [02:17:54]：对，就是你别看后两党逆天，他们好歹是承认现实的，就是你别管我嘴上怎么说，或者或者是行动上怎么做。
+- [02:18:06]：我确实是当家我确实是结婚了，我确实是有意纸合约，我确实是当家庭主妇了啊。
+- [02:18:16]：那有人说那这个回滚不是回滚成功了嘛，对吧？后面两档不管嘴硬还是嘴不硬的这不还是回去当家庭主妇吗？
+- [02:18:27]：但是这就是我说的，就是他回滚了，但是滚不成。他和崩溃以后的美国女人意识形态混合成了新的东西。
+- [02:18:37]：你不要忘了，我刚才说过，美国黄金年代的女性是能勤俭持家的，就是首先。
+- [02:18:48]：最地域的黄金年代的美国女性是读书写字识字的，最起码他们会数学，他们知道哪家超市有便宜东西卖，哪家超市有新鲜产品，就是她懂数学，明白吗？现代的美国女人蠢逼美国女人，她们是不懂数学的。
+- [02:19:11]：小九九都不会算，他们是做不到传统真正意义上贤妻良母的勤俭持家的，能懂我的意思吗？
+- [02:19:20]：就是他不是他回滚了，但是回滚的不是很滚，不是很成功。首先他做不到勤俭持家，数学不好。
+- [02:19:31]：脑子一热，冲动消费，这种就是所谓的现代意义上打引号的传统传统老婆，他们喜欢干嘛呢？
+- [02:19:43]：就是不管钱啊，就是他我当传统主妇了，但是我留肩膀，我并不担责任，我不拿钱。
+- [02:19:57]：有人说他们不管钱，对，不管钱，就是全都是你们男人的责任。我只负责每每花钱，就是我不管钱。
+- [02:20:09]：就是钱出问题了，都是你们男人的责任。我只是在我想花钱的时候管男人要。至于这个家庭具体什么经济情况，我不在乎。
+- [02:20:25]：懂吗？她和以前那种优秀的美国妇女，传统妇传统妇女是是完完全全的两回事儿，她只是有这么个形式而已。
+- [02:20:38]：懂吗？你真让他管账，他不管他两手一伸，我就会花钱，我不会管账，对吧？你让我计划整个月怎么花这个钱，我计划不来。
+- [02:20:51]：啊，比说这也算家庭吗？这都算好的，这都算好的。
+- [02:21:02]：你说怎么跟我们这边那么像，有没有一种可能是我们像他们嗯。
+- [02:21:10]：感谢似水东江狗哥大赏。老魏这样一说，我突然理解了那些独自拉扯好几个孩子，黑人老妈更符合传统价值观，精打细算采购生活物资喂养孩子。对呀，就是他是不就是我反复的强调，很多白人女性是不如黑人那种背个妈妈的。
+- [02:21:29]：他完全不如，有人说那男人不就是双手一摊背过气去，你以为？
+- [02:21:39]：吧你以为啊就是播音哥的上一个同居女友就是差不多这样的。
+- [02:21:52]：啊，不管账，两个人一起生活，从来没有规划过3天以上的消费啊，弄得播音哥心焦地瘁，最后分手啊。
+- [02:22:08]：分手没办法，这日子过不下去了啊，同居就已经开始以老婆自称了是吧？啊，花男人钱成天在家里。
+- [02:22:20]：啊，管账不管账是吗？我不会算数是吧？算数这种说活都是你们男人的。
+- [02:22:31]：结果就弄得我每次见到播音哥，他都在那费心费力的在那算账。有人时候那白女不就是纯赔钱货，也不至于。
+- [02:22:51]：也也不至于啊，有就说候那下一个等级啊，就是雪霜干烂脑干触啊，就是。
+- [02:23:01]：哎，就是老牛要吃回头草啊，这个这个这个这个有点不齐是吧？那个。
+- [02:23:11]：这个这个截图这这个这个图上不了太大的图，就是雪生刚刚都是种老牛要吃回头草，什么叫老牛要吃回头草呢？
+- [02:23:21]：就是他比前两个血压高。
+- [02:23:29]：啊，他血压高，他高在哪儿呢？他想老牛回头吃嫩草，什么意思呢？就是他本来是个家庭妇女，他本来是个traditional传统女性老婆。
+- [02:23:44]：啊，这就要不得不提到你的奥黑啊，是吧？你的黑发老是吧？吴圣枪游翔吴仙儿同志是吧？他开始搞什么白左女权叙事，搞什么LGBT搞什么第EI是吧？搞什么女性他地量好了。
+- [02:24:04]：这下好啊啊，就是真的就是有一大批美国本来是传统女性的女人心野了。
+- [02:24:14]：什么意思呢？就是他本来家庭主妇当的好好的，突然有一天觉醒了啊，就跟DNF似的，我觉醒了，也不知道刻没刻，就是小晶体，反正是觉醒了，跟自己老公说，我要去追寻自我了。
+- [02:24:32]：然后把戒指留给老公，写张书，就自己就卷着全部破盖卷就跑了，或者是直接跟老公离婚。
+- [02:24:43]：懂吗？就是我觉醒了，我要当独独地女性行了啊，我要美美的那个活一辈子，是吧？
+- [02:24:52]：我要独立自主了，你要知道啊，当年在美国经济还不这样的时候。
+- [02:25:06]：就是最起码这一说得是10年往后就是十几十几年前了。奥黑上台的时候，那会儿美国经济虽然也不咋地，但最起码看着还可以，就是他这么玩行不行呢？行。
+- [02:25:23]：就是追求自我。当时美国所有的媒体，所有的博主，所有的政治人物、网红都告诉你，你应该独立自主，你要当大女主，你要美美的活一辈子啊，所谓的不能让男人束缚自己啊，我要自由，你要给我自由，你不给我自由，就是压迫。
+- [02:25:50]：跑了跑了啊，这一跑啊，就是十多年，嘻一跑就是十多年。好了。
+- [02:26:03]：到了202几年了，新冠疫后疫情时期了。
+- [02:26:09]：经济也崩了是吧？就业也崩了，呃，文化舆论也退潮了，白又汹汹袭来。他不是怕他不是认错了，他是知道自己要死了，是吧？
+- [02:26:24]：感谢ZZP老哥打赏啊。黄金上世20世纪上半月，美国女性一个重要职业computer，这是琼中夯中行给大家洗洗眼。黄金时代，美国女性能用笔头和脑细胞让火箭飞起来，也能居家煮饭。
+- [02:26:41]：啊，是的，那是黄金年代的美国女人啊，真正上真正真正意义上的女超人啊。
+- [02:26:52]：他们玩个十多年，自由个十多年，支付宝到账30元，现在想什么呢？我玩不起了。
+- [02:27:02]：思潮退去了，自己岁数也大了，荷尔蒙也下降了，玩不动了，我就是也是稀可以和解吗？我还想回来当家庭主妇行不行？
+- [02:27:20]：就是等于是自己出去玩个十多年，现在想回来，你们懂吗？嗯。
+- [02:27:32]：就是感谢我哥打赏，这是又没写名字是吗？啊啊感谢也不风雨，也不请老哥打赏。我们家闺女才7个月，我都把初中以前的费用都安排好了啊，你怎么说，我在西大可以拿妾了啊。是啊，怎么不想未来就是想着你，我从熬A拿撞态的荒金部分分我老婆一半，不是西大怎么感觉给男人出轨的机会。
+- [02:27:54]：啊，那是啊，就是所以我说这个鸡巴叫什么？叫是老牛要吃回头草。
+- [02:28:03]：老牛要吃回头草，就是我在外面演了十多年，我现在想回来可以吗？啊，就是我现在放下屠刀，可不可以立地成佛？
+- [02:28:22]：，老哥是吧我再读一遍啊，我家闺女才7个月，我把我初中以前的费用都安排好了，按你怎么说，我在西大可以拿妾了啊。
+- [02:28:32]：啊，等会儿我读一下啊，怎么不想未来就是想着想着啊，就来我从奥A拿赚来的黄金都分我老婆一半，不是西大怎么感觉就是给男的出轨的机会，那是这样啊。
+- [02:28:46]：啊，感谢似水多年老哥打赏。虽然社保断缴十几年，但是我还想回来领养老金。太对了，哥，太对了，就是是这样的，我社保断缴了十几年，我现在想领养老金可以吗？
+- [02:29:02]：啊，本质上就是这样的本质上就是这样的啊。
+- [02:29:14]：就是有人说那这个才才就这种这种高血压操作才能到第三个等级嘛。对，为什么呢？他最起码肯回头。
+- [02:29:28]：就是他认知到我自己不行了，就是他还他还愿意说软话，他多多少少还愿意说点软话，你们懂吗？
+- [02:29:42]：啊啊，感谢无风雨无情老哥大赏，操，我怎么觉得结婚结早了，不是我怎么感觉这么家伙就是给靠谱男人出轨的机会啊嗯嗯。
+- [02:30:00]：是啊，那是这样的啊，有人说那这种老牛要吃回头草，成功的几率高嘛？不高，但是确实有成功的。
+- [02:30:11]：就是真的有自由个十几年回来的时候，那个家居然还等着他呢，有啊，但是不多，但是毕竟还是有。那既然有成功的案例，就说明他还是有操作空间。
+- [02:30:33]：对，就是你以为美国没有龟归吗？有时候那不就是阿甘啊，你以为是啊，那就是阿甘。
+- [02:30:44]：啊，就不是你们刚才视频看过吧，美国小仙女能那样，难道不就是因为美国也有龟龟吗？
+- [02:30:55]：你以为呢这播音哥也是经过我的毒打才不归的。你以为呢播音哥的脑子其实并不怎么好，知道吗？
+- [02:31:10]：播音哥也是经过我的毒打才没有变成龟龟。你的播音哥就是那个刚才放的视频里面典型讲的那种ner的。
+- [02:31:24]：啊，感谢风吹建圣美许剧爽稿哥打赏。这是我读诗的时候看美国黄金年的电视剧成长的烦恼，这才是既能上班赚钱又能勤俭直家的白人女女主妇才不是心我马天天小白牛啊，是。
+- [02:31:41]：所以就这个级别他确实是有成功的，所以我才给他排到第三档，你知道吧？
+- [02:31:59]：他确实有成功的啊，就是这才第三个级别啊，对，就这这才第三个级别。
+- [02:32:10]：那逆天那不有的是吗？懂吗？然后这谁？这是成长的烦恼里面的女主。
+- [02:32:21]：经典美剧嗯，那还有下一个级别。
+- [02:32:30]：啊就是兔子不吃窝边草，怎么叫兔子不吃窝边草呢？
+- [02:32:43]：他和这个老牛要吃回头草是另一种操作。大家要知道，随着这个女权时代的到来。
+- [02:32:52]：尤其是美国女人，这种从小受到自由主义侵染的女性，她们的打拳的疯狂程度、力度和范围都是远远超过国内的。
+- [02:33:08]：所以就会发生一个什么时候呢？当白左LGBTDEI叙事如日中天的时候，黑法老在位的时候。
+- [02:33:21]：对吧他们高喊着女权白左啊，平权、人人平等、反歧视等等这些口号吧。他们喊着这些口号疯狂打拳，疯狂折磨男人的时候。
+- [02:33:37]：他们没有想过有一天会退潮啊，会退潮，现在好退潮吧。
+- [02:33:47]：他已经把自己社交圈里面所有的男人基本都给得罪了，上到99下到刚会走。
+- [02:33:56]：从自己亲爹得罪到隔隔壁邻居小孩儿，小男孩都给得罪了，他混不下去了。
+- [02:34:06]：怎么办呢？
+- [02:34:08]：我跑吧，我我卷铺盖跑了，我不在美国呆了是吧？既然新版新测试服崩了是吧？要回滚，反正你要回滚，我去个旧版本的服务器不就完了吗？
+- [02:34:28]：啊，润是吧，三十六计走为上，我换个地方重新开始，反正到反正新地方没有人认识我。总而言之，老家是呆不了了。
+- [02:34:41]：啊，感谢这老哥打赏，有个奇特的想法，难怪新罗马叉叉这么恨战锤感情是因为乐的么把应该花在他们身的钱和关心全花在J8的JW妻子上了啊，是为什么最恨战锤呢？因为战锤老是啊。
+- [02:34:59]：最最有最有钱的啊，一般人玩不起那个东西。
+- [02:35:09]：那来了问题的关键来了，就和那些市民说，他就觉着美国男人不行，我要去国外。那么请问在现在的互联网时代，TT大行其道的时代。
+- [02:35:21]：谁占据了互联网的榜首呢？哪个国家成为了美国有些小仙女的心象神往之地呢？
+- [02:35:33]：啊，哪个国家的男人在tktok上宣传是又爱老婆，又不打老婆，又舍得给老婆花钱呢嗯。
+- [02:35:46]：嗯嗯啊我大哥我大哥还给我头一礼物。
+- [02:35:57]：嗯，感谢我大哥给我投喂我啊啊，兄弟们，而且好死不死，这个时候又开了K0。你猜一猜这些想重新来过的欧美的小仙女们会来哪？
+- [02:36:20]：需要我说需要我把话说的再明白一点吗啊。
+- [02:36:37]：有人说有人说你说的这个国家不会是某个东方大国吧。那你以为呢？现在在take a talk上面，大量的胡姬都知道这个中原男人好啊。
+- [02:36:54]：啊，这个中原男人又不打老婆，又给老婆花钱啊，就是可以直接负责美貌如花那一部分啊，是吗？
+- [02:37:09]：正好中国人呢正好中原男人呢多少沾点崇洋媚外啊，就是我长得还挺漂亮的，是吧啊，漂亮大白妞是吧？
+- [02:37:21]：嗯，感谢退回幕后人老哥打赏上图啊，来吧，老老爷让兄弟们认清一下38800的购买力。
+- [02:37:42]：有人说他看不上你，你错了你错了，还记得这种经常说本国男人不行，然后跑到国外去的这些女人吗？
+- [02:37:54]：就是他们在国内是看不起本国男人，他们，但是他们去国外是要倒贴的。感谢似水流年老哥打赏这么说，最先被瞄上的不歹是赴美留学生，这都瞄准了，误头就秒。我在直播间说过无数次了吧。
+- [02:38:11]：我在直播间说过无数次了，包括那个特文克斯的剑老哥也也说过，拿310举过无数次的例子了哇。
+- [02:38:23]：我我记得我记得我直播间的老粉应该是有印象的呀。我这种这种事我都说过无数遍了，有多少留学生上当是吧？啊，亲爱的你设进来吧，不用带。
+- [02:38:39]：那有些好从小好好学习，考到国外顶尖大学的中国男学生，他哪顶得住这个呀，我都说过无数次了吧。
+- [02:38:51]：有人还不信嗯。
+- [02:38:57]：啊，感谢ZZP老哥打赏，顾家爱丈夫，爱自己两个儿子，能一个人操持所有家务，能一个人搞定一家的圣诞节，有个能援助家小家庭的老钱亲爹，我宣布，这就是最完美的居家好女人20元。
+- [02:39:13]：不是畜生之家的图，我就不上了啊，畜生之家的图我就不上了，否则有点破坏气氛了嗯。
+- [02:39:25]：啊，就是就是多多多多少多少占点破坏地方了啊，但是这么说是没错的啊，这么这么说是没错的。
+- [02:39:38]：嗯，有说故一思嘛？对。
+- [02:39:47]：感谢风之剑圣免许人生老哥打赏。老A莫不是说星光嘛，白牛也有倒贴，喜恶老周圣骑士的那对呀，是吧？
+- [02:39:56]：啊，白南就不行是吧？啊，呃中原留学生就可以啊设定来啊，你带我走就行。
+- [02:40:05]：你带我离开美国就行，一样的，如出一辙的兄弟，懂吗？
+- [02:40:17]：是如出一辙的，你不会许伪有区别吧，没区别。
+- [02:40:31]：对吧？就是。
+- [02:40:35]：他已经在美国得罪完人了，我现在跑问我啊，什么地方生活环境又优美是吧？社会又健康，治安又好是吧？吃东西又好吃啊，整个社会也很文明是吧？还欢迎白人去呢？
+- [02:40:52]：这是哪个国家呀？嗯，对吧？
+- [02:41:05]：感谢这老哥打赏，我找胡姬玩的老哥该学炫老美的篮球球星了，完事后记得给带子己们儿子们加点tbaco辣椒酱，以免意想不到的方式搞出人命哎。
+- [02:41:24]：嗯，有时候汗流浃背了，你们就等着吧。在接下来的10年内，你们你们可以先观察中国的一线大城市涌进来的白妞。
+- [02:41:39]：啊，我就明说吧，就中国一线大城市涌进来的白妞，就是我说的，你放心，K0绝大多数挨的都是胡姬。
+- [02:41:52]：啊，就是中国一线大城市某些性压医的老哥们啊，我不好说你是不是有福了。
+- [02:42:01]：反正玩的时候多注意是吧，我让你不吃肯定是不可能，你肯定是要吃的，我不让你吃，显得我有问题，就是你吃的时候注意，好吧。
+- [02:42:13]：嗯，有时候跟三四线关系不大，你放心，这是一个逐渐渗透的过程。
+- [02:42:26]：你以为跟你关系不大，那是因为发展还没到那一步，懂吗？
+- [02:42:39]：哎，对，哎，我大哥主动要求上麦了啊哎。
+- [02:43:00]：哎，还要那啊，一会儿过了是吧？
+- [02:43:10]：有时网道开口子了啊，对我大哥来了，是吧，有时候求球去印度。
+- [02:43:20]：只要中国男人还在拼命的卷，把中国发展一个美国发展不到的高度，他们只会不停的涌进来。
+- [02:43:34]：懂吗？就是就是你一定要明白这种事情。
+- [02:43:42]：一定会发生一定会发生，就是那些美国觉得不安全了，觉得自己过不下去的。
+- [02:43:52]：啊，跑路最好的选择其实就是这里就是老钟，你不用想。
+- [02:44:06]：说实话，还有还有一些更狂野的可能性。嗯，啊就是这种人员来往便利，信息沟通，信息交通也便利的。但是。
+- [02:44:19]：呃，执法权和管辖权啊，却又嗯没有统一的地方。啊，咋说呢？
+- [02:44:30]：呃，呃，我们这么说啊，借借助欧盟借助欧盟发达的医疗信息共享和便利的深根签证。阿尔巴尼亚黑帮在。
+- [02:44:43]：在这个人体零件采收行业取得了垄断性的得了垄断地位。
+- [02:44:56]：啊，哎，因为你管不着，人家可以就人可以来可以就人可以来来往往啊，他随便找一个口子松的地方进你深根，进了深根区，进了深根区之后。
+- [02:45:16]：啊，他就啊可以跨国，他就可以轻易的这个跨国移动是吧？嗯，再加上又没有严厉的，说白了又没有又又没有这种严厉的对外国人的审视和检查。
+- [02:45:31]：哎，人家直接是吧，就是就采收人类零件的嗯。
+- [02:45:42]：反正就哪怕哪怕暴露了，哪怕暴露了一方面又会啊，也不一定会死。毕竟是哎，这个这个对对高贵的最高贵的移民和难民啊，还有什么这持签证啊，持合法签证的外宾啊，你这个。
+- [02:46:01]：总是要温度一些，要知心一些，对吧？嗯，另一方面，人家要又是个又是又是外国人，直接润就完事。
+- [02:46:10]：读下SC是吧？国内三四线城市从城建生活节奏繁华程度对胡津来说不比周府差，不用担心三四线城市没机会。是的。
+- [02:46:24]：我们我们中国其实很多地方是地级市是修的不错的。我这么说吧，繁华程度都远超美国很多州府州的州府。
+- [02:46:36]：就是你也不要高看美国很多地方，其实挺不咋地的哎。
+- [02:46:48]：有人说还有还有更一天的吗？有啊，就头顶尖尖爱问路是吧？你看308030660TI。
+- [02:46:58]：对，刚才我一直想刚才我一直想敲字，然后我出去再进来，发现也不知道是什么问，也不知道什么关键词，就死我卡着不让我过啊，听我有点敲个字叫你我我东大新进口的一批美日显卡包装上写着余生只替你妈逛。
+- [02:47:19]：感谢陈老哥搭赏，无言投下，直播间状况如图所示。
+- [02:47:30]：啊，那那你看啊有人说矿卡是吧？对，美国现在就是什么情况呢？啊，有一批矿卡。
+- [02:47:43]：对吧他早十年呢在疯狂挖矿是吧？很是没少挣钱啊，但是问题来了，他在这个黄金年代疯狂挖矿呢，很是造下了一些伤害，是吧？对自己显卡的各个参数都造成了损伤。
+- [02:48:05]：然后正好到这个节骨眼是吧？全美爆发了这种回归传统的思潮。那这部分女性呢就显就这部分显卡就产生了一个怎么说呢？就是觉得是个机会，反正现在生意也不好。
+- [02:48:24]：我是不是就借着这个坡啊，下驴了，对吧？我是不是就清清洗一下自身是吧？把胆胆灰擦擦擦擦擦擦泥是吧？把身上弄得光鲜一点。
+- [02:48:40]：啊，找个老实人得了，把显层漏的油也都擦干净。啊，对对对啊，对对对，反正现在不如说回归传统嘛，是吧？啊，我这个打引号的独立女性呃，也该回归传统了。
+- [02:48:59]：啊，懂吧？就是啊该找个老实人家了是吧？where is anerd的是吧？哎呀，美国这些挣了大钱，显示了自己潜力的ner儿的男孩们在哪儿呢？是吧？20岁之前唯一摸过的女性乳房，只有自己妈妈在哺乳期的时候，喂自己奶。
+- [02:49:19]：就其他时候都没有见过奶子的是吧？这辈子没见过啊，是吧？就是姐姐我只要稍微动动手勾勾手是吧？几十几年的技术熔电成为的精华啊，哪个那儿的能坚持得住呢？
+- [02:49:38]：是吧那儿的们就会来一句，可他是3080哎，是吧？
+- [02:49:47]：有人说那是矿塔，他就跟你来，就那是3080哎啊，就是他没救的，你知道吧？
+- [02:49:57]：就是那的也会来一句，那能一样吗？懂吗？你就说矿卡有没有人买吧。
+- [02:50:08]：。
+- [02:50:10]：就是说就说这个这怎么着，就说这个33里就是3030系油卡接矿这个常识，这个已经几乎是装机圈常识的情况之下，他们能出现松鼠下山的那个神阶。，你更何况现在这种就是从学校到社会全力养龟的这种环境的，遍地归归的社会。那我我只能说矿卡来了，矿卡来了，卖出3080给你卖个4090的价都不奇怪。
+- [02:50:42]：嗯，是啊，感谢终局T90A老哥打赏，我看一下嗯我看看啊。
+- [02:50:53]：嗯，我想当阿斯塔特了，等说搞个4090也行。
+- [02:51:03]：没那机会，多数女人达不到那种水平，4090的段位是很高的，好吗？
+- [02:51:13]：真正的4090的段位是很高的那不是3080能碰瓷的啊，那个段位很高啊。
+- [02:51:23]：那有人说这种人多吗？你不要忘了美国这个不讲道德的国家，成天在那跟你论数啊，你的手和我的下半身一样。
+- [02:51:37]：啊，女人属于社会弱势群体，女人犯法应该轻判。所以实质性的在司法执行上。
+- [02:51:48]：美国的这些矿卡们几乎不会受到任何警察的处罚，警方的处罚，就是就无无犯罪记录的含金量，好吗？低犯罪率低犯罪率怎么来的？点G个TG啊嗯，对嗯就是。
+- [02:52:05]：在美国也是挖矿的矿工和矿卡一起被抓了，甚至是矿厂的老板也被抓了。
+- [02:52:14]：他们的量刑分别是多少呢？矿卡的量刑一般是3个月的社会劳动。30，矿卡是社会劳动，矿厂老板一般是10年。
+- [02:52:29]：啊，旷工一般是5年，能懂什么意思吗？就是你说他算是一种犯罪吗？但实质上，在司法执行过程当中，在美国矿卡就是几乎不会发生什么。
+- [02:52:46]：他可以接着干，懂吗？就是他是很肆无忌惮的，他连记物都不会有。有人说他不怕男人查嘛，他一片空白，你查着也没用啊。
+- [02:53:01]：就是除非故些小视频被当事人看着了，否则懂吧？
+- [02:53:12]：嗯，就你你应该明白我想说什么，是不是啊，大家都是明白人是吧？
+- [02:53:22]：感谢白主网，有说这个有有有办法的话，还是找个G叉叉这种程序比较好啊。
+- [02:53:31]：对，就是你你你不能查警方的对政治性的东西，你必须从生物学上，就是你必须得从这个这个这个这个电电器电气工程上面去查，你知道吧？就是你必须从生物学的角度上去查，你才能查出某些端倪。
+- [02:53:50]：是吧哎呀，你这个矿卡币怎么这么薄啊，是吧？哎呀，你这个修复的时候，上面这个刮痕没有修复掉啊。
+- [02:54:01]：是吧哎呀，你这个你们这个颗粒怎么附着不上去呢？你这个你这个电容你这个电容怎么都。
+- [02:54:13]：我都击穿了。
+- [02:54:18]：啊，感谢白白霜老哥大赏我读完啊，老AHV能不能个问题，你们怎么看薪火传承的问题啊，我最近在想看老A的往期节目和媳妇儿一起听，这两天刚好回溯到高男高女那几期，然后被我媳妇吓到了。我家是三个牛牛，最大的是小学四年级。这几天我媳妇居然要跟我讨论，千百年后的香火问题，好恐怖。
+- [02:54:46]：吃饱撑了，想太多了啊，怎么不是就就不对，你就遇到矿渣，你不要装了，你装上去了，你装上去了就说不清了，好吧。
+- [02:55:00]：说上去就说不清，你就千万不要到什么出现出现撕裂效教这种程度啊，一定要就在装机之前就物理检查。一旦通过电，一旦通过电了的话，怎么讲？那那他就那他背后就有强大的那他背后就有强大的电脑城老板了。是就是。
+- [02:55:20]：就是这个过程是不可逆的，损伤是不可逆的哈，感谢四十流年老哥大赏，观众也别觉得买个矿卡能捡漏，能收心过日子，建议复读琵琶行，伤神重地轻别离。
+- [02:55:37]：哎，就是3080是吗啊。
+- [02:55:46]：来，下一个级别是最恐怖的黑法老进军黑法老进军。，我觉得有有史以来最最邪恶的美国总统没有之一啊，有如今美国道德的全面破产的。
+- [02:56:05]：有人说什么叫黑法老进军呢？
+- [02:56:09]：他和你之前说的那些受白左思潮的人有什么区别呢？区别很大啊，就是他有一点类似于奥斯曼进军，在这些小孩子就是说白了就是美国头一批00后。
+- [02:56:26]：什么意思呢？就是青春期是这样，早一点的10岁，11岁就进入青春期了，晚一点的1415岁进入青春期。
+- [02:56:36]：就是这批00后，在他们青刚刚进入青春期的时候，正好是奥观海当政，正好是卢锡安当政，就是黑法好当政，就是铺天盖地的DEILGBT白佐女权这套思潮，就是什么意思？他们从刚刚进入青春期。三观未定型的时候，就海量接触这些东西，。
+- [02:57:04]：等到他们长到十八九岁三观定型的时候，他们基本上可以说是全员黑法老的禁卫军。
+- [02:57:16]：懂吗？他完全不是之前那几个说什么老牛回头吃嫩草，就是受DEILGBT私潮出走的前家庭主妇。不是的，他们已经三观成型了，所以他们还有回来的可能。黑法老禁卫军是最恐怖的。
+- [02:57:35]：你们想一想，他们在十一二岁的时候，那个人生懵懂如初的时候，接受新法黑法老这一套东西。
+- [02:57:46]：你们猜猜他长到20岁的时候有多恐怖，而且我告诉你，我为什么管他叫黑法老的禁卫军呢？他们是最魔重的一批，就是他们在DEILGBT退潮之前。
+- [02:58:03]：已经把大脑改造了，或者是他们的身体零件已经换掉了，能理解吗？就是。
+- [02:58:11]：开弓没有回头路，就是他要不然是把螺栓变螺母，要不然是把螺母变螺栓了，懂吗？其他的人都有回头路，他们回不去。
+- [02:58:26]：就是你下半身的生理改造，就是以后白鼬杀你的证据，懂吗？
+- [02:58:41]：，感谢给老哥打赏，现实里花二三十刀买个ID64软件就能看个七八成。但是老魏说的这种矿渣是要求矿老板们拆开看的那可是有可能吃牢饭的。如果想买矿渣，那我这么说吧，那些专业修卡的，看到3080就捏着鼻子不修了。因为有人试过用几张卡的吊补修都修不好，补好也有大概率用230就花瓶暴毙，甚至还有科普矿卡知识被人威胁人身安全的那肯定。
+- [02:59:10]：啊，就是你们想一想，你们知道最恐怖的是什么吗？现在是2025年了，美国白佐思潮退去了，就是水潮水真的要退到下半身以下了。
+- [02:59:25]：我是男，他是女，你的下半身是什么？就是你你你是黑法老的禁卫军，你已经完成改造了，兄弟们。
+- [02:59:36]：你跑不掉的白釉清算你的时候，就是比即就是哪怕矿卡都可以和男人说吸，我们可以和解吗？
+- [02:59:47]：黑法老的禁卫军是没有地方跑的，就只能说复克当初德国德国对犹太人进行脱口检查。
+- [03:00:02]：懂吗？就是我现在我要看你的第一性征，来脱下来给我看看。
+- [03:00:15]：你们以为我说的他是黑发老的禁卫军，是是说的是什么？他们不是一般的DEI入脑，他们是真的会接受补助去做手术的，并且凭借自己的新身份去牟地的。
+- [03:00:30]：会深深的伤害普通普通人的生活的，懂吗？就是当希腊人被掳到奥斯曼，成为新的马木鲁克的时候。
+- [03:00:49]：他们是回不去的。我再说一遍，当希腊人被小希腊人的小孩儿。
+- [03:00:59]：被奥斯曼掳到奥斯曼帝国，成为新的马木鲁克的时候，他们是回不去的，就是哪怕他们是也得得对，就是思维已经改变了，回不去了，就是他们已经没有正常的两性关系，新喜了。
+- [03:01:21]：嗯，救不了没救啊，就是这个身份烙印你要打打在他们身上一辈子。
+- [03:01:32]：就是你只就是他们只能瑟瑟发抖的活着，就是他们只能指望有一天美国这个国家不会右转的太彻底，不会把他们都宰了。
+- [03:01:50]：没办法来吧，脱裤子，我们要看看你的性征。
+- [03:02:00]：感谢似水流年，老哥，当联军攻入长安，清洗烟党，看到路上胡男人没长胡子就杀，逼的还没长胡子，男孩见到大刀片子就急得脱裤子。
+- [03:02:12]：那不是连续，那是袁绍啊，你的你的原本初就是就是啊清算烟呐啊没没嘴上没毛就杀。
+- [03:02:26]：啊，就是。
+- [03:02:35]：那些说自己的性别是武装直升机的人，在现在你最好能真的和武装直升机一样飞走，否则你小命不保。
+- [03:02:48]：啊，你还得指望就是对方没有毒次之类的。讲道理啊，这个这个来自巴尔干和希腊的耶尼切里，如果他偷偷着学一门，偷着学一门这个外语。
+- [03:03:02]：除了学里面土耳其以外的外语，还理论上还是能够还是能够变回去的嗯。
+- [03:03:11]：理论上还是能够变回去的。但但是做这个所谓的性别重构手术的人呃，我是肯定变不回去的。而且很多时候我我们学先要要明确一些概念啊，不存在性别重构，只有性别消除。
+- [03:03:28]：或者性别仿冒手术啊，没有性别重构手术这种东西是，你变了性能生吗？变了性就变了性能生吗？你这个问题都解决不了的话，叫什么重构，没有重构啊，只有消除和仿冒，对不对？
+- [03:03:46]：呃西很多呢西我们要从术语就就从术语从基本概念上就明确它啊，嗯，有人说他为什么要清算他们不能好好过日子吗？不能。
+- [03:03:59]：你别忘了，他们是黑法老的禁卫军，他们替黑法老冲锋过的干过脏活累活的，他们利用过自己的新身份，是挤压压迫。就是在说白了，在10年前，他们是压迫过普通人的。
+- [03:04:16]：现在普通人决定右转，你以为你以为你道歉就有用吗？
+- [03:04:30]：没用的，感谢ZZP老哥打赏，这不是黑发老定卫军，这是首发的50系显卡啊，这有点太复古了。
+- [03:04:41]：这有有一点父母，那感谢raer1991老哥打赏，矿卡还能赌一下笔记本魔改台式机CPU已经没法再装到笔记本上了。
+- [03:04:55]：아 소 아.
+- [03:05:04]：直播间都是老剧部，我天就是黑法老禁卫军，还有什么？这还有甘蔗渣。
+- [03:05:17]：什么叫甘蔗渣呢？就是甘蔗渣是什么？大家见过甘蔗渣没啊，见大家见没见过炸糖，就是甘蔗干，就是甘蔗渣是什么呢？又老又干又柴，没光泽，还不甜。
+- [03:05:35]：啊，就是又老又柴又干，没光泽，还不甜。什么概念呢？就是十0年前那个版本的女强人。
+- [03:05:49]：什么概念？就是他们真的相信了那一套叙事，就是我要独立自主，我要当女强人，我不比男人差，我要在官场生意场情场上面常常碾压男人。
+- [03:06:03]：然后实现的手段是玩咪谱。对，就是就是也就是女王自信放光芒。
+- [03:06:12]：感谢四水东天老哥打赏，说起干蔗渣，我提一个人泰勒斯威福特啊，他还不算他他是他是绿茶，知道吧？就是我就就是在上一个十年里借助身份政治成功打入男人圈的是就是不管是政治也好还是经济也好，还是金融也好。不管总而言之，他是爬到那个位置了。
+- [03:06:36]：自己也挣钱了，也看不起男人了是吧？不是姐就是女强人啊，我也不依靠男人，我想怎么样怎么样，你们臭男人不如我们女人。
+- [03:06:50]：就是这种女人是最容易搞什么全女公司的啊，有如说早明。
+- [03:07:00]：啊，就是某种意义上是吧，早描呃这个车力车力巨人嗯，不是不不不不这么讲啊，叫就就只说早描枣苗年早苗是典型的矿卡，是早苗年轻时候是矿矿卡，嗯，年纪再大点是甘蔗粘啊。
+- [03:07:22]：这种就你就矿矿卡和甘蔗渣很可能是很可能是一一位独立女性人生中的不同阶段。嗯啊，而且我高度怀疑扫描当矿卡的时候是已经彻就是相当于是彻底烧糊了给自己。对，因为扫描的，因为扫描的后代全是收养。
+- [03:07:43]：是的，没没有生育能力了啊，就是你很难想象他在美国留学的时候都经历了些什么。
+- [03:07:53]：真他妈黑车早描，黑车早描可还行啊。
+- [03:08:01]：干着，那有人说那那是那是10年前现在版本换了。对你看看你看看特朗普在美国那军队内部海量学习那些依靠DEI那些依靠变性，那些依靠LGBT上位的将军们。
+- [03:08:20]：甘蔗渣也一样，版本变了，就是他的女强人人设维持不住了，她的差经济搞不下去了，她的全你公司破产了。
+- [03:08:34]：就是他也想着我是不是借坡下驴，这种女强人经典是什么呢？就是首先是收养一个孩子。
+- [03:08:45]：啊，收养一个孩子以后，在个人个人账户推上开始大谈特谈啊，养孩子是多么美好。
+- [03:08:54]：啊，就是这个时候人设还没彻底崩，就是他的粉丝们还会支持他，就是啊姐姐好帅是吧？姐姐好飒，，尤其是那个心术不太正的，还故意演个棕孩或者黑啊，对对对啊。
+- [03:09:09]：有人说是那有没有比较典型的例子呢？呃，查理斯赛罗啊，就是那个所谓的南非美钻。
+- [03:09:20]：啊，妈就啊收养个黑孩子。
+- [03:09:30]：就嗯收养个孩子，然后突然有一天。
+- [03:09:44]：说自己要回归家庭了，想找个男人了，我想当家庭主妇了啊，我想勤俭持家了啊，我希望有个人疼自己爱自己了。
+- [03:10:00]：就是你想他是干蔗渣又老又柴是吗？就是还不甜，没优点。
+- [03:10:11]：啊，懂吗？就是呃女强人人设维持了十几年，维持不下去了。
+- [03:10:24]：他跟他的粉丝们说，姐要结婚了啊，姐不做女王了，姐现在想做小女儿了。
+- [03:10:35]：啊，虽然姐已经40多岁了啊，虽然姐成天成天是吧，奋斗，也看不上几个男人啊，但是姐就是想回归家庭。
+- [03:10:50]：啊，有人说那那还有生育能力吗？40多岁。
+- [03:10:58]：就是他敢生，你你都不敢你你都不敢射在里面，你知道吧？没没坏，怎么讲，没坏也断电了，这个对停就巴扎断电了。
+- [03:11:11]：没话也断电了，对吧？是，哎，就是他为什么就要领养一个孩子呢？就是安慰自己一下，是吧？我也也算是有后代。
+- [03:11:27]：感谢满天星辰好哥打赏，我看一下老哥私信发我。
+- [03:11:33]：私信而且说实话说实话，这东西完全是对于传统的这个就是传统的这个男性为主的政治结构中的这种养子继承的拙劣模仿。嗯，啊，养子继不论是养子继承赘婿继承还是秘书继承，说到底，他的培养是作为单纯作为继承人培养的。
+- [03:11:58]：嗯，是，就是但是这种哎说实话很多女政策他养这种就培养这个没他。
+- [03:12:09]：名义上是继承人，事实上是吉祥物啊名义上是继承人，事实上是吉祥物。这个吉祥物养到最后，让他发现自己是吉祥物的容易出事儿，你知道吧？哎，德国我记得德国出了一个事情，就是一个白左，一个白女市长。
+- [03:12:30]：被他的黑羊女给崩了，哎，就就典型的话，就这种政治正确上台的女政客啊。
+- [03:12:39]：又养个黑的啊，故意收养，就自己自己我不知道是反正不知道是给自己给自己这个玩断针脚了，还是怎么着，反正就是收养收养个黑的微收看0.1元嗯。
+- [03:12:56]：你到最后发现到最后收养养女或养女就我是什么，我是什么啊，我是什么玩意儿啊，我是个玩意儿啊，你去死吧啊。
+- [03:13:12]：，真的，我读一下S手，感谢昭昭嘛，对没没没封死啊，没打没没弄死啊，这个是最可惜的啊，非常遗憾啊。
+- [03:13:26]：感感谢昭昭昭昭满天星辰，老哥打赏，读下S老哥加一下QQ吧，就这个你B站经常吞的嗯，老魏那些叉叉会不会突然想到用新闻学去擦大家的认知，他们一直在干这个事儿啊，说生育能能力是部分女人的能力，把有些女人生不出孩子问题跟框卡做逻辑结构剥璃，他们一直在做美国女人就是啊生不出孩子的女人就不是好女人了吗。
+- [03:13:55]：就是美国女性想回归，有些美国女性想回归家庭，想回归traditional，她必须解构这个，因为她们不是传统意义上的traditional。
+- [03:14:07]：嗯，对，就就这个反正不管别人怎么说，对我而言，不生孩子的女性就是75%男人啊，就是75%男人。
+- [03:14:21]：然后就是还有什么呢？我等会儿我还有一个S，我读一下啊，就是刚刚刚才的矿渣相关。但是对于这个排名里的每一个位置都适用啊是。
+- [03:14:34]：五十包邮发阿迪老发出过坚定不移的声音。嗯，是吗。
+- [03:14:44]：有人说生不了就生能不能生是这么重要的事吗？首先来讲我跟大家说一下，就是你不要那么厚现代。
+- [03:14:55]：我们人类本质上是一种猴子，是一种动物，是我们的学名叫晚期智人。
+- [03:15:02]：我们是首先作为一种地球上存在了几百万年的一种相对而言，现阶段比较成功的生物。我们永远需要维系的是这个族群的生誉。
+- [03:15:16]：你说100到1万，人类社会是由人类构成的。在AI大规模替代人类之前，人类社会的维系全部是依靠生孩子，就是那个女性的子宫。你别跟我说什么，生孩子不重要。
+- [03:15:33]：别什么都用现代化去解构，多少讲一点传统道德是吧，就是生孩子很重要。
+- [03:15:43]：啊，感谢电饭锅帮老哥打赏。到家老斯拉夫阿姨黄人病学姐和伊拉姐姐算哪一种，他们这也都不算，顺便问一下，现在我们开始改变国策了，你觉得未来我们新的国策是劳保关际还复仇还是建制，我选我的话请选择支持长征AI系统性核爆所有泰约国家？你这个故事线有问题啊，哪个世界线，请支持长征完成中国人大脑升级，完成机械降神，你这个有点太太太入脑了，是吧？
+- [03:16:15]：啊，感谢似水东年，老哥打赏，打赏的老哥说的很对。另一点就是某些相亲对象宣扬不要孩子，究竟是女权入脑还是矿卡生不时还得好好考虑一下。
+- [03:16:27]：嗯，多数情况是两者相结合，而且而且有些矿法，有些矿块喜欢把你的电源喜欢把你的电源和CPU有一块废了。
+- [03:16:41]：嗯，就是为了和你所死啊，不是为了和你所死啊，是为了逼你和他所死。，但其实他其实他他不想锁死的时候，也可以不锁死。
+- [03:16:55]：啊，补充于我参考我之前讲能上桌那次，如果生育不重要，那么叉叉人最好你能明白这句话会引发什么后果？
+- [03:17:08]：就是我今天给大家讲一点很直白的，就是直播间也有女性是吧？说白了男人只看重女人三个方面。第一。
+- [03:17:18]：生育能力。第二，常情的陪伴和心灵依托。第三，他有很强的能力是吧？是未来共同打拼的伙伴，就是男人只注重三种未来，生理意义上的DNA未来啊，精神上的寄托，就是神精神上的未来啊，还有事业奋斗上的未来。
+- [03:17:41]：女性只需要提供这三种当中的一种，就是一个标准的女人。当然你能提供这三种当中的多种也行，能全提供，那太好了。
+- [03:17:54]：但是多数女人的要求就是你只需要给我提供生理意义上DNA的未来就可以了，这是第一性的。
+- [03:18:05]：男人对女人的要求大致就这么三重，其他的都是次要的。
+- [03:18:16]：就是我们的动物性是第一性的，你不要成天讲什么，后现代又是法律，又是哲学，又是这那的。你先把自己当种动物。
+- [03:18:30]：？就是如果不要孩子。
+- [03:18:41]：对吧？而你女性又不能提供精神上的长情陪伴和理解，还要作还要闹，在事业上也不提供帮助。
+- [03:18:54]：那为什么要结婚呢？对，就是你先别把自己想的那么厚现代。
+- [03:19:04]：你先把自己当做一个在地球上存在过的生物，好吧，懂吗？
+- [03:19:16]：哎，这是很关键的。兄弟们也只能说不不不要孩子，不要孩子这种想法能够大肆流传，还是什么？还是十年这个还还还是这个就一是现代化了呃。
+- [03:19:33]：吃绝户的这种字面意义上的吃绝户少啊，但是又不够现代化，养养老院护工养老院护工给人打出屎完了，这个新闻也也少。
+- [03:19:45]：处在一个难得比较好的年代啊处在一个难得比较好的年代，早点或者晚点都不会有这么多胆敢不要孩子。
+- [03:19:55]：，做什么梦呢？护工抽两巴掌就老实了。，感谢中极T90A老哥打赏HV大哥为什么后现代反育会有这种本能本能现象，这不是本能，这是。
+- [03:20:11]：某种社会体啊，这可不是本能。生物的本能就是繁育的。有人说不孝子少，你看经典就是一说讲道德就是要回封建社会，一说教育孩子就说教育不好。
+- [03:20:29]：一说一说整体一说整体就说就说极端个例好吗？嗯，嗯，就说个例就是有血缘跟没血缘，怎么着吧。
+- [03:20:41]：啊，是有是有逆子，甚至有逆子啊，嗯咋说呢？
+- [03:20:50]：嗯嗯，那腻子抽你耳瓜子之前，多多少少心里上还得过一个关啊，社会上还有些压力啊。
+- [03:21:01]：呃，护工护工看你护工看你露实，对你重身出击，那心里需要过一道坎吗？做什么想什么呢？
+- [03:21:10]：感谢4水多年，我哥大赏，经济价值指望不上，情绪价值可替代性强。DNA价值再提供不了。那你的独特性价值在哪？是啊？
+- [03:21:21]：是这样的是这样的，我人说再一个就是你猜猜我为什么要说大家一定要讲道德？
+- [03:21:33]：就是大家还没理解吗？讲道德的社会，尤其是讲中国传统道德的社会，出不孝子的概率会降低。我是在保护你们知道吗？有人如果还不理解传统道德的优越性的话，我请你好好的想一想这个事儿。
+- [03:21:57]：懂吗？就是他一方面保持着后现代的观点，否定前现代，又对前现代的某些某些保证进行渴求。
+- [03:22:11]：就是他又要现代化的好处，解构我前现代的优点，他又害怕出现后现代的缺点。
+- [03:22:20]：因为钱现在的优点被解构掉了，不讲孝道了，法律没规定就行呗，是吧？啊，法律没规定。
+- [03:22:30]：咱们讲法律啊，不讲孝道，你看你又不乐意，你又会担心出不孝子，所以你到底要什么？
+- [03:22:42]：你不要反对了一辈子小仙女，自己成为小仙女，懂吗？
+- [03:22:53]：就是我说为什么要道德到账20元，我一直在跟你们强调道德的重要性。
+- [03:23:07]：就是你们现在有多少年轻人是事实上活在中国传统优秀的道德领域里面的泡泡？
+- [03:23:17]：爹妈没有18岁，不管你爹妈给你付高中学费，爹妈给你付大学学费，爹妈要负责你大学的生活费，不需要你年纪轻轻去打工。
+- [03:23:29]：就是你享受着全套的传统中华美德的优点，两两头好处都在吃啊。对，不仅不仅有什么，不仅有无息助学贷款，还有爹妈给你还。
+- [03:23:44]：对，爹妈还得给你买房，就是你们知不知道你享受的全是前现代道德的优点。
+- [03:24:00]：我不能想象，中国社会哪怕只有10分之1的父母学美国人，很多中国孩子都会清醒。
+- [03:24:13]：啊，感谢T900老哥打赏啊。HV大哥呃，不讲道理，请看五代十国。对当道德的底线都被突破。
+- [03:24:24]：让你看看五代十国是什么下场啊，无底线讨好基本盘啊。
+- [03:24:34]：无底线讨好基本上有人说比如说好好讲正题，必压低观众，没有压低观众兄弟，这是道德的一部分。
+- [03:24:48]：我们今天讲的所有问题，不就是这些小仙女不讲道德才让人血压高吗？感谢昭昭满天星辰。老哥打赏，给直播间的各位说个我的故事。当你有道德，为了身边亲朋好友重拳出击，打击不得的时候。
+- [03:25:06]：哪怕你平时有点冒失不得体，你只要没有大问题，大家会本能的惧怕你在谈事情的也会特别尊重你的话语分量，是这样的。
+- [03:25:18]：感谢周一周一大魔王老哥啊老哥，你发我。
+- [03:25:31]：你这怎么不是正题，这这是道德呀？兄弟们，你看看这这是吧，这都非是人间等闲物啊，头顶尖尖挨问露，你告诉我他为什么让你血压高？
+- [03:25:44]：总而言之，言而总之，一句话，不就是这群人不讲道德嘛，对吧？
+- [03:26:00]：还有我们说的最及最直白一点，为什么会出现不孝子，是不是你的教育有问题？
+- [03:26:11]：感谢这老哥打赏，有儿女的老人在养老院都没法保证护工能百分百好好对待。要是真不要儿女，我建议老位找一下师弟师妹和其他后辈们提前安排一下拼做救集体。另外觉得后代不重要的，等到你的长辈不在了，等到你四五十开始风湿骨痛我，你再想想。对的，就是我跟大家说一下，现在很多人不想生育儿女。我告诉你，其实那不是他的真正想法。。
+- [03:26:40]：你的荷尔蒙在巅峰期，你的生理机能也很澎湃，你的心脏跳动强而有力，你自然不会想到后代。
+- [03:26:56]：能明白我的意思吗？你年轻就是像我说的老牛要回头吃嫩草，为什么他年轻的时候想不开，他出去玩了十年，他为什么想回来了，生理机能下降了？
+- [03:27:12]：腰也酸了，腿也痛了，眼睛也开始花了，熬不动夜了，有一点啊。
+- [03:27:23]：社会上不就是社会不再以预期，就是不再以潜在母亲的身份看待看待他他的生育价值预期归零了。对。
+- [03:27:36]：还有啊，就是我说一下，嗯，你们可能HV和劳A，你们都没有待过南方的乡村。
+- [03:27:45]：我可以告诉各位，当你觉得你没有子女，就是像你说的，前面说的道德嘛。
+- [03:27:52]：就很简单，你没有在一家人的那个为了呃老人走了之后的后事安排，你没有指着你在那里指着他们骂个一两个小时，跟他们吵个一两个小时的时候，你是意识不到家人有多重要。
+- [03:28:08]：是懂吗？有人说五子不行，是的。
+- [03:28:20]：说到底，你这个这个在社会之中，在社会之中，就是尤其是在一个人与人的关系越来越薄弱啊，越来越薄弱的情况之下，你最终落到你本人身上的。我们可以说威慑力或者说是影响力，是你可以无条件的摇来多少无条件的摇来多少人。是啊，注意是无条件的摇人摇来多少人。
+- [03:28:48]：啊，就是有人总说是alex就是你在老家怎么有那么多干爹干妈干兄弟，你在美国怎么也认教子，还有那么多教法兄弟，就是我是一个人，我是一个我不是独立存在于社会的一个人，我是坚决否认自己是原子人的，我也不想当原子人，就是我出困难的时候，我一个电话要摇挨兄弟帮我，。
+- [03:29:16]：我看日本人不顺眼，我一个电话就有叫法兄弟说我们马上就到我的我我有这种要求的，我是有这种需求的。
+- [03:29:30]：啊，懂吧？我不能单独存在，我我也不想单独存在。
+- [03:29:41]：一个好汉三个一个好汉，三个帮，一个篱笆，三个桩，对吧？
+- [03:29:50]：啊，感谢感谢小胖都是老哥大赏。你好，老A，我的SC内容是老A最近老钟在开妇女大会，老钟会不会在开完大会后，就开始把你节目里说的能妇女呃能富一女都弄到脑中哎，那没有那么快是吧？但是也不至于就有这个趋势。
+- [03:30:10]：我读一下，没有那么快。第二这个不要小看国产替代了。是感谢终极T90A老哥打赏。我在HV打世界大战理论进行发散，全世界打内战理论，只有每个国家都打内战，这样才能让全世界小仙女死去。
+- [03:30:26]：嗯，一不要小看中国速度，二不要小看国产期待，好吧嗯。
+- [03:30:36]：嗯，就是我我跟大家说明白，就是我说最再再度直白一点，我有信心教育好我的后代。
+- [03:30:48]：有人说那老爷，你哪来的信心就能教育好你的后代呢？现在世界这么群蒙万物，各种思想这么冲突，很简单，我用道德去教育我的孩子。
+- [03:31:03]：我用核心的、最直白的、最关键的、最有用的中国传统道德价值观去教育我的孩子。
+- [03:31:15]：是因为我相信道德，我选择道德，我觉得我可以把孩子教育好，不相信后现代的鬼话。
+- [03:31:30]：我不相信后现代的鬼话，懂吗？后现代的东西护不住我的时候，我必须找能保护我的东西。
+- [03:31:59]：懂吗？有人宝就是就是就是现在很多人觉得教育不好孩子的一个非常重要的原因，就是他们太相信后现代了，或者是变得太原子了。
+- [03:32:18]：有人老说有些东西是糟粕，是我说的很简单，就是我爷爷是吧？在诊所里面工作一天累了，回来由我爹给他洗脚。
+- [03:32:33]：所以我爹回到家累的时候，我会给我爹洗脚以后我爹的孙子就是我的儿子，女儿看到以后，等我网了，他也会给我洗脚。
+- [03:32:49]：感谢微笑的普提西亚老哥打赏，道德本身就是一种力量。比如王世强王宝强，为什么那么多人愿意帮他？而他前期现在啥情况？是啊。
+- [03:33:02]：教育不好，孩子原因是没有时间工作太长。不是的，我父亲没有什么时间，我我小的时候家里穷的批棒。
+- [03:33:13]：我爹每天忙的脚不沾地，太穷了，穷的要死。每年每年最核心就是每年秋天最核心的紧要关头的问题是把今年冬天的煤炭钱挣出来。
+- [03:33:33]：吗？就是你绝大你放心，直播间的绝大多数人小的时候是没有我们家穷的啊，感谢这老哥大赏。对老爷先把剩下那种高人讲完，有些好奇，这俩得多重量级吧。
+- [03:33:50]：就是要花心思，对吧？有的有的家长总觉得自己陪着孩子去钢琴班，上两个小时课，刷了两个小时手机，自己算是陪伴孩子了，那都是无用功。你本质上没有好好教育孩子。
+- [03:34:11]：你放心，我爹绝对比绝大多数人的父母都忙的。你猜猜为什么有个词叫以身作则？
+- [03:34:31]：懂吗？嗯，哎，我们把后两种讲完是吗？你们以为干蔗渣啊。
+- [03:34:42]：啊，就很逆天了嘛，不够逆天啊，还有这个就是这个词叫什么叫recrystalization，什么意思？叫叫再捷精化。
+- [03:34:55]：重洁晶我真行啊，生化了啊，愧是生化重结晶。
+- [03:35:02]：什么叫重结晶呢？我跟大家说哈，我之前说的所有骑行种，它们都是以个体形式存在于这个社会当中的，就是他们是一个人，就是哪怕是甘蔗渣这样的，他可能在网上有个小粉丝团体搁那儿共振。
+- [03:35:21]：我说的重接精是什么呢？它对美国的社会造成的影响是最大的是十0年前的女装博主啊，女权博主十0年后变成妈妈博主，养育博主、亲子博主。
+- [03:35:38]：你懂我意思吗？就是十年前疯狂打拳，十年后恩恩爱爱。
+- [03:35:51]：是他十0年前的那批结晶粉，在经过了10年的政治变迁以后，经济变迁以后，他必须把这些人重新都洗掉。
+- [03:36:08]：懂吗？就是说的说的指这个国内的那个国内的案例，不就是湖江市吗。
+- [03:36:17]：嗯，你看半步远打出来的吧啊，对对对对对，是吧？就是我就不说那个啊，哎别说，别说了吴江市嘛嗯对。
+- [03:36:27]：是吧就之所以用这个说实话，这个胡江山不是我编出来的，是是女全集美，女全集美编出来的称呼啊。嗯只能说呃在在有用的时候和没用的时候，确实是啊确实是这个完全不同的两个态度啊。
+- [03:36:45]：嗯，真的，有人说这对美国社会有什么冲击？
+- [03:36:58]：我跟大家讲，他甚至是影响了底下这些人的全部的内容。为什么？就是为什么有人让老牛回头吃嫩草了，为什么有女人要跑到老中不在美国呆了？为什么有人想回归传统女性了？为什么他们十0年前关注的那个大V几百万粉的女权博主？
+- [03:37:23]：你发现他1.1点的不维持她的女强人，女王人设，开始做小女人，开始回归家庭，开始领养孩子，开始生好几个。
+- [03:37:35]：外孕都要生，就是完完全全活成了他当年的返利的样子。
+- [03:37:45]：就是他们也不傻，每个人都可以感受到时代的变迁。就是原来那套人设维系不下去了，水真的开始往下退了。
+- [03:37:59]：就是你他看着这个水位，从大从屁股到大腿根儿到腰呃，到膝盖骨，再到小腿，再到脚踝。
+- [03:38:10]：有人真没穿裤子，博主不是他早挣他早靠粉丝挣了大钱了是吧？老娘没穿，我现场现场超时空传送一个老娘都能穿上。
+- [03:38:26]：所以很多当年跟着博主一块儿把裤衩子脱子的女性发现，我操，你怎么把裤衩子穿上了？
+- [03:38:37]：你还不是逐渐的支出来一条，你是他妈从超时空传送门里面抽出来一条，大大方方的穿上了，然后等着潮水退下去。
+- [03:38:48]：你让我们这些粉丝怎么办？就是他必须充约金，就这些粉丝必须接受一个现实就是。
+- [03:38:58]：女权那一套玩不转了，白左那一套玩不转了，懂吗？
+- [03:39:11]：就是重结晶，她重新结晶的这些就是底下所有级别的这些女性都会是她重结晶的粉丝。
+- [03:39:32]：怎么就黑手党，人走差天，黑法老不在位了，有人说失去利用价值了。
+- [03:39:42]：你看你不要把话说的那么直白嘛，对吧？你看这个老哥就就不要说的那么那么直白，那么直白，多少沾点伤人了，好吧。
+- [03:39:56]：就是总之他必须重新过分儿。
+- [03:40:03]：就是他可能原先大几百万粉都是因为他的女权吸引来的那也不行，他要死了，否则到时候清算，他们这种有头有点有影响力的人，肯定是被事先清算的，尤其是在查理科克死以后。
+- [03:40:20]：这种对于极端左右网红的清算才刚刚开始。你们不要以为杀右派就完事，左派一样要杀的。
+- [03:40:33]：你们知道查理科克的死对这群人有有多大震动吗？通过搞极端凝固结晶粉。
+- [03:40:44]：这一套在美国现在就是会引来杀身之祸，就是我还是不玩极端了是吧？我也不玩女权了，我现在就想回归家庭了，是吧？粉丝我都不要了，我。
+- [03:40:59]：我必须重新结晶，就recrystalization结晶，我必须重新结晶以前的女权粉，再见再你妈的贱，我不要了。
+- [03:41:13]：啊，是很多这些厦门这些级别的女性是怎么发生变化的？她发现自己以前最喜欢的女权博主跟她们做切割了。
+- [03:41:25]：就是几天啊，姐姐好帅，女王好帅，集美你好帅，结果被人家博主一切割，自己傻了。
+- [03:41:34]：自己成小丑了是吧啊，是吧小丑接好，你的红鼻子掉了。有人说那为什么不退网呢？
+- [03:41:49]：退网也不行，为什么退网也不行呢？你退网如果不重新结晶，你的那些网上互联网记录都是罪证。
+- [03:42:01]：就是你必须明对完了他的贷款，你来还啊，真的是是啊嗯。
+- [03:42:06]：退完了，人家贷款你来还啊，赚多少赚多赚多大钱，欠多大债呀，我你你没有能力不看美国，嗯就不不许小看美利坚。呃，你你不你不集集结暗影卫队，你是没有办法发动岁月死书的。懂了吧？你必须要有地的暗影卫队，发动岁月死书跟带进行。是的啊，。
+- [03:42:33]：感谢星辰爱心帮老哥大赏，我必须重新集结粉丝。对的，必须重新集结粉丝。有说不佣兵自重头驴呢，投不了。
+- [03:42:47]：他们现在自己都切割不过来，怎么还管你哎，我说要有嫡气，对吧？那你以为呢？
+- [03:43:00]：要有嫡气，就你你是没有办法的，你必须重新结晶。
+- [03:43:10]：我攒就是比较典型的谁，就是泰勒斯维夫特。当然虽然他的定位是绿茶，他就是啊我结婚了，我要回归家庭，我要给我我要给我心爱的男人生孩子了。
+- [03:43:24]：你们看到国内有多少那些女权博主破房吗？他们的感受是一样的，就是老娘要重新结晶粉了，就是我要重结晶。
+- [03:43:37]：之前的粉丝在你妈的店在你妈的店，我必须有一批新粉丝核心粉。
+- [03:43:46]：那么那么我们是否可以理解啊，这个属于呃在在矿卡像甘蔗渣的发展阶段之中啊，呃这个选择了其他选项而走上了另外一条直线。嗯，就是原本是从矿卡变甘蔗渣。，现在是从矿卡变重结晶。嗯，是重结晶女博主是吧？他有粉丝量的。
+- [03:44:10]：感谢似水多年老哥打赏。按照禁卫军继承法，你不维护禁卫军的利益和地位，禁卫军就要做做到一件很经典的事，换个皇帝啊，是这样。
+- [03:44:25]：是这样的，这个有人有人说那句很吓人的话了是吧？我就不说了是吧？嗯，老粉丝已经怎么怎么样，是吧？
+- [03:44:38]：啊，就是有如说那男性博主都在干嘛呢？我都说了，美国现在的所有男性博主都是三步一主动是吧？不发信息，不约会，不说话，主动离婚。
+- [03:44:58]：就是你们女人当时爱答不理，现在都想来当 traditional对ition no外婆了，你别沾边是吧？我们男人挣钱不容易。
+- [03:45:08]：美国现在这个经济现状，你他妈别来沾边，我求求了是吧？啊，你刚才讲trareadlife那段我正好没在听。我想我不知道有没有您有说这个traread wife这个玩法，或者说这个打法，他其实也是利他其实也是利用这个宣传，利用社交媒体来公开的固定一个形象，来公开的故意形象。另一方面是和就是一方面是和这个普遍女性亲割啊，证明自己是就是突出自己作为好女人存在的个例，另外一方面其实也是通过发那种视频通过发视频啊，我主动去做三明治，男男人一掏烟，我主动出门啊？这种通过发这种视频，他故意营造一个就是自己是好女人这个标签这个身份。但是故意营造这个身份。
+- [03:46:04]：你可以说他其实某种意义上算是呃。
+- [03:46:08]：呃，嗯，就增加背叛成本的一种行为吧。对啊，那算是背增加背叛成本的一种行为来反过来试图取信男人。因为说实话，以美国男人现在的这个强度啊，就美国男人堆归也多啊。你刚才老魏也说了，但是。
+- [03:46:26]：但是水温也已经太高了啊。对，你就女方不整点狠活，女方不整点狠活，男方是真的不出，男方是真的不伸手。是的。
+- [03:46:41]：不伸手就。
+- [03:46:50]：而且我还要跟大家说，就是你们知道这些女人最大的问题是什么吗？
+- [03:47:00]：就是他们是有竞争对手的，就是我如上说的这些女人，大家要记住，她们的普遍年龄都已经20多岁、30多甚至40多了。
+- [03:47:14]：你们知道他们最大的对手和他们的加强版是谁吗？就叫sugar daddy seeker。什么叫sugar daddy seeker？就是我就是来当三儿的。
+- [03:47:26]：啊，我和那些妖艳贱货不一样啊啊，亲爱的是吧？啊，我年轻啊，肤肤我我肤白貌美大长腿啊。
+- [03:47:39]：懂吗？就是我和他们不一样啊，我是我可以做他们所有版本的加强版。
+- [03:47:47]：这个这个话我来总结一下，叫做男人不管几岁都要都要选十八的，我就要当那个十8的嗯。对，有诸er daddy seeker，就是这个对，就是你我就要当那个18的，是吧？那些想当tod能外的女人，他们都2十八了是吧啊，dady来看我是吧？我才十8。
+- [03:48:09]：对吧啊，我这是年轻火候不粘人，我dady快选我啊。
+- [03:48:20]：就你可以理解为原原本是就原本是这个这么说啊，相信相信他不一样的归男越来越少了之后，就开始出现劳魏说的这样的s ready seeker来还有traread出来。
+- [03:48:37]：自我不一样了。是啊，感谢似水多年，鹅大赏，这不就是找堂爹那曲吗？对，说的就是。
+- [03:48:46]：就是他的竞争就是他的他的磁性荷尔蒙太足了吗？
+- [03:48:57]：哎，这这怎么说就归归男越多，被觉被归男越多，被吃干抹净的就越多，被吃干抹净的越多，这个这个男男性普遍朝规校规，朝规校规，乙女妓女的风气就越盛啊。
+- [03:49:13]：然后然后就到了就到了这个try wife和那个serread stick的。
+- [03:49:20]：是来自荐我不一样的这样的一个状态。所以就是就是归男越多，从归男多到从归男多到怎么讲，到主动的女人多，是存在这样的一个转化过程的啊，不要以不要以一时的局势来判断长久的发展。
+- [03:49:39]：哥呢。
+- [03:49:49]：就是就是他没办法，他优势太大了是吧？他年轻，他十八，我玩不过他就是。
+- [03:50:02]：任何老女人都其实没法竞争，为什么？就是那张充满胶原蛋白质的脸，大长腿和和爆炸性的雌性荷尔蒙。
+- [03:50:14]：就是很多苍很多人很多博主说的都是很苍白无力的，就这种这种suger daddy seeker。
+- [03:50:25]：非常适应当下版本，现在经济不好，老娘一分钟都不想是吧？分分钟都不想，老娘就是漂亮，老娘就是要找个好男人是吧？
+- [03:50:38]：你说你想当处dition no wife夫，你多大？哎呀，你都28了，我的妈呀，是吧学贷没还完呢吧，你看看我不一样，我18岁就出来了是吧？我就是要当爹地的心肝小宝贝儿啊，你比得上我吗？还学贷去了人对他他就这什么他他才十8啊，他连学都不，他连学都不上，他不给爹地欠钱。对？
+- [03:51:08]：遇到这种他遇到这种你那种什么try life的版本，那就就转版本已经来不及了。人家是人家是直接是新版本，新角色新装备，知道吗？啊，直接打的伤害比你多一个0是。
+- [03:51:24]：人家是巨龙，人家是巨龙时代版本的是吧？那个那个那个那个那个幻魔师知道吧？啊，人家是曾辉龙，知道吗？
+- [03:51:36]：感谢似水多年老哥打赏，你的一切化妆技术穿衣搭配，在充满胶原蛋白质的脸面前不堪一击。哎，对的。
+- [03:51:46]：就很简单嘛，你二8才开始拍才开始才开始警号try wife打上这个词条发视频。
+- [03:51:55]：你16岁的时候干什么去了？对的。
+- [03:52:07]：你遇上那你遇上十8的怎么办呢？那遇上这种这种这种什么这个GGgodady啊，goda seeker啊，不不是那种 seeker或者说是这种或者这种升级版的go digggger啊，升级版的go diggger，那你怎么怎么可能打得赢啊，不可能打得赢的是的嗯。
+- [03:52:28]：有人说为什么打不赢，他的生育价值太高了，他的子宫是崭新出场的。
+- [03:52:38]：你玩不赢的，他的子宫壁上的肌纤维是完整的。
+- [03:52:48]：你能明白我在说什么吗？但是他屏幕上那层膜都没撕。
+- [03:53:00]：对，原封他真的可以卖原价，他真的卖他真的可以卖原价，他的保修标都他的保修标还在街缝上呢。对，他就是原价，你怎么办？懂不懂崭新出厂的含金量呀？
+- [03:53:22]：他真是原原厂原装，你怎么办嘛？对吧？
+- [03:53:33]：3080，你真的要挑战吗？懂吗？就是你别觉得人家开价高是吧？
+- [03:53:52]：他提供的价值是是是是配得上的。有人说这不就是全新未拆5090。对。
+- [03:54:04]：嗯，是吧？就是他是会对其他的那些行成爆杀的。
+- [03:54:21]：有时候那很竖值了。对那很竖值了，那，对吗？你想怎么还有人想要解决办法，你那我说个解决办法，你乐呵一听就完事了。
+- [03:54:41]：啊，颞部门中，女性的平均劳动生产率大约是男性的58%。
+- [03:54:47]：根据2023年美国的数据，在美国这样的一个高度服务化的经济里边，女性的平均薪水大约是男性的78%。而且随着学历和收入的随着学历和收入的提高，这一这一差距会拉大到74%。因为没有最低工资强行拉平两性差距。那换句话说就是啊女性在工作能力上就是58%到77%的男性。
+- [03:55:13]：问题关键是，现在女性的收入在国内大概是89%，平均是男性收入的89%。
+- [03:55:20]：啊，在美国在在美国那边的话是百分之就77%啊，说白了就是70%到80%。那换句话说，你以58%的77%的工作能力换到了70%，就是换到了77%到89%的劳动收入。
+- [03:55:38]：中间的中间的这个差值就是补贴，明白吗？中间的差值就是补贴补贴给什么的？就是我们说的俗一点，就非要我把话说的，非要我把话说的这么直白吗？不生就是骗补。
+- [03:55:55]：不生就是骗补是吧？是的，有人说118岁的go的serdady seekker太魅男了。
+- [03:56:10]：这不是那妹男，这知道自己的价值，懂吗？
+- [03:56:21]：同样的一同样一单位的劳动生产率，女性的平均工资比就是交给女性的劳动报酬多20%几到4%则多20%到40%。
+- [03:56:32]：多出来的这部分是给劳动力再生产的补贴，明白吗？但凡但凡不生的，在全社会意义上就是骗补，哪怕在女性群体内也是什么，也是公贼啊。
+- [03:56:46]：对，因为很简单，一个人一个人就是一个人这个就一个人啊。
+- [03:56:54]：不搞家庭，专注事业，它实质上是在嘛？实际上是削弱女性整体的，就实质上是削弱女性整体啊，但凡所有女性都会参与到，都会参与人口再生产的这个预期越来越多，这个预期越来越削弱，越来越多，这个预期越来越削弱。那结果就是到最后你发展到现在这个状态。
+- [03:57:16]：太平洋东西两岸，明算账的呼声越来越高，明算账算明战。
+- [03:57:23]：感谢退坑的幕后人老哥打赏，给大家形容一下，就借用二友。当开服的时候，版本1.0的角色打10万伤害哇塞，好高好厉害。好啊，现在版本3.0喽，1.0老角色带上各种拐buff打了20万伤害可以吧，但3.0版本的新角色上了一随手一打就是一两百万，你1.0版本那老斑鸠怎么比，而且卡持还不降价，是谁有病，在3.0版本超1.0的角色。
+- [03:57:56]：啊，再说了，我说我说实话，为什么为什么我我一直支持算明算账，算明账，因为我不想看见算总账。
+- [03:58:06]：算总账太他妈吓人了，知道吧？我还是具有我我坦然承认自己具有就作为普通市民，具有小资产阶级的软弱性。
+- [03:58:20]：即使我即使。
+- [03:58:22]：其实我经常会考虑到一些说算总账的情况之下怎么样的场景，但我是归根结底。我从意愿上讲是不希望算总账的。尤其是你像那个屁大头的观众，就属于那种连人话都说不来听不懂的。什么补贴没几个钱，这是50%的人口，他的劳动价值被以20%到40的更高的数量计价的问题。你如果放到如果计算总类是万亿级的补贴，那可真搞笑，还补贴没几个钱，你还真当所谓的补贴是那个明着明着给的生育补贴的3005003335百什么。
+- [03:58:59]：什么八什么什么八两千码块了，那根本不是那回事，那是影响GDP统计总量的数量底。好吧，说的直接一点，工业就是当年的统计数据嘛，15年的统计数据。
+- [03:59:14]：男女双方的劳动力劳动力劳动能力就是劳单位实际上劳动生产率的差距是172比100。
+- [03:59:23]：收入只有120只有112比100。嗯，那给男的给男的那边少的，给男的那边少的钱去哪儿了呀？那是搞笑吗？
+- [03:59:40]：是吧感谢风言风语，老哥打赏赌一下。老爷我现在认为国内的男女关系和曾经冷战时期，中国和苏联很类似，曾经是无产阶级战友，能互相付脱性命同志。后来走过修正主义的苏联逼走，逼得中国和美国联手反抗苏联。后来苏联莫契祥和中国缓和关系，但是晚了，来不及了，裂痕造成了覆水难收啊，破镜难圆了。
+- [04:00:04]：人死是不能复生的。后来咱们的关系是怎么缓和呢？苏联解体了，苏俄罗斯被他们的白月光北约孤立排挤，正反手大耳光子抽个几十年，把他们所有独立自主的想法都抽没了啊，只剩下汉语number one，老钟天下第一，三从四德万岁，女权是恐怖主义，我不要彩礼，我要拿前线士兵的抚恤金当嫁妆，求着老钟看看我，所以现在谈什么男女缓和都没意义。现在苏联还没解体呢，离俄罗斯靠我还有几十年。
+- [04:00:39]：事情我就我就很烦，我就很讨厌讨论这些事情。因为我这个话一说出来，很多话一说出来就发早就。
+- [04:00:48]：太丑陋了，明白吗？很多话一说出来太丑陋了，太太难听了，就是这话说出来太难听了啊，就是。
+- [04:00:56]：呃，如果为为什么就直说了，为什么对于甘蔗渣啊，为什么对于甘蔗渣对于停水停电的而言，生活突然变得极其残酷。
+- [04:01:08]：因为很简单，那20%到40%的补贴的理由不存在。是，就是说没有了这个就在物理上，你不具备匹配这种优待的能力了。女性不具备匹配这种优待的能力了之后。
+- [04:01:24]：他就要回归58%到77%的工作能力的对成年人的这样的一个定位。呃，这个落差是非常巨大，非常残酷的，就是童话不在了，就是。
+- [04:01:41]：是40多年左个这种账轻易算不得，我非常讨厌，但是你很明显你持续的故意掩盖问题，说白就是不教育，只通过互动，让人体会到这种问题的话，他在互动之中产生的体验往往不是很好啊。
+- [04:01:56]：身份尤其是涉及到身份政治的时候，那你身份政治的过程中，你因为身份政治而什么身份政治的互动而产生的负面影，负面印象是极其持久和牢固的。
+- [04:02:10]：嗯，没事，你先念SC嗯，已经很够意思了，放眼全世界，看看其他国家是怎么控制工作岗位，把女性逼回家庭的，别逼到大家走那一步很难看的。
+- [04:02:22]：离回家庭都不是什么事儿，你知道？这真他妈吓人那是说呢，你你看俄俄俄罗斯打仗，发现要男人卖命的时候，直接哎。
+- [04:02:34]：战争第一年宣布性变态啊，战争第一年宣布性变态是非法的。战争到第三年的时候，已经宣布女权主义是恐怖主义的。
+- [04:02:45]：啊，虽然说到现在为止还是处在杜马立法的阶段，而且还是说完还是说需要需要男人卖命的时候这个状态。
+- [04:02:58]：但其实这个还不是就是还不是恶化到最后的情况。
+- [04:03:15]：就是对那有更直接的是吗？那体现你的价值吧，你要觉得你和男性一样，乌克完真把女人送上战场。
+- [04:03:27]：那你看看吧，这没办法的。
+- [04:03:37]：没办法的，就是现在现在目前全世界就到这个版本了，就是。
+- [04:03:49]：感谢这样道德的嗯就道道德的基本逻辑路线，就道德的这个基本逻辑叫非特定对象的长效期待。
+- [04:04:00]：是说第一是这个长效。其他换句话说，就是他的回报，它的作用就是它的因果因果报应。我们就说这个因果报应不是当时的，不是计时的，然后是而且它是非特定对项目。
+- [04:04:15]：嗯换句话，这但是非特定对象长效期待这个东西。哎呀，嗯怎么说呢？这个逻辑这个逻辑被破坏的太严重了是。
+- [04:04:29]：而且他使用嘛？他只有你持续的参与持续的参与劳动，持续参与劳动情况之下，你才能够说能够理解啊。
+- [04:04:41]：在实践这中提升认识，才能够理解这个东西，很不幸。
+- [04:04:46]：很不幸很不幸就算了，你先念吧，真的是我先念一下S说到底，有的群体喜欢上桌谈，那大伙可就起劲了。男人老狗知道自己几斤几两，你要是不知道，可以让大伙帮你上称看看你不觉得存在优待和补贴，对比你自己分别有多少斤的呀。
+- [04:05:05]：但是有个问题，下次辞竞下次竞选啊，哈哈姐或者白走卷土重来，表面上这群高人会不会再次反弓倒蒜，以及劳魏能不能讲讲劳魏这样特别open问稿的氛围下，还会有多少老师站到老师写像大概是怎么样呢？
+- [04:05:21]：在美国实际上不存在真正的义上的老实人了。谷歌那群ner儿的们玩的比谁都嗨，懂吗？只是他还没钱，有钱了玩的比谁都嗨。至于你说哈哈姐竞选或者白组冲突，卷组重来，美国就是现在这样，就是我说过他是个憎物，你知道吧？
+- [04:05:40]：他每竞选一次就撕裂一次，然后再重新拿针线缝一块。
+- [04:05:46]：这个针线是谁制作出来的呢？那些美国美国政治政坛里面那些老家伙们，那些还有着一些社会共识的人，那些精英的官僚们在纺织的这些这些缝合线。当这些老官僚们死的差不多了，共识彻底失去了，这种缝合线拼不到一块的时候，美国就是一摊烂肉了。
+- [04:06:13]：就是他连赠物都拼不起来了。呃，这么说吧，就是也是是。
+- [04:06:22]：对有对这个问题的一个补充吧。算是，实际上全世界现在都面临一个很大的问题，就是劳动妇女的数量正在减少。
+- [04:06:32]：啊，但是呃劳动妇女他他在相对神奇老中，你的神奇老中最后一次公布妇女劳动参与率的时候，已经到了一个非常幽默的数字。
+- [04:06:43]：就那就叮叮咚基叮咚基之后，当你讨论国女的时候呃。
+- [04:06:52]：有一半以上的概率，他并不劳动。也就是说这种，但是问题关键是对于女性的待遇。
+- [04:07:02]：还是以还是以那个曾经的劳动参与率的状态之下制定的不啊吧，或者还是以那个年代遗留下来。但是在但是现现状就是在叮咚机之后，当你谈到国女的时候，他有50%以上的几率并不劳动。
+- [04:07:23]：哎，确是就但但是呢这个呃劳动妇女是仍然存在，虽然他已经变得很幽默，他这个数量已经变得很幽默就是。
+- [04:07:37]：就是我们要认识到一个点，就是如何使妇女重新回归牢动，嗯，给他们真正应该得到的地位。
+- [04:07:48]：这样他们就不得不为了生存而回归劳动，然后就会正常许多啊嗯。
+- [04:07:58]：啊，我看一下啊啊，感谢感谢提审亚祖夫马哥SC啊，套用一费啊，OK.
+- [04:08:10]：啊，批评第三波女权的白走价值取向的时候说过，你们边缘反对中心第呃没有意识到当代女性权益脖子上套着脚锁的有两个能让他们被能够让他们被赦免，成为现代社会公民，而非署民的垫脚箱。一个是声育，二是生产。如果你们执意把这两个垫脚箱踢开，那非但不会收获你们追求的第一爱，还会收获他的反面，女人脖子上的角锁收紧了。你们的理论凭铺过现代女性权益通往奥斯维新的铁轨。
+- [04:08:47]：是吧就很多话就是说的就是哎呀说的还是不够难听。我我说句更难听了，就他真的饿的皮包骨头了。
+- [04:08:59]：就是我们承认这些这个不愿意参加劳动的女性会有一些呃直接饿死，说句很难听，他们会直接饿死。
+- [04:09:10]：这个情你你是否在查询日本营养失调啊，营养失调死是。
+- [04:09:20]：就那就他们日服就非常的夸张了。日服的日服是啥？日服是咋说这个。
+- [04:09:29]：就是她日服的女性是被挤在渣男和草石男中间，不要小看草石男，好吧，千千万不要小看草石男。
+- [04:09:45]：啊，当当一个男性当一个男性，他既不追求升值，他真不追求进步，也不追求成家的时候。
+- [04:09:57]：就他既不追求进，他完全不追求进步的时候嗯。
+- [04:10:08]：那那那他的性价比，那他作为一个那就是首先它性价比高，其次他不追求进步啊。
+- [04:10:20]：非常吓人，这不是不是无敌之人的问题，这不是无敌之人的问题，就是他也不搞事儿，他就往那一摊。
+- [04:10:31]：他就往那一坐，他就上他就上这个班啊，但是有那么一点点不同，就是他真的可以一个月上28天。
+- [04:10:43]：稳定的刷新啊稳定刷新提稳定运转28天，还能够还能够处理一些意外情况和和解决一些意外需求。
+- [04:10:55]：嗯，那是那是性价比少年性价比就是他是他是写字楼底的和尚。
+- [04:11:07]：懂吗？就是没有那种尘世的欲望啊，单纯就是上个班撞个钟。比如说这不是好员工吗？对他会把女性挤出去。
+- [04:11:18]：对他确实是好员工，唯一一个问题就是他相当于他他他会他会沉到最底下，然后极其稳定啊，他会沉到最底下，极其稳定。
+- [04:11:28]：就怎么讲？50年内无法分解，嗯，就4445十年不分解吧。
+- [04:11:37]：那那你猜谁会被谁会被他们卷出去，谁会被他们卷出去，干着招呗。
+- [04:11:54]：就真正恐怖的还不在这儿，就是那些女性在被饿死了一部分以后，呃，会有一些这个对。
+- [04:12:03]：呃，会会直接破口大骂啊，会直接对这个赛里斯或者是希大的政政体直接破口大骂，然后引发一波这个很恐怖的社会舆论。
+- [04:12:16]：当是没有用，因为真正的真正的怎么说呢？老中和希大都不是善人，老中和希大是不养全人的嗯。
+- [04:12:28]：然后他们就会残酷，并且绝望的意识到这一点以后，他们只能被迫乖乖的重新回归到他们应该存在的阶层中。
+- [04:12:38]：今天秀出来这个问你你你是否在查询数二克电视剧啊啊，就那个那个彻第二科电视剧那个多少有点太颠了。
+- [04:12:49]：太点了啊，说树树木二科的故事好就好的都找了纷纷成功的和正式工和正式工结婚上岸了。
+- [04:13:00]：Okay.
+- [04:13:01]：读一下还有谁21岁本考二研嗯，21岁本考二战研毕业4至5年战国考，可以保证一个人在30岁前完全脱产，证明转移支富力够强力，衰退和停滞的疗效不及预期。呃，那个主要是由中国的传统道德保证的。
+- [04:13:23]：懂吗？就是家里真的供你，真的养你，不会学欧，成年之后成年之后自己付生活费就老实了。
+- [04:13:35]：乌尔科啊。
+- [04:13:47]：感谢40多年老哥打赏。现在一些案例能在网上大面积传播，某种程度上说明一些问题，是希望大家了解和抵抗，碰撞出一些共识，别逼到行政手段那一步，会无辜伤害很多人，造成恐慌现象，实在不好看。
+- [04:14:05]：身身份证治这个东西麻烦就麻烦在这里，就是你不可能只。
+- [04:14:11]：就不可能只让其中一方打身份牌，而不让另一方形成身份共同体啊。那天那个那是我4个月前吧，直播时候说的话。
+- [04:14:25]：That change.
+- [04:14:27]：前一句叫两勺一宽，两少一宽的最终产物是害人。第二句叫女权的最终产物是男人。是的，就是当你你要是能听懂的话，你知道这个话就你要是能听懂，你应该你应该能从骨头缝里感觉到一种含义，或者是怎么讲啊，或者是战斗爽战斗爽的快感。
+- [04:14:47]：是吗？是说白了就很简单，就是当你形成我和我们这个概念的时候，他者和他们就形成了。
+- [04:14:56]：就他不需要自己出手的，就是你框定了你的群体以后，他者自动形成别的群体。
+- [04:15:11]：就是画一条线实际上是区分了两个东西出来，不是一个。兄弟们，你记着就是你这条线画的越清晰。
+- [04:15:24]：分离就越大，懂吗？就我们这么说，就是实际上在现在我们要面临一个很严重的问题。
+- [04:15:39]：就是如果这个事情真的会发生的话，就及我跟HV现在说的这个事情真的会发生的话，那么这个。
+- [04:15:48]：呃，未来的劳动就未来的女性里头会划分出两个东两个阵营，一个叫劳动女性啊，不对，三个阵营，一个叫劳动女性啊。
+- [04:15:57]：但是他们还略微有一定的女性倾向，还有一种叫做我完全倾向于男性的权益的。我就是要讨好男性的啊这一部分的女性还。
+- [04:16:08]：一部分就是纯粹的女权主义。那之后会发生什么？我觉得不用多说了。有人说美国这种现象。
+- [04:16:22]：会发生在我们这儿吗？你自己想是吗？我也我们也不吓唬人。
+- [04:16:32]：我们也不会说说说说说说冷的了，嗯，劳动性还是会有的。哎呀，劳动女性还是会有的，但是比例再这么下降的话，尤其是经济继续这么高质量增长下去的话。
+- [04:16:46]：哎，就这很简单吧，你经济经济是高速增长的时候，那自然是就是那那自然是是是需要人手。
+- [04:17:01]：是吧自然是需要人手，性价比不那么高啊，运作稳定性不那么强的劳动力也是要的啊，但是。
+- [04:17:12]：从高速发展阶段转入高质量发展阶段之后，这咋说呢？错过招这个过招的动这个扩招动机啊已经逐渐从用人单位转向了教育机构。
+- [04:17:33]：我都有点恶魔啊，是吧？说的有一点恶毒，有是吧？这个这个破招行为已经逐渐从用人单位转向了教育机构的状态之下。
+- [04:17:46]：那用用人单位就需要考虑一下用工成本和用工性价比。支付宝到账5。
+- [04:17:59]：你如如果有一个如果啊有一个劳动力，它可以每天稳定运作12小时，1个1个月运作28天。
+- [04:18:12]：啊，另外一个，无论如何不可能稳不可能运作超过23天。，那怎么办呢？你看起来好像老婆我们放快一点，25天。
+- [04:18:27]：你看起来是三天的差距，但是在用工成本，但是在效率上，这肯定是10%的性价比的差距。是的。
+- [04:18:39]：读下SC，感谢渴望不止老哥打赏。说起干活，我当年毕业实训去电子厂流水线，一天12小时加班刚到14个小时，不到两个月，十几个女同学都出现了腹痛或者头痛。而我们这帮男的除了外表邋遢点，甚至还有精力打群架。
+- [04:18:58]：啊，是啊，我们男性是被这么设计出来的，一方面是设计，另一方面也是训也是训练出来的。
+- [04:19:16]：极为难弦酒重苦。
+- [04:19:21]：就就就这个咋说，你不但凡是个工作，只要是个真工作啊，而不是一个而不是而不是一个纯粹为了饲养人类啊，而而是一个岗位，急危难险九重苦。，这7个字迟早沾上一点。
+- [04:19:38]：这七项要求里边一项差上一点，一项差上一点，这合起来气维的差距可就不只是一点。
+- [04:19:52]：感谢无火老哥打赏，能帮忙想1个OW的逆天ID吗？快是吧？二游社区的老哥们快帮忙想一个逆天ID。
+- [04:20:06]：哎，不用搞哥是吧？回去玩OW啊，需要逆天ID哎。
+- [04:20:15]：这有有些有些不是很好的ID其实我脑海里回想起了很多逆天，我不敢说鲍米考迪克如何。
+- [04:20:27]：我哎呀，我我连暴雪都能原谅。对对，这就挺好是吧？
+- [04:20:37]：你就取这个ID吧，我我连暴雪都能原谅。感谢我问娜啥，如果某些群族群想保证抓娃子的传统能够得到元系，那为了保护这种传统的族群是要付出巨大的额外代价的这这里面包括族群的未来。
+- [04:20:57]：嗯，40感谢4水多年老哥打赏，真不希望走到那一步。我看过一些资料，早期一些女矿工未道子宫脱落的程度真的很不好。
+- [04:21:08]：你猜猜苏联为什么骂被骂呢？就是他真让女人下矿。
+- [04:21:15]：就虽然我我是很讨厌这个呃就是有一个称呼坦克啊，这个坦克的称呼是美国人先搞的。他们这个是因为他们称呼那个苏联的女矿工，劳动妇女，因为长期劳动，所以身体过于发达。
+- [04:21:32]：啊，他们把女性雾化了，但是我有一点不得不替苏联老大哥说几句好话。苏联老大哥是为数不多的，真正把女性投入到真正的生产实践中的。
+- [04:21:44]：并且，伟大的苏联劳动妇女在为这个呃共产主义的发展和进步做出了不可磨灭的贡献。
+- [04:21:58]：就说到底，还是没法解决一个问题，就没法解决一个什么问题。
+- [04:22:08]：呃，在在看起来无止境的增长，终于告一段落的时候。
+- [04:22:19]：你怎么能让用人单位，就你怎么让用人单位去用一个平均质量80%的劳动力80%，这还是这说白这还是说的保守。
+- [04:22:45]：哎，如果不让人劳动的话，那他没有经济，就没有经济权利，没有经济权利，随之后就会丧失一切权利。
+- [04:23:00]：是。
+- [04:23:05]：说到底就我一贯是倾向于选择我一贯是倾向于想一个什么想一个不那么暴力的解决方案。但是你看但是现在的问题就是我选了一个不那么暴力，不那么激进的解决方案，还经常被人认为是很激进的。你想在这个问题上，我的想法就是例行同工重酬。
+- [04:23:27]：这个力是严厉的厉啊，注意是例行同工同酬好吧？不是同岗同酬，同辈同酬。
+- [04:23:38]：同集同酬，力行同工同酬。是的，就是我就我相对我一直是一个比较温和的人。
+- [04:23:49]：唉。
+- [04:23:52]：感谢退空幕后人老哥打赏老A又是一个例子。310的真正的全女家庭，两个单亲妈妈得带两个小女孩，在310比较艰难的生活，两个妈妈都要上班，两个小女孩必须自己上学，周末两个妈妈也基本只有一天能休息一下。不过好在两个孩子爷爷奶奶都还在，周末接手照顾一下孩子。在这个家庭里面，因为父亲这个角色的缺失，必须所有人共同分担。父亲这个沉重的角色。不过好在两个妈妈都算收入不错，能维持住。有句话是对的，在社会结构里，男性不是一种性别，而是一种负担权利和责任的地位。真男人缺失了，就有女性自动递进，有所有全女简直可笑。
+- [04:24:39]：即即使是即使是百合情侣，也要有一个教材礼嗯是。
+- [04:24:50]：就我这么说吧，就是实际上实际上呃我们不讨论这个呃男就是两这个男性到底要不要承担这个责任，就是。
+- [04:25:03]：呃，我之前因为大家想定的是这个男性要承担这个责任。但是实际上呃在我观察的很多家庭里头，呃，男性不一定是百分百要承担这一责任。
+- [04:25:15]：这个责任是被分摊到了两个人身上以后啊，他们会做出一个选择，就及他们要扮演的角色。就是有有一些家庭是这样的。
+- [04:25:27]：呃，实际上有一些家庭里头像父亲这个角色，他的一部分是被母亲的劳动所取代了，而父亲则要扮演那个母亲的角色。
+- [04:25:37]：啊，嗯但是呢还有一种是父亲承担了这个责任的40%，而剩下的60%由呃工作工资更高的母亲所承担。
+- [04:25:48]：啊，这样的例子也不少啊，但是说到底，这个是夫妻之间的一种妥协和相互，这叫什么相互试探的一种结果。
+- [04:26:01]：啊，就这就有句话叫贫贱之家，百事衰啊？嗯，现在的问题就是从高速发展到高质量发展之后啊。
+- [04:26:13]：或者说这个就自11自1968之后又过了一个康德拉GF周期之后，你这个是这个。
+- [04:26:24]：整个资本主义世界该怎么办呢？问题啊，无像SC感谢我们昭昭满天星辰老哥打赏。
+- [04:26:34]：我给大家说个东西，小仙女骂你废物，大家会呵呵一笑。秦良玉老将军骂你废物，大家只会觉得自己能力不行。
+- [04:26:43]：啊，自但自古有多少女人比得上大名女战神呢？你牛逼，你能打你骂人都是对的。
+- [04:26:51]：是。
+- [04:26:52]：感谢4水多年老哥打赏，目前是靠强制性要求用人男女比例带来的结果是做不工办公室的越来越多，跑外勤的越来越累，更必提全体全呃全传奇女HR的girlhelps girl招聘原则，以及逆天的上岗就业驾孕驾，把用人单位搞得愈先欲死啊，是这样的。
+- [04:27:13]：现现在还处在一个用人单位幻想，自己招进来的是劳就是用人单位还在这个用人单位的人，他的对女性的幻想主要形成于劳动参与率70%的时代啊，而不是这样1个2020年之后都不关都不都不公布妇女劳动参与率的现状，好吧。
+- [04:27:34]：这个他还在处就用人单位目前还处在学教，就吃教交学费阶段，还还在学还处于吃教训阶段嗯。
+- [04:27:45]：还处于吃教性阶段，别急别急，就日本有日本的解法啊，老东大也一定有东大的解法啊吧。
+- [04:27:56]：树木科是一个很日本的解法，东大这边怎么解，我暂时我也我也不知道我也想不出来会怎么解，但是肯定肯定有办法解啊。
+- [04:28:08]：嗯，感谢你离春煌老哥打赏，上图基本有点沉重，来点宵夜。嗯，感谢铁拳亚佐夫老哥打赏点歌声音大一点。
+- [04:28:20]：猫尾能不能不要再去当陪酒女了，喵喵勿养你啊。
+- [04:28:31]：我的神龟归超龟之歌，我天，我的我的我操我的爆表，我我的粉丝都是逆天巨魔，你知道吧？
+- [04:28:42]：巨魔时间到了，不行了，我的我的粉丝没有一个正常人坏了啊，原来博主也不正常，那没事了。
+- [04:28:53]：就是巨魔之间会相互吸引的。我感觉我的直播群早晚有一天变成巨魔说的，你们现在还在想妈妈岗，你知道我想的更更他人的事情是什么吗？
+- [04:29:06]：更吓人的事情是，用人单位就是大量不归用人单位所用的男性劳动力。
+- [04:29:16]：就确实是他妈干不下去的啊，你这个行政规定很牛逼啊，那不光是规定的比例，还能规定谁职位。你最后的结果是出现什么？出现这个就是第一是单位本身的效率下降，真实性的出现。
+- [04:29:32]：出现大量不在用人单位，就是不在这些。说白了不在法律能管到的用人单位。
+- [04:29:41]：所聘用的劳所聘用的男性劳动力，我不知道这个话拐了两遍，拐了两遍，有没有人能听明白啊。
+- [04:29:54]：哎，你知道我想到了什么？快递小哥啊，还有还不止还有那个呃分公司转那个转转给另一分公司，然后只要有一个分公司，他们。
+- [04:30:06]：呃，签了这个合同，而且因为他不是在一个分公司不停的工作，他是不定期要转，就他一定不会满足那个40小时啊。
+- [04:30:18]：所以他一定不会有社保，，这就是伟大的法律漏洞嗯。
+- [04:30:29]：你们是喜欢你们是喜欢依法治国，还是依法治国？外包外现在就是外包就会出怎么说外包会出现这样一个问题，就是他的人事关系不在你这，你真的管不到他。
+- [04:30:47]：是哎，读下SC。
+- [04:30:54]：感谢这老哥打赏点一个和主题没关系的轻松点视频，难得看到1个AI生成即喜感又不至于低于过于低呃低于过头的视频，以及弹幕总有人说我也干活，我也加班半个月，为什么对我们恶意这么大？我的评价是真要量化比劳动贡献比惨吗？women我得砍IC？
+- [04:31:17]：哎，不是你坐在那10个小时，他也坐在那10个小时，你们两个干的活是一样的。
+- [04:31:27]：有时候背景音乐声音有点小，这个歌实在是过于撕心裂肺了，我不是很想我。
+- [04:31:37]：我这么说，就是劳真正的劳动妇女不应该在现现在应该在这儿发言，就真正的劳动妇女现在应该在哪呢？应该在那个矿矿井下头。因为因为。
+- [04:31:50]：呃，我这么说啊，就是真正已经依法禁止工作了啊，已经禁止依法禁止下井。对，就真正的劳动妇女是在林场的这个伐木小屋里帮这个呃矿工制作宵夜，或者是呃在这个矿井里头帮这个矿工们制作宵夜的。
+- [04:32:09]：包括凌晨的这个工作的采矿的矿工啊，制作宵夜的对，这是这是劳务妇女。嗯，就现在这个版本的劳务妇女是这样。
+- [04:32:20]：哎，嗯，读一下SA是吧？感谢墨雨的人老哥打赏。劳魏，我得向直播间的朋友们道歉，对不起，做出不好的表率，请所有朋友们一定要记得有病及时就医，别自己整暗活，不然等到自己给自己搞伤的时候，医生给你涂协和炎药，那是真受罪。
+- [04:32:40]：老哥，你不会是那个把用用用那个那个针灸罐给自己那什么抽出来的那个吧，他妈的。
+- [04:32:51]：啊，不行了，我的直播间巨魔太多了啊对，掏世天石那个坏了，我操啊，什么拔罐超人我。
+- [04:33:02]：天，我我他妈负压速压速压抽虚法，尿道闯天关，我操。
+- [04:33:12]：啊，太他妈狠了啊，不行，我我我直播间巨魔太多了。
+- [04:33:24]：哎，我当时就觉得他妈要出问题，我操我我我跟你讲，就感觉不如上世纪的这个老灯啊。
+- [04:33:35]：呃，觉得觉得这个身体身体这个不太好啊，想来点这个降糖灵啊，觉觉得身体太胖了啊，来点降糖灵，喝这个中药降糖啊，结果一看这个中药酒加的是降糖灵，嗯然后结果低血糖晕倒。
+- [04:33:53]：啊，而这就是我奶奶干的事啊，这咱这这个不是你看这个你看很多感冒冲剂，各种中药成分，最后最后给你来一个普热系毒。
+- [04:34:11]：嗯，感谢4水多年，我哥打赏说，是的，面对一些强制性的社会保障卡死，一些公司老板选择逆恋武功秘籍，没法开掉你。那么我选择解散公司，再重新组织。
+- [04:34:24]：不有啊，我是来解散这个乐队的，你是来干什么？那就是这样，对吧？
+- [04:34:35]：绝命绝命厨师可还行，baking bread, bakingking bread,还有更地狱的呢嗯。
+- [04:34:49]：就是当熬问处雨回家发现这个某些问题的时候，我这个呃决定补救。
+- [04:34:59]：结果他们悲哀的发现自己打不开电，就是他们悲哀的发现自己的互联网发言水平不怎么高。
+- [04:35:08]：哎，就这个是真的悲哀，就这种这种劳动赋予真正特点。就咋说呢？有有tra life就不错啊是。
+- [04:35:18]：有穿万就不错了。我现在的问题是发生才能存在，但是很多人发不了深。
+- [04:35:27]：哎，真正的劳动妇女发声被当成串子啊，感谢我我伟大宝哥打赏，事已至死，来看点黑暗六底，开心开心。
+- [04:35:47]：坏了，巨魔又出现了。
+- [04:35:58]：picking哎呀，我天，粉丝太多了，你们哎。
+- [04:36:08]：我他妈要笑死，嗯，我的妈要被。
+- [04:36:16]：我要说一下，呃就是呃我跟你们分享一下我我身边的一个故事，就是我的姥姥是一个非常标准的劳动妇女，尽管他是在南高丽工作啊。
+- [04:36:30]：但是他在41岁的时候生了8个孩子，是截止到41岁生了8个吧。对，截止到41岁生了8个孩子。
+- [04:36:43]：然后有两个还是那个最后活下来就有8个，他实际上他最后最后生了实际上是10个，他最后活下来的只有8个。那那比我奶奶强，我奶奶生个10个，活了7个。
+- [04:36:57]：然后怎么说呢？就是我那个姥爷很想要个男孩，结果很可惜啊，我我我姥爷和我姥姥努力了半天啊。
+- [04:37:12]：1个孩子只有一个是男的，然后还好还好这个我的这个舅舅他活下来了，然后结果之后染上了赌博哎不说不说那。
+- [04:37:27]：感谢花南花过老哥打赏是吧？点首要嫁就嫁灰太狼可还行，这是有年头啊，这人。
+- [04:37:40]：真的真的，你说可以点歌吗？可以点是吧？
+- [04:37:51]：要说该该该读概率学了，概率学博士是吧？
+- [04:38:01]：哎，现在的现在问题很多人就是是一个概率问题，概率和预期嘛，也就就概率就就咋说。
+- [04:38:11]：概率和预期以及就基于预期的很多上层建筑。你现在预期发生了变化，但是原本的上层建筑。
+- [04:38:20]：和这预期不匹配啊，妇女劳动参与率70%百分之妇女劳动参妇女劳动参与率79%，我操76%最高的时候。
+- [04:38:34]：76%时候定的政策和百分之官啊，和不在公布时候的现状，这很明显是不匹配的，而且不是政策的问题，你观念。
+- [04:38:43]：很多观念是延续下来的啊，更恶心的就是就是就是咋说呃这个。
+- [04:38:54]：威威胁到就威胁到他们威胁到他们生理功能的稀缺性，时就是昏迷啊吧？没威胁了之后，就是没没威胁的时候就带入啊。
+- [04:39:12]：哎，那只能说未来社会最好啊，强制有一些义务。
+- [04:39:21]：你们现还有点存在它这的价值。嗯，有人问那个40%不劳动，参与不劳动的数据来源，我要拿回来做啊截图。
+- [04:39:31]：查什么数据，我应该能查到的最后一次嗯妇女劳动参与赋予赋予劳动参与是吧？应该是20年应该是20年最公布一次，再往后就不太好看了，估计是。
+- [04:39:49]：校正回归也校不来，也顾校正回归也叫不回来了。是我挑开命位的面纱，看到的都是好事，可还行。
+- [04:40:05]：那可太好了，太残忍了嗯。
+- [04:40:14]：嗯，这咋说呢？呃，你你如果按照这个时候就要就要就就就要用那句经典名言，你还能有老祖宗聪明。
+- [04:40:30]：啊，妇女年二十不婚者还是年十十几不婚者啊，就是女子二七天春日可两个字叫什么吗？叫武算。
+- [04:40:44]：五算是什么意思？5倍的人头税按5倍的按5倍收税，按5个人收税。
+- [04:40:53]：嗯，就是武算嗯，就是你你还能有就你你还能有汉高祖夫妻俩聪明。
+- [04:41:09]：嗯，你还能有汉高祖夫妻俩聪明？感谢终局T90A老哥打赏，我看一下。
+- [04:41:20]：，这是有史以来第一次大规模啊出青女性，算是吧？也不一定是第一次。
+- [04:41:32]：那个在你你的超级剧唐在你的超级剧唐在妖后篡国之后，连一个正牌皇后都没有。
+- [04:41:42]：是的，直直到灭亡一个皇所有的皇后都是追授，那皇后这个头衔都变成了追授头衔，你们可是啊可以啊自自然可以考虑自此以下的社会层面的影响和变化。
+- [04:42:00]：是不是只有些荣誉头衔，只能变成给死人，嗯，一个活的皇后都没有。好吧，唐德宗这个逼坏了一次规矩，嗯，他老婆临终就给他老婆临终之前。
+- [04:42:16]：反正死前一天还是死前两天杀了个皇后。那说那说白了皇后这个头像还是只给死人。
+- [04:42:26]：感谢似水流年老哥打赏女子年十4不嫁加税，十6不嫁地方官强制婚配，就算把你赔给老手，你也得认。
+- [04:42:49]：哎，有时候还是算人头吧，那是那那你要不然咋整呢？
+- [04:43:04]：我先我还是跟大家补充一下啊，就是比人说美国这个测试就是你看现在就有的人又说什么，我们不一样，是这样。
+- [04:43:16]：我虽然不讲国内，我虽然讲的是美国，但是请你首先要相信一个事儿，就是我们都是晚期制人，就是我们在种群上可能稍微有点差距，但不大。
+- [04:43:30]：就是首先你不要觉得什么你还能有老祖宗聪明。其次，另外一个是就是人和人之间的差距是吗？虽然在成就上会比人和狗大。
+- [04:43:44]：比人和狗都大，但是在生理指标上面没有那么多差距，它分泌的荷尔蒙个体上的差距可能比人和狗都大，整体上的话真不好说啊。
+- [04:43:56]：整体上差距真没那么大0对吧？就是你分泌荷尔蒙，他也分泌，你的七情六欲，它也有。
+- [04:44:07]：没有那么大差别，荷尔蒙上了一样的上头，荷尔蒙退去一样的低货，就是先别把自己想的过于不一样。
+- [04:44:22]：懂吗？感谢晚的起名字老哥打赏是吧？
+- [04:44:28]：弹幕不一样，那个老哥讲了半天，那些逆天不过如此，在阿卡林都见过，所以我这阿卡迪索妖塔就不当了。这么好的阿卡迪妹子，应该找弹幕老哥一起好好相处，洗洗房，抱抱金币，戴戴绿帽，体验体验人生险恶啊。不对，是美好。祝弹幕哥赶紧替我等索妖塔，锁死他们挂图。
+- [04:44:52]：这又是什么图？我根据我的水友的逆天程度，我觉得这个图会很逆天嗯。
+- [04:45:05]：有说脑力劳动没有在进一步程度上改变这个状况。你看美国劳务工务局的数据是学历越高，整体收入层次越高的情况之下，男女之间的收入差距越大。
+- [04:45:17]：是为什么？因为很简单就是最低的情况。因为哎呀在低收入的情况之下，有这个最低工资这个东西强行托底，就是有强行拉近男女的收入差距。你真要往上算的话。
+- [04:45:33]：这要往上算是越算，就是越往上是差距越大的，提77%到了大到了这个大学以上和年入多少，年入是5万美元以上的时候就到73%了。
+- [04:45:48]：哇，就是这是江西哪儿啊，那个老得起名字，我这是江西哪彩礼58.8。
+- [04:45:58]：黄金单算8万8万，他来了，送价2万，小看一万，大看2万鹂娘。
+- [04:46:07]：28000见面礼8800，肉面1万，装灯2万，买衣服1.8万，节人2.8万，每人6.呃6800。
+- [04:46:19]：这是啥呀？这是这是江西哪的呀？没，我知道没算方式，这是哥，你能说说这是江西哪儿吗？
+- [04:46:32]：已经有点我已经有点麻了，这这江江西江西经济这么好吗？
+- [04:46:47]：啊，不是这是江西哪呀？这是不是这世世这世界如同一个巨大的二游啊这个。
+- [04:47:00]：你你你教材里和你给二油氪金能够获得的保障属于同一水平啊，但至少你给二油，但至少你给二油氪金不会把自己氪进监狱。
+- [04:47:14]：哎呦，我的天哪，不是。
+- [04:47:30]：这是我现在很想知这是江西哪儿这么有钱，这经济发展的有点太好了。不对，有有有有老米八这个这个策略在啊。
+- [04:47:44]：发出尖锐的声音，也要也要进监狱。哎，感谢四川多天老哥打赏，也许不是经济好，而是通过高价彩礼互相给形成一种经济循环，利好无凤台。
+- [04:48:02]：就是不是江江西老哥是真能忍啊，我操。
+- [04:48:16]：啊，不行，我我现在看着有点头疼了，认真的吗？
+- [04:48:27]：哇点有点有点共和国超人的意思了，怎么挣到这个钱啊？
+- [04:48:42]：南干北都有，那坏了，我还以为是局限在某一城市。不这这这里边还是同情一下江西老哥，江江西老哥还是。
+- [04:48:54]：老哥可以考虑一下矿卡。对，就实在不行，咱们考虑考虑矿卡吧。呃有矿矿卡说不定还能用啊，，说不定能玩呢。
+- [04:49:12]：还带得动，不是行。
+- [04:49:24]：就有一点，我就是现在我我不知道是是是是现在经济形势又这么好，58.8万啊。
+- [04:49:35]：咱们就按60万算吧，咱们算月薪5000，一年一年6万1年。
+- [04:49:46]：就是你月薪5000得工作十0年才能把彩礼挣出来，不算下面其他的上哪儿凑这个钱啊？
+- [04:49:59]：上哪儿凑这个钱，你告诉我。
+- [04:50:06]：啊，那那江江西老表的最优解是不是就是直接这个怎么讲？到到外面打工，到外面打工，然后不回家，然后等着等等着收到一份等着收到一份遗产证。
+- [04:50:23]：太他妈好人了，不先有个大上高，你有经验，人拆碎了，卖得上这个价吗？卖不上希大的流浪汉卖不上这个价。
+- [04:50:32]：不上不可能，你60万6咱们别的不算，咱们按60万人民币算啊，60万人民币已经将近10万美元了。一个流浪汉拆散了，卖不出这么多钱。
+- [04:50:48]：我说的还得是比较年轻的那种，就是身身体健康、身体指标比较好的那种，卖不上这个钱。
+- [04:51:02]：卖不上了，想什么呢？说实话，刚才有人提到彩礼贷，我想那个彩礼贷呀，确实其实如果如果我们那个修修改一下的话。
+- [04:51:13]：这个彩礼贷如果我们稍稍加改进的话，可能会有一些可能能够提振社会稳定性。比如说比如说彩礼贷的只能只能由家庭还款。
+- [04:51:27]：有如说近百万彩礼，如果放希腊能找到什么档次的对象，不不好说拉丁小妹一分钱不要我的。
+- [04:51:38]：或者是什么，或者是这个这个彩礼袋彩礼带的这个是是是咱翁带的老婆花。
+- [04:51:47]：哎这我有一个更恶毒的想法。
+- [04:51:57]：你太就你可以鼓励我们应该鼓励银行去把彩礼贷转化成次贷。别别别别别。
+- [04:52:07]：别，什妈证券的话可还行，债券的话可还行，你看男男人就有这个问题，太有米线了嗯。
+- [04:52:20]：就是还是有米线，还是不够住是吗？还是不够住，泥泥泥路泥路还是太少啊。
+- [04:52:32]：能够能够看着能够看着罗马点火，能够看着罗马燃烧乐起来的人还是太少。有时候100万能找七八个拉丁小妹吗？
+- [04:52:45]：100万兄弟在街头找到黑帮阿米狗二0刀就愿意为你杀人了。你你为什么把人命看的这么值钱？
+- [04:53:00]：就是掺了一半奶粉的强化剂，20刀那么一小一小包，米狗愿意帮你杀人。
+- [04:53:12]：懂吗？twenty bucks,你想什么呢？就是帮你开两枪对，帮你开两枪是没什么问题的，一发子弹才几几十美分。
+- [04:53:25]：好不好？对于他来说太他妈值钱了，感谢无魂我哥打场新ID非常好用，拿下全场最佳啊，抢抢下对面死神四杀最佳啊，谢谢HV啊，你看。
+- [04:53:39]：哎，你看啊等等，就是你看我就很可惜，为什么大家不能不能把这个这个彩礼袋也变成400？
+- [04:53:50]：把彩礼贷变成次带，这是一种促进我国经济发展的一种方式。哎，比说9毫米，哎，9毫米大量买，不可能一刀一发的想多了。
+- [04:54:03]：40多美分40多美分好吧，而且经常是经常是买一送一的。就是你买一方，2025年产的，送你一方11975年产的。
+- [04:54:16]：好吧，就是老配心，感谢似水中间老哥打赏。在我们这边私人企业因公死亡赔款也才30多万，这还是男性撞牢率的赔款，是啊？
+- [04:54:29]：这是照着黎，这不就是照着良名往死里盘波吗。
+- [04:54:42]：是这样，就是我讲一下啊嗯。
+- [04:54:54]：就是我们老家是什么情况呢？就是有油田啊，有油田。
+- [04:55:03]：油田下井死一个工人，呃，我算这是我最后一次见着他们陪是2018年。
+- [04:55:14]：一个胡文哥尔的大老爷们儿啊，就是上过大学的，就是能下矿的，能下油井的，死了是赔多少钱？
+- [04:55:24]：225000啊，还是275000来着，就是两拨钱，就是好像公司再额外拿点，可能连30万都没有，看20元。
+- [04:55:35]：就是你们想一想，就是中石油科班出身，读个读个985或者211大学。
+- [04:55:46]：就是地质人地质系的人才死了就差不多赔不到30万。两个国家辛辛苦苦培养的就是高材生。
+- [04:56:01]：死到了油井里，不到60万，东北穷，感谢我哥大赏，等于等于再熬每给几百刀就帮你杀人，不是假的那你以为？
+- [04:56:21]：你知道你知道培养这样的大学生，国家要补贴多少钱吗？就嗯。
+- [04:56:42]：所以你看这就是为什么我我推荐大家这个要要去搞这个所谓的彩礼贷的这个次贷化。因为彩礼彩礼贷的次贷化会导致直接的一个结果，就是要么大家直接不要彩礼。
+- [04:56:58]：有人说候有人说要么呃大家变聪明了，然后然后是吧，要要么大家不解我。
+- [04:57:10]：以后就没有彩礼的，用利用彩礼贷就直接可以消费到呃未来将近到。
+- [04:57:17]：如果我们这个正正体能撑到那个时候的话，可如果可能它会存在那个结结束那一天啊，他都不太可能会重新出价。也就说这么便宜，就是我老家很大多数房子只有3000多块钱一平，30万能买一套100平的房子。
+- [04:57:34]：就是人民币还是挺值钱的，人民币还是挺值钱的，一个一个幢幢1一平房子，3000块出头。
+- [04:57:48]：啊，3000块出头是30万购买个100平的好房子啊，就是给的并不低，只不过就是。
+- [04:57:59]：就是有些人太贪，大家为什么觉得30万低，这不是这不是有要588000的吗？
+- [04:58:12]：呃，老爷，我跟你讲，588000在天津可以买一个别墅了，你去天津，你是可以买一个别墅的，差不多。
+- [04:58:26]：哪怕你在110啊，你在110一年1个1万，你也能租一栋别墅了，只要一年一万。
+- [04:58:38]：就是哦，不对，一个月1万，说错了，不是一年1万，是一个月1万。我我感觉江西老表过的都是东南苦山行的日子，东南苦行看的江江江西老表过着西西福斯推石头的日子啊。
+- [04:58:55]：我们必须想象西西福斯是快乐的。哎，嗯对。
+- [04:59:09]：为什么我我再说一遍，为什么我会那个鼓励大家去把这个所谓的彩礼那次带化。
+- [04:59:18]：就因为彩礼带四代化带来的直接优势，是直到我们政体结束的那一天，都不太可能会出现彩礼啊，彩礼这个东西。
+- [04:59:28]：于良民是不会存的，就所谓的那种真正遵守规则的，就是在良民会直接不存在，就他们会直接消失在这个历史中。
+- [04:59:38]：江江西老表太坚强了，嗯行吧，对这不就是这这你这个你这个不就是典型的这个杀民你除贼嘛？啊，民民进者贼绝啊。
+- [04:59:56]：唉，我觉得你这个有点你你有点蒋介石的，我觉得你有点蒋介石，有点中正味道啊。
+- [05:00:06]：你这这典型的杀民以除贼，民进则贼绝。我我我现实有点有点太反动了。
+- [05:00:16]：那我想想有没有更温和的手段，让大家你别想了你别想了别想了别想了是吧？唉，你已经你已经为你已经为美国烟入味儿了，你不要想。
+- [05:00:31]：行，我看看我这他妈闹铃响了，一会儿哎。
+- [05:00:37]：等这个S，感谢3点之3，老哥打赏QQ私信分享一个我认识的扶贫干部经历。第一，家里没钱但富高彩礼的地方，大概率彩礼是某种程度上的生意。家里男孩富高彩礼，女孩才卖得出价格。2、该干部当年为了制止某省村民付高额彩礼的行为，整出个婚礼上吹唢呐，往水里扔洗衣粉的逆天操作，被人发网上后被狠狠批评。3、该干部提醒我，别带入这些富高彩礼的心态，你理解不了，那是不能理解。
+- [05:01:12]：就是江西老表还不赶紧跑啊，好吧，赶紧跑，咱别回江西了，就是。
+- [05:01:22]：家乡可能有时候没那么好，咱跑吧，兄弟就呼呼背着大草原也不是不能带，就跑呗，出去等等等我讲，出去出去打拼，打拼，一个人过也不是不能过啊，然后就等然后就等着接一封律师或者派出所的来信就行。
+- [05:01:43]：这这家乡不要也行是吧？跑吧是吧？我我我我其实一般不鼓励人是吧，抛弃自己的家乡的，这样做不太道德。
+- [05:01:54]：但是就是就咱先跑是吧？咱先跑这个叫江江西人，江西人逆干江而上，逆干江而上，走过大鱼到晋岭南，这乃是千余年的传统啊。
+- [05:02:15]：真他妈被三床被子压住，跑啊，人挪活树挪死，跑赶紧跑。
+- [05:02:25]：不能呆赶紧跑，兄弟，这哪是人过的日子呀，这哪是人过的呀，这还不跑。
+- [05:02:35]：哎，想想家了是吧？外地找个江西馆子，不正宗的也对付。
+- [05:02:45]：这个这个这个家好像是不太能回哎。
+- [05:02:56]：对你这奎是吧啊，你的猛男都跑重庆了，给江西重庆更完蛋呀。一个重庆一个四川一个成都给给江西老梗推荐个两个地方，一个地方叫白俄罗斯，一个地方叫巴基斯坦。
+- [05:03:16]：好吧，就是呃巴基斯坦呃，你要是能单一，你可以去，对吧？
+- [05:03:28]：那个要不然就是去俄罗斯也行。我说个地域的就是啊有的俄罗斯女儿会拿着她丈夫的抚恤金来找你的。
+- [05:03:38]：俄罗斯和白俄罗斯现在是极度缺男人呢，那些似水多年把哥打赏。最近几年我回家，家里人话题从来都是谁谁谁不结婚，到谁谁谁才得高。再到谁谁谁又离婚。互联网普及以后，油门的速度前所未有的快。
+- [05:03:55]：那是啊，就是兄弟们漠河走一走是吧？漠河走。
+- [05:04:09]：走一走，口岸走一走啊，霍尔果斯河、黑河、霍尔果斯啊都走一走，好吧。
+- [05:04:21]：有有有人怕就是某些教友妹妹是那个学历低，可以去霍尔果斯，中亚几个斯坦教育都不错啊。
+- [05:04:35]：你看这就是我们我们苏联伟大的地方，老大哥真的出众拳，把不让女子上学的这个这一些人出众拳打了一遍是。
+- [05:04:46]：就甚至发动了战争，就是请你去就是就是江西老表们，或者说全国的男性朋友们，你们一定要相信就是。
+- [05:04:56]：你一定要相信人民币的购买力，你一定要相信是吧？你生活在世界第一工业国，就是人民币是很有保障的，人民币的是很值钱的。
+- [05:05:10]：人民币比这个世界省段，你与其劝他们这个，你不如劝他把微信改一改嗯。
+- [05:05:23]：性太高的问题，规性太高的结果就是就是就是洋炸鸡，洋炸鸡来到国内也变成老乡鸡。
+- [05:05:34]：归男出去的归男出去的反归归男出去的，人家本地的男的还在骂，骂的不是抢女人，骂的是你们他妈的把本把我们的女人变脸。
+- [05:05:46]：哎，是吧有人有人老有有人老都说那个。
+- [05:05:54]：就是就是我忽悠老跟我往别的地方跑，我往西大跑，是这样，就是你要是能玩，你要是能跟西大女人玩的转，你再玩。
+- [05:06:05]：我目前目前我这个服的版本强度是最高的，就是你想来，我也不拦着，好吧。
+- [05:06:15]：是我这么说，亿人民币和那个巴基斯坦卢比是1比40，就是亿人民币不去黑市能换40卢比，黑市是62左右。你在美国是77.4人民币换亿美元。
+- [05:06:33]：就是你得明白，就是谁的福强度高，好吧，你月薪3000。
+- [05:06:42]：在巴基斯坦你也能住别墅，懂吗？
+- [05:06:55]：就是你要是没，就是你多数人也不是也不是头一次听我直播了，你喜欢先潜伏的强度，你就来。
+- [05:07:08]：我也不拦着你，我从来不拦着任何人，你喜欢给自己上强度，我还能拦着你来吗？
+- [05:07:16]：啊，对啊，有人说还我太坏了，你到底知不知道哪的强度高啊，知道吗？
+- [05:07:26]：就是我我们这边的就是我我们这一刀暴击是77.4的系数，懂不懂？刀刀烈火懂吗？
+- [05:07:38]：你知不知道我在西大养活自己，我一个月差不多要赚三四千美刀的，就我现在养活我自己。
+- [05:07:48]：我在美国以我的能力，我一个月要赚三四千，有的时候赚四五千没到，你懂不懂什么概念？三千。
+- [05:07:56]：就这么说，就是哪怕是就是西雅图仍然是就仍尽管它的经常下雨，呃，但是它仍然是一个宜居的城市，你要换一个不太宜郁的城市？
+- [05:08:08]：比如说北边的地方嗯呃6000刀都不太够养活自己。我我先说一下，就是我是一个每个月能够自己养活自己，不吃不不吃家里人钱的人。
+- [05:08:20]：懂吗？我一个月的平均消费是4000多美金，四期是28000，将近3万。我折合人民币，我差不多一个月挣3万，你知道吗？
+- [05:08:35]：就不值合人民币是吧？我的收入也所以所以早年移民是真的能攒钱，懂吗？你你要是喜欢先潜伏的强度，你就来。
+- [05:08:50]：对，而且而且不不要只看先遣伏的什么男女性别身份证之这个强度啊，还有什么经济压力的强度。你要想想，先先遣伏是一个一年。
+- [05:09:03]：年人口枪毙枪毙六七万人，失踪五六十万人。然后这个这个报失踪案，报失踪案失踪人口。
+- [05:09:14]：5440多万的嗯5440多万的地方，四五十万的地方。在加开先减伏之前，最好看看自己的面板和属性，还有装备。
+- [05:09:28]：还有富国币，感谢4水多年老哥打赏，学习先进经验，迭代核心打法，布局完海市场，强化和心竞争力。你是我见过最美的女孩，我要回家继承产业了，这是我给你的礼物。
+- [05:09:46]：啊，可以，嗯，就是街头会刷新跑刷新跑刀仔的地方，你知道吧？
+- [05:09:58]：就呃应该应该这么说，就是你是我见过最美丽的女女孩啊，我而我要回家继承我的家产，这是我给你的礼物棒。
+- [05:10:11]：这就是西希大先遣服，都们喜欢就来。七大大舞台有活你就来，没活就没命了。
+- [05:10:26]：就是我我推荐老哥们去的地方都是优势的，就是就是你你可以对他们打出暴击的，你知道吧？他他打你是不破防的。
+- [05:10:38]：哎，美美美国人呃，希大的人可以可以自豪的说，美国人不怕美国人能吃药。
+- [05:10:52]：能吗？你你你怕吗？有重金属中毒的老哥是是是靠嗑要抢救回来的。
+- [05:11:09]：急性重金属重毒对急性重金属净毒。，比如说飞升类固纯星球，急性重金属净毒就一两秒，类固醇星球好歹还得个十几年。
+- [05:11:26]：比说博菲丁什么就是杜猛定，什么奥士康定美士康定。哎呀，雷克丁雷克丁哎呀，是吧？纳洛桶纳洛桶。
+- [05:11:39]：呃，这么说说吧，就是呃杜冷丁那个东西在你的东纳一周只能打三针吧。嗯就是而在你的希腊这个呃杜冷丁是可以一天四一天5针的。就是我我跟你说啊，就是中国人喜欢吃缓视。
+- [05:11:58]：就美国不搞这个，就是美国上个就是极限剂量，知道吧？什么狗屁缓视是吧？什么狗屁长久释放，24小时循环给药。没那说法，上个就是极限剂量，先挨一针。
+- [05:12:13]：啊，先把命吊住，再说别的啊，太重量级了，还行吧，还行还行。
+- [05:12:23]：就是你知道医工人医工人种的优越性吗？啊，医工人种的优越性懂不懂懂不懂什么叫工业化？
+- [05:12:35]：懂不懂什么叫做什么叫做维多利亚严选，懂吗？有时候那跟军有什么区别？你知道美国的枪伤科几乎是天天爆满的吗？那和军医就是没区别呀。
+- [05:12:52]：军军医见的枪伤没有没有事如一多。对我这么说吧，就是中国某些大医院的老教授，他肯定做手术是比我强的。但是你放心，处理枪伤他肯定没我好。
+- [05:13:10]：就绝活就肋骨肋骨抠单片知道吗？我他可能看的病人比我多。
+- [05:13:21]：啊，就是重金属剑的一定比我少，就就拿拿出来的子弹碎片到底对不对得上那颗弹头，这是真的只能凭感觉和经验。
+- [05:13:35]：因为可能没那个没那个美国时间，让你慢慢把他拼回去。
+- [05:13:41]：感谢我QQ上月的是吧？哥，你说高达一个月大约多少，看情况，这玩意儿有淡忘季啊，你说高达算高危职业吗？不算我们是后去。你作为教授的学徒，有学徒费吗？有就是就是就是教授的就是教授的奴才，知道吗？
+- [05:14:00]：嗯，就是藕六孙儿对，低六孙儿。嗯，你们每个月补助2000左右是吧？2000左右嗯。
+- [05:14:12]：哦，那差不多是呃，然而很可惜，2000左右是完全不够一个学生生活所需要。我得自己再做点小生意是吗？
+- [05:14:20]：感谢朝昭满天星辰老哥搭赏看看啊私信。我给大家说个故事。我从欧洲回来的第一课学习就是如何跟大家好好交流。大家可以想象我在欧服的日常强度是个什么状态，以至于我回国后第一课是先学会温良攻俭让。对的。
+- [05:14:40]：有人说老魏，你怎么在美国搞社会小团体，我怕死。兄弟们，我怕死，我是个胆子很小的人，我是个柔软如同棉花一样的人，我怕死，知道吗？
+- [05:14:54]：我必须搞小团体，不是因为不是因为我真就想坏，而是我想活着，懂吗？
+- [05:15:04]：我就是想活着而已，我希望活着回国啊，我还想传宗接代呢。好吧，其实就这么简单。
+- [05:15:20]：你们惹到我，你算是惹到棉花了。嗯，哎，我想想怎么说就是。
+- [05:15:32]：呃，为什么你们会发现我现在越来越温和，越来越善良？因为就之前我我那个饿的那一面。
+- [05:15:46]：是在哪被培养起来？大家想一想，在在拍冰雪豹的地方，就是原冰羊拍摄原生曲在班阳的在在巨人樵夫班阳的家乡培养的。
+- [05:16:06]：支付宝到账30元，感谢4水多年老师哥打赏。国内对麻醉药管理极其严格，用量极其谨慎。
+- [05:16:14]：我上次做肺部手术，局部麻醉，第一次没给足麻药，后面又补了一点，就这样我还能感觉到管子往外抽的感觉，浑身发冷，疯狂冒汗。
+- [05:16:25]：我之前好像讲过，就西大的这个这个这个麻醉师有多值钱吧，就是你要在希大这堆药罐子里面精准的给到药量，又不要死他。
+- [05:16:38]：在美国那可是相当值钱的。感谢老哥打赏，某些部门会专门组织全保美交流枪伤之救治经验啊，这是是的。
+- [05:16:51]：肯定的哎，感谢放手一搏忘我哥打赏，我看看。
+- [05:17:01]：老谓重金属中毒真不是笑玩笑话，是字面意义上的重金属中毒。大多数民用弹药弹锌是含铅的，而且敌火也含。
+- [05:17:12]：啊，现代弹枪弹起火爆药主要成分是碟氮化纤燃烧会释放铅烟啊。
+- [05:17:20]：尝试从事室内射击的人，患慢性铅中毒的风险很高，而且真有弹片没及时取出，造成慢性铅中毒的病例啊，是。
+- [05:17:30]：我见的一般不是慢性的，都是急性的。
+- [05:17:36]：啊，我要讲个地域效哈，就是那个呃如果你们观察过弹药储藏室的那些呃老登记员们，你们就会发现他们会有惊人的概率或获得这个慢性的铜种度。
+- [05:17:52]：我说麻醉是怎么判断病人抽没抽过，大哥验血验那什么的那这这能交给你。
+- [05:18:05]：那那你得专门花钱去学的，这能随便是吧？告诉你吗？越能告诉你。
+- [05:18:13]：就是我有一手绝活是什么呢？就看在卡在肉上那个弹片，大致推断一下是什么枪打出来的，不一定百分之百准是吧？六七成准是有的。
+- [05:18:27]：有人说怎么练出来的？你只要看的重金属中毒的人够多就行。嗯就是。
+- [05:18:37]：这这这早上那波盘一端不对，子弹的分量不对，还有一片没取出来，你能做到这个程度吗？我做不到那个程度，那太极端了。
+- [05:18:56]：嗯，怎么说这还有人活着吗？有啊，身中十几枪活着的人挺多的，就人都挖到停尸房了，你知道吗？
+- [05:19:09]：人都拉到停尸房了，我们手术刀都取出来了，他一他他一下子他他一下仰卧起坐起来了，你知道吗？
+- [05:19:22]：啊，肾上腺发力了孩子们肾上腺发力了，生存的意志比谁都要强烈。嘻嘻，我一定要活下去啊。
+- [05:19:33]：是有时候诈尸啊，就是枪弹抗性抗性拉满，知道吧？
+- [05:19:41]：你你不你不前上上一期说的那个什么就那个那个疯美国女警啥啊，故意下套害他前男友，然后开枪打他前男友。对，打多少枪，前男友不也活下来，十五六枪了，活下来了，嗯十几枪还是活下来了。
+- [05:20:00]：当嗯就是说这在晚上不得吓死吓不死，这吓死啥？那个就是就是有种尸体叫做高阜，知道吗？就是有种尸体叫高阜。
+- [05:20:15]：西雅图是一个雨特别多的地方，你知道吧？就是黑帮仇杀呀，这个火病啊，这个抢劫强奸啊。
+- [05:20:26]：他们抛尸的话，就会把尸体抛在一些地方，垃圾山啊、垃圾堆啊、小小巷子里啊。
+- [05:20:35]：就是当你某一天早上阴雨一个阴雨连绵的早上，你接到的报告是某某地方有一具尸体。
+- [05:20:45]：就是它大概率是什么？就是他是前一天晚上半夜的时候杀的，第二天早上七八点钟发现的就是雨下了一一夜。
+- [05:20:57]：啊，这个时候温度呢就是也不算太高，也不算太低啊，就是蚊蝇还没有消退，老鼠也在活动。
+- [05:21:09]：嗯，你知道我在说什么吗？
+- [05:21:17]：哎呀，我直接点说吧，老爷这么说，就是大家知道为什么佛教他有一种修行方法是叫斯驼林嘛？就是为什么狮驼林是一种使人超脱生死的修炼方法。
+- [05:21:32]：在心态上超脱生死，因为狮驼林实际上就是一个高温高湿啊嗯。
+- [05:21:42]：然后非常适宜微生物活动的一个环境。然后里头所有的生物都会，只要它死掉以后，它就会直接分解成大量的。
+- [05:21:51]：湖状物有人说西雅图有多潮湿，西雅图是一个石头上讲青苔，能把整面墙染绿的地方。
+- [05:22:03]：感谢似水流年，老哥大赏，感觉老美人民真的快进化了9毫米免疫了。看过一个西大执法记录仪，一个剑圣顶着圣枪游侠的火的硬是刀子上去。
+- [05:22:14]：啊，这穿的。
+- [05:22:29]：哼有人说很那个有的时候还要什么？就是有些帮派吧，就是太没有礼貌，就是喜欢切碎了喂狗。
+- [05:22:44]：就有的时候呢，就是你你你不是喝人去，你要和狗去抢，你知道吧？你要把狗都打死，从他们的胃里掏东西出来。
+- [05:22:59]：就是你把狗打死，从狗肚子里面掏出来一些半消化的某些部件嗯。
+- [05:23:15]：哎，你你在说这个事儿的时候，他妈西安还要下5天雨，有时候冻宝会不会到你的下麻了给我。
+- [05:23:27]：，已经下一个月了，我操大哥别下了，收了神通吧，大圣。
+- [05:23:37]：而且你就知就是就是你看啊我不住西安，我就往八水绕长安，什么时候能再看见一次啊？
+- [05:23:49]：哎，是啊，八水照长安，可是长可是帝都之相啊。有有人说有人可有人那个到底在狗肚子里找什么呢？
+- [05:24:04]：就是开狗，有的时候吧会把那个骨头吃下去，就是开狗肚子是等于开盲盒的，你们懂吗？开的狗肚子是开盲盒。
+- [05:24:15]：就是有的狗呢会囫囵个儿吞下去一些什么，有的狗嚼得碎，就是你不一定能开到什么啊。
+- [05:24:31]：我告诉你们，我现在我身边那个状态是什么？柏油路上长那个绿丝藻，就是那个只有在水里才能生长的绿丝藻。
+- [05:24:41]：然后因为它绿丝藻生长的实在是过于茂密了，以至于车在开过这一段柏油路的时候容易打滑。有的说候捡狗肚里这些尸体有什么用？可以根据消化的情况去分析他们是什么时候吃到的尸体。
+- [05:24:57]：从而进而分析他们吃到的是不是一具要进验DNA的，就是什么时候吃的这只狗什么时候吃到的这一部分，那只狗什么时候吃到另一个部分，他们为什么吃到这个部分，尸体到底发生什么了？
+- [05:25:14]：啊，嗯，对吧？就是还可以看这个吃到的尸体肉上面沾没沾一些什么火药啊，金属碎屑呀。
+- [05:25:28]：一些什么其他的皮毛啊组织啊之类的，就是是有一套流程的。
+- [05:25:42]：什么定驱推食啊，是吧？就是看蛆虫的发育阶段，推定什么时候人死的嗯。
+- [05:25:57]：我说我身上什么味道，我身上没有味道，我身上很干净的，我比绝大多数人都爱干净反正绝大多数女人都不一定有我干净。
+- [05:26:10]：嗯，我身上什么我身上什么味道都没有，我身上有股花香味儿，好吧。
+- [05:26:23]：我会很仔细细心的打理我自己的。有时候直播什么主题，主题都讲完了，现在是闲聊阶段了，崩测试服的崩溃和回滚已经讲完了。
+- [05:26:46]：感谢似水流年，我哥打赏，下雨实在是饿不起来，我最近工作统计了一下，深东这边某镇的玉米产业大约60%，减产到一半，三0绝产未受影响极少，花生更散。
+- [05:26:59]：北方现在下雨量急急增，有人说你怎么做到的？
+- [05:27:08]：我我做不到我我做不到，就是有一种很神奇的东西叫做呃现代化学啊，工业化学。
+- [05:27:19]：懂吧？嗯，就是非常的amazing。
+- [05:27:28]：能帮助我消除很多味道。你用的是迪奥还是那个啊是吧啊，5巴黎世家还是什么实实验室有专门的，实验室有专用的嗯。
+- [05:27:41]：啊，你自己调的懂了。对，我们实验室会自己调的啊，比时候如果硫磺味，美国人会有什么特殊感觉，没什么特殊感觉。
+- [05:27:52]：没什么特殊感觉，美国人也用硫磺肥皂是吧？哎，有我想当年我在实验室用过捏了精油做。
+- [05:28:04]：自己拿偷偷他们的材料做香水，操，有人说有人说有人把自己咽入味，怎么可能我那种非常专业的消味剂，我们都是猛猛放的，好吧。
+- [05:28:16]：放心，一定请相信现代化学好吧啊，相信现代化学的伟力，好不好？
+- [05:28:35]：比人说特异特应性皮炎怎么治？我不是医生兄弟，我不接触活人的，问我活人的病怎么治，你问错人了。
+- [05:28:48]：呃，这个老哥我问你是鳞屑病还是什么病？啊，皮炎是哪种皮炎啊，然后你是不是跟神经相关的？
+- [05:28:59]：呃，最好去大医院找那个皮肤科医生看一下，他们会给一些药。有人说我这高达是哪种高达，没听明白，听糊涂了。
+- [05:29:12]：我说的不是模型，我我给新粉丝说一下，我说的高达不是模型，我说的高达不是模型，你想多了。
+- [05:29:22]：你以为我是什么骄，我我确实是骄傲，但是我不玩高达的，我玩战锤的。我说的高达不是真高达。
+- [05:29:32]：就是就是我不玩我不玩胶，我玩的是血肉，好吧，就是用用游戏技能，我我干的这个行业叫血肉重构，知道吧？玩过万制牌吗啊。
+- [05:29:48]：领勇师啊，我是做领泳的，好吧，呃，这么说就是呃我这么形容吧，就是。
+- [05:29:57]：呃，半机械老E一啊，嗯然后然后加上这个血这个这个这个一定的血肉血肉控制。
+- [05:30:11]：这么一个玩意儿，然后呃这么说吧，就是呃有一句话不知道大家有没有听过，叫做你能想象高达曾经拯救过多少人类吗？
+- [05:30:24]：感谢似水流年，老哥大赏，以我的经验，比较方便的处理实措方法是提前穿一身旧衣服，事后直接烧了。怎么可能天天烧衣服，我们用的是专业的衣服，是事前事后用白酒使劲ip全身喷洒。
+- [05:30:39]：有人说啊是这样，就是或者我是什么呢？就是就是我是没有非锐化的那个磨判磨判官，知道吧？啊，就是没有文化，没有非锐化的磨判官。
+- [05:30:53]：好吧，不是按40K的说法，就是雪灵人嗯。
+- [05:31:10]：就是就是我是没有非锐化的那个魔判官，大姨妈艾雷侬是吧？
+- [05:31:20]：理屠夫叩击了也好吧，艾威龙不大行，哎，你知道我想来我我跟我表象的一个。
+- [05:31:30]：跟跟我比较像一哥们儿是谁？就是那个呃我现在应该怎么说，就是你们是要诅咒建军，诅咒建军吧。
+- [05:31:42]：就诅咒建军有一个战团叫黑龙战团，你们可以看一看，他们是那个呃。
+- [05:31:52]：呃，火蜥蜴的那个被被这个呃是马象也缝了一些晚，哎，还是多拉考尔缝了点吧，什么东西。
+- [05:32:01]：有有人说一墨库是这样，一虽然虽然奥扎奇这种东西没有性别，你知道吧？就是但是一默库。
+- [05:32:11]：衣摸裤，但是大家默认他是女性哎。
+- [05:32:27]：就你你好，我这么说吧，那个诅咒建军时期的那个黑龙战团在有有一部分后来进了科莫罗，他们被抓了科莫罗了。
+- [05:32:37]：是，然后在那个火蜥蜴呃，还有其他的战团对科莫罗基行复仇以后，把一些黑龙给救了出来。
+- [05:32:50]：然后有一个黑龙被那个火蜥蜴的那个牧师给抓到了，就就抓到了一个火蜥，他们自己的那个监狱里头关起来。然后这个牧师觉得他能治愈这个火蜥蜴啊，不对，他那个牧师觉得他能治愈这个黑龙战团的。
+- [05:33:08]：这个战堂有涨几点了9点就是这样行了，歇了，兄弟们该上课去了。
+- [05:33:17]：你其实也不是上课，该去写文文吧，歇吧，兄弟们，9点，这是半夜12点了，该写了。哎呀，晚安吧，兄弟们。
+- [05:33:31]：晚安晚安晚安晚安，歇了谢了歇了，拜拜拜拜拜拜，谢谢谢。
+- [05:33:42]：12点了，晚安晚安晚安，哎呀，谢谢谢谢收收收。
+- [05:33:53]：晚安吧，兄弟们。
 
 ---
 
