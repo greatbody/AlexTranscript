@@ -14,6 +14,7 @@
 | **红脖子老哥的儿子** | 身体残疾，因关税战失业，跑外卖维持生计 | [characters/红脖子老哥的儿子.md](./characters/红脖子老哥的儿子.md) | BV1ACEbzHECR | BV1ACEbzHECR |
 | **银趴哥** | 主播的朋友，帮助红脖子老哥 | [characters/银趴哥.md](./characters/银趴哥.md) | BV1ACEbzHECR | BV1ACEbzHECR |
 | **黑哥** | 主播的朋友，帮助红脖子老哥 | [characters/黑哥.md](./characters/黑哥.md) | BV1ACEbzHECR | BV1ACEbzHECR |
+| **主播父亲** | 中石油工程师，对主播实施严格棍棒教育 | [characters/主播父亲.md](./characters/主播父亲.md) | BV1aPm3BKEKX | BV1aPm3BKEKX |
 
 ### 次要人物
 
